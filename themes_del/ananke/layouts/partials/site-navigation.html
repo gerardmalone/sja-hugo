@@ -1,0 +1,47 @@
+<nav class="pv3 ph3 ph4-ns" role="navigation">
+  <!-- Logo Section -->
+  <div class="tc mb3">
+    <a href="{{ .Site.Home.RelPermalink }}" class="f3 fw2 hover-dark-red no-underline grey dib">
+      {{ with .Site.Params.site_logo }}
+        <img src="{{ relURL . }}" class="w-100 mw5-ns" alt="{{ $.Site.Title }}" />
+      {{ else }}
+      {{ end }}
+    </a>
+  </div>
+
+  <!-- Menu Button for Mobile -->
+  <div class="tc">
+    <button id="menu-toggle" class="menu-button f5 pa2 br2 bg-dark-gray white pointer">
+      Menu
+    </button>
+  </div>
+
+  <!-- Collapsible Menu -->
+  <div id="menu-items" class="menu hidden flex-l justify-center items-center">
+    {{ if .Site.Menus.main }}
+      <ul class="list pa0 flex justify-center">
+        {{ range .Site.Menus.main }}
+        <li class="list f5 f4-ns fw4 dib mh3">
+          <a class="sjsp-menu" href="{{ .URL }}" title="{{ i18n "pageTitle" . }}">
+            {{ .Name }}
+          </a>
+        </li>
+        {{ end }}
+      </ul>
+    {{ end }}
+    {{ partialCached "social/follow.html" . }}
+  </div>
+
+  <!-- Inline JavaScript for Menu Toggle -->
+  <script>
+    document.addEventListener("DOMContentLoaded", function () {
+      const toggleButton = document.getElementById("menu-toggle");
+      const menuItems = document.getElementById("menu-items");
+
+      // Toggle menu visibility
+      toggleButton.addEventListener("click", function () {
+        menuItems.classList.toggle("hidden");
+      });
+    });
+  </script>
+</nav>
