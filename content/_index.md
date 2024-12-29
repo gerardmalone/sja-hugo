@@ -25,13 +25,10 @@ Whether you are moving into the parish, passing through, or just curious to know
 ---
 
 ## Church Photos
+{{< gallery1 "one" >}}
 
-### Gallery 1
+{{< gallery2 "two" >}}
 
-![Untitled Panorama3](https://st-josephsansdell.net/wp-content/uploads/2015/04/Untitled_Panorama31.jpg)  
-![ST JOSEPHS PANORAMA BACK](https://st-josephsansdell.net/wp-content/uploads/2015/04/ST-JOSEPHS-PANORAMA-BACK1.jpg)  
-![ST JOSEPHS NO CARS](https://st-josephsansdell.net/wp-content/uploads/2015/04/ST-JOSEPHS-NO-CARS1.jpg)
+{{< gallery3 "three" >}}
 
-### Gallery 2
-
-![ST JOSEPHS 27_2](https://st-josephsansdell.net/wp-content/uploads/2015/04/ST-JOSEPHS-27_21.jpg)
+{{< gallery4 "four" >}}
