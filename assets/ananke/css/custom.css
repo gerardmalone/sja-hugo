@@ -1,0 +1,178 @@
+/* assets/ananke/css/custom.css */
+
+header .sjsp-title {
+  color: #484437;
+  /* font-family: "Times New Roman", Times, serif;*/ /* More explicit Times stack */
+  font-size: 3.6em;         /* Large, headline-sized font */
+  font-weight: 500;         /* Thicker/bolder text (use 700 or 'bold') */
+  text-align: center;       /* Center the text horizontally */
+  line-height: 1.25;        /* Tight but readable line spacing */
+
+  /* Wrapping behavior */
+  display: inline-block;     /* So the max-width applies nicely */
+  max-width: 50%;            /* Constrain width so text can wrap */
+  white-space: normal;       /* Allow wrapping (overrides any 'nowrap') */
+  word-wrap: break-word;     /* Break long words if needed */
+  margin: 0 auto;            /* Center the inline-block if it’s narrower than 100% */
+}
+
+  /* Responsive adjustments for smaller screens */
+@media (max-width: 768px) {
+    header .sjsp-title {
+      font-size: 2.8em;       /* Reduce font size for smaller screens */
+      max-width: 90%;         /* Increase the width to allow more wrapping */
+      line-height: 1.3;       /* Slightly increase line height for readability */
+    }
+  }
+  
+  @media (max-width: 480px) {
+    header .sjsp-title {
+      font-size: 2em;         /* Further reduce font size for mobile screens */
+      max-width: 95%;         /* Almost full width for better wrapping */
+      line-height: 1.4;       /* Slightly looser line height */
+    }
+  }
+
+/* Style all anchor tags */
+a {
+    color: #f3835d; /* Dark red color */
+    text-decoration: none; /* Remove underline */
+}
+
+/* Optional: Add hover effect */
+a:hover {
+    color: #5A0000; /* Darker shade on hover */
+    text-decoration: underline; /* Add underline on hover for better UX */
+}
+
+/* Optional: Add focus effect for accessibility */
+a:focus {
+    outline: 2px dashed #f3835d;
+    outline-offset: 2px;
+}
+
+/* Override styles for links within .nested-links */
+.nested-links a {
+    color: #f3835d; /* Dark red color */
+    text-decoration: none; /* Remove underline */
+}
+
+/* Optional: Add hover effect for nested links */
+.nested-links a:hover {
+    color: #5A0000; /* Darker shade on hover */
+    text-decoration: underline; /* Add underline on hover for better UX */
+}
+
+/* Optional: Add focus effect for accessibility */
+.nested-links a:focus {
+    outline: 2px dashed #f3835d;
+    outline-offset: 2px;
+}
+
+/* Menu styling */
+.sjsp-menu {
+    color: #484437; /* Match the site's aesthetic */
+    text-decoration: none; /* Remove underline */
+    font-weight: bold; /* Make the text stand out */
+    font-size: 1.2rem; /* Adjust size as needed */
+  }
+  
+  .sjsp-menu:hover {
+    color: #000000; /* Add a hover effect, e.g., dark red */
+  }
+
+  @media (max-width: 768px) {
+    nav ul {
+      flex-direction: column; /* Stack menu items vertically on small screens */
+      text-align: center;
+    }
+  
+    nav ul li {
+      margin: 0.5rem 0; /* Add vertical spacing */
+    }
+  }
+
+  /* Center and style the title */
+.sjsp-title {
+    color: #484437;
+    text-align: center;
+    font-weight: bold;
+    font-size: 3.6em; /* Adjust size if needed */
+    line-height: 1.25;
+  }
+  
+  /* Navigation menu styles */
+  nav ul {
+    display: inline-flex;
+    justify-content: center;
+    padding: 0;
+    margin: 0 auto;
+    list-style: none;
+  }
+  
+  nav ul li {
+    margin: 0 1rem; /* Adjust spacing between menu items */
+  }
+  
+  nav ul li a {
+    color: #484437;
+    text-decoration: none;
+    font-size: 1rem;
+    font-weight: bold;
+  }
+  
+  nav ul li a:hover {
+    color: #484437; /* Add a hover effect */
+    text-decoration: none;
+  }
+
+  @media (max-width: 768px) {
+    .sjsp-title {
+      font-size: 2.5em; /* Reduce title size on smaller screens */
+    }
+  
+    nav ul {
+      flex-direction: column; /* Stack menu items vertically on smaller screens */
+    }
+  
+    nav ul li {
+      margin: 0.5rem 0; /* Add vertical spacing between items */
+    }
+  }
+
+/* Menu Button Styling */
+
+  /* Hidden by default */
+.hidden {
+    display: none;
+  }
+  
+  /* Menu styling */
+  .menu {
+    margin-top: 1rem;
+  }
+  
+  /* Mobile menu button styling */
+  .menu-button {
+    border: none;
+    font-size: 1rem;
+    font-weight: bold;
+    text-transform: uppercase;
+    cursor: pointer;
+    background-color: #eac751; /* Change background on hover */
+  }
+  
+  .menu-button:hover {
+    background-color: #8b7b47; /* Change background on hover */
+  }
+  
+  /* Show menu on larger screens */
+  @media (min-width: 768px) {
+    #menu-items {
+      display: flex !important; /* Ensure the menu is always visible on larger screens */
+    }
+  
+    #menu-toggle {
+      display: none; /* Hide the toggle button on larger screens */
+    }
+  }
