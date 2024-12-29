@@ -1,4 +1,4 @@
-baseURL = "https://sjsp.netlify.app/"
+baseURL = "https://sj-hugo.netlify.app/"
 title = "St Joseph's Roman Catholic Church Ansdell"
 languageCode = "en-us"
 theme = "ananke"
