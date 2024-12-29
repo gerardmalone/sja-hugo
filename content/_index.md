@@ -8,7 +8,7 @@ cascade:
 
 ## Welcome!
 
-Welcome! This website has been designed to help you find information about activities in the Catholic parish of **St Joseph’s** in Ansdell and **St Peter's** in Lytham., Lytham St Annes. Each week, the [News](http://localhost:1313/news/) page is refreshed with parish news. The [Mass Times & Intentions](http://localhost:1313/mass-times/) page is also updated weekly with both Mass times (including any weekly changes) and which feasts and intentions are being celebrated each day of the coming week. You can also subscribe to the weekly bulletin on this [page](http://localhost:1313/bulletins/) where you can find the last five bulletins.
+Welcome! This website has been designed to help you find information about activities in the Catholic parish of **St Joseph’s** in Ansdell, Lytham St Annes. Each week, the [News](http://localhost:1313/news/) page is refreshed with parish news. The [Mass Times & Intentions](http://localhost:1313/mass-times/) page is also updated weekly with both Mass times (including any weekly changes) and which feasts and intentions are being celebrated each day of the coming week. You can also subscribe to the weekly bulletin on this [page](http://localhost:1313/bulletins/) where you can find the last five bulletins.
 
 You can see some wonderful images of our stunning Church below.
 

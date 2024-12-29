@@ -48,50 +48,6 @@ Individual Feasts and Intentions, along with any ad hoc Mass time changes, can b
 
 ### Times at St. Joseph’s
 
-<table>
-    <thead>
-        <tr>
-            <td><strong>Day</strong></td>
-            <td><strong>Mass Times</strong></td>
-        </tr>
-    </thead>
-    <tbody>
-        <tr>
-            <td>Monday</td>
-            <td>No Mass (see St. Peter’s)</td>
-        </tr>
-        <tr>
-            <td>Tuesday</td>
-            <td>10:00am Mass</td>
-        </tr>
-        <tr>
-            <td>Wednesday</td>
-            <td>No Mass (see St. Peter’s)</td>
-        </tr>
-        <tr>
-            <td>Thursday</td>
-            <td>10:00am Mass</td>
-        </tr>
-        <tr>
-            <td>Friday</td>
-            <td>No Mass</td>
-        </tr>
-        <tr>
-            <td>Saturday</td>
-            <td>No Morning Mass<br>6:00pm Vigil Mass</td>
-        </tr>
-        <tr>
-            <td>Sunday</td>
-            <td>9:15am Mass (includes Children’s Liturgy)</td>
-        </tr>
-    </tbody>
-</table><br />
-
-
-
-
-
-
 <!-- Two-column container for St. Joseph's -->
 <div style="display: flex; flex-wrap: wrap; gap: 2rem;">
 
@@ -168,50 +124,3 @@ Individual Feasts and Intentions, along with any ad hoc Mass time changes, can b
   </div>
 
 </div>
-
-
-| **Day**             | **Mass Times**                            |
-|---------------------|-------------------------------------------|
-| **Monday**          | No Mass (see St. Peter’s)                 |
-| **Tuesday**         | 10:00am Mass                              |
-| **Wednesday**       | No Mass (see St. Peter’s)                 |
-| **Thursday**        | 10:00am Mass                              |
-| **Friday**          | No Mass                                   |
-| **Saturday**        | No Morning Mass                           |
-|                     | 6:00pm Vigil Mass                         |
-| **Sunday**          | 9:15am Mass (includes Children’s Liturgy) |
-
-**Confession**  
-Tuesday 10:30am – 11:00am and anytime on request
-
-**Holy Rosary**  
-As Announced. See [News]({{% ref "/news" %}}) page.
-
-**Benediction**  
-As Announced. See [News]({{% ref "/news" %}}) page.
-
-**Exposition**  
-Tuesday 10:30am – 11:00am.
-
-### Times at St. Peter’s
-
-| **Day**         | **Mass Times**             |
-|-----------------|----------------------------|
-| **Monday**      | 9:00am Mass                |
-| **Tuesday**     | No Mass (see St. Joseph’s) |
-| **Wednesday**   | 9:00am Mass                |
-| **Thursday**    | No Mass (see St. Joseph’s) |
-| **Friday**      | No Mass                    |
-|                 | Mass at [Saltcotes Cemetery Chapel](https://goo.gl/maps/McT83) at 7:00pm on the first Friday of every month. |
-| **Saturday**    | No morning Mass            |
-|                 | No Vigil Mass (see St. Joseph’s) |
-| **Sunday**      | 10:30am Mass (includes Children’s Liturgy) |
-
-**Confession**  
-Saturday 9:30am – 10:00am and anytime on request
-
-**Morning Prayer**  
-8:10am before morning Mass on Wednesday / Thursday.
-
-**Exposition**  
-Saturday 9:30am – 10:00am.
