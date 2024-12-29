@@ -6,15 +6,11 @@ cascade:
   omit_title: true
 ---
 
-## Welcome!
-
-Welcome! This website has been designed to help you find information about activities in the Catholic parish of **St Joseph’s** in Ansdell, Lytham St Annes. Each week, the [News](http://localhost:1313/news/) page is refreshed with parish news. The [Mass Times & Intentions](http://localhost:1313/mass-times/) page is also updated weekly with both Mass times (including any weekly changes) and which feasts and intentions are being celebrated each day of the coming week. You can also subscribe to the weekly bulletin on this [page](http://localhost:1313/bulletins/) where you can find the last five bulletins.
+Welcome! This website has been designed to help you find information about activities in the Catholic parish of St Joseph’s in Ansdell, Lytham St Annes. Each week, the [News](news) page is refreshed with parish news. The [Mass Times & Intentions](mass-times) page is also updated weekly with both Mass times (including any weekly changes) and which feasts and intentions are being celebrated each day of the coming week. You can also subscribe to the weekly bulletin on this [page](bulletins) where you can find the last five bulletins.
 
 You can see some wonderful images of our stunning Church below.
 
-### St Joseph’s Care
-
-If you, or someone you know, is in need, **St Joseph’s Care** has a helpline, and we have volunteers who can provide basic support such as shopping. The number is: **07840 112 265** (9am – 7pm daily). We thank the extra volunteers who have given their names and are prepared to provide help for those who need it in these difficult times. You can find out more about the St. Joseph’s Care initiative [here](https://st-josephsansdell.net/st-josephs-care/).
+**St Joseph’s Care**: If you, or someone you know, is in need, St Joseph’s Care has a helpline, and we have volunteers who can provide basic support such as shopping. The number is: **07840 112 265** (9am – 7pm daily). We thank the extra volunteers who have given their names and are prepared to provide help for those who need it in these difficult times. You can find out more about the St. Joseph’s Care initiative [here](st-josephs-care).
 
 We also have a [Facebook page](https://www.facebook.com/pages/St-Josephs-Roman-Catholic-Church-Ansdell/230000653837017).
 
