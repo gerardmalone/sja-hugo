@@ -1,4 +1,5 @@
 
+{{ $featured_image := partial "func/GetFeaturedImage.html" . }}
 {{ if $featured_image }}
   <footer class="bottom-0 w-100 pa3" role="contentinfo">
 {{ else }}
