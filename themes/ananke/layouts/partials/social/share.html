@@ -29,6 +29,10 @@
       {{ with $config.share.sharetext -}}
         {{- $label = printf "Share on %s" $setup.label -}}
       {{- end -}}
+      {{ if eq .share "false" | default "true" -}}
+        {{- continue -}}
+        {{/* @todo notification into CLI that a network is configured but not supported */}}
+      {{- end -}}
       {{- $options := (dict "context" page "setup" $setup) }}
       {{- $href := partial "func/social/getShareLink.html" $options -}}
       <a href="{{ $href }}"
