@@ -8,7 +8,7 @@ Every human being has a value and dignity, which we as Catholics recognise as co
 
 Safeguarding is about attitudes and activities, which promote the dignity, wellbeing, and safety of all those who participate in any activity facilitated by the Church.
 
-Church activities must be well planned so that avoidable risks are foreseen and minimized. Safeguarding is about responding when there are concerns that someone may not be safe or secure.
+Church activities must be well planned so that avoidable risks are foreseen and minimized. Safeguarding is about responding when there are concerns that someone may not be safe or secure. c
 
 ---
 
