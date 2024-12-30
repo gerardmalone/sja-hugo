@@ -7,6 +7,10 @@ theme = "ananke"
 [module]
 # optional: set hugoVersion, etc.
 
+[services]
+  [services.googleAnalytics]
+    id = 'G-C100D82L2K'
+
 
 [params]
 text_color = "mid-gray"
