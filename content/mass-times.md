@@ -40,7 +40,7 @@ Tuesday 10:30-11am at St. Joseph’s,
 Confessions also available by arrangement  
 with Fr. Peter. Tel. 737037
 
-## Normal Mass Times:
+## Normal Mass Times
 
 As of January 2014, St Joseph’s Ansdell and St Peter’s in Lytham became linked Parishes. As such **Mass times are shared between the two Churches**. You can find out more details about St Peter’s [here](https://www.stpeterslytham.co.uk/). Normal Mass times for both Churches are displayed below.
 
@@ -48,79 +48,65 @@ Individual Feasts and Intentions, along with any ad hoc Mass time changes, can b
 
 ### Times at St. Joseph’s
 
-<!-- Two-column container for St. Joseph's -->
-<div style="display: flex; flex-wrap: wrap; gap: 2rem;">
-
-  <!-- Left column: Days & Mass Times -->
-  <div style="flex: 1; min-width: 250px; line-height: 1.4;">
-    <strong>Monday</strong><br />
-    No Mass (see St. Peter’s)<br />
-    <strong>Tuesday</strong><br />
-    10.00am Mass<br />
-    <strong>Wednesday</strong><br />
-    No Mass (see St. Peter’s)<br />
-    <strong>Thursday</strong><br />
-    10:00am Mass<br />
-    <strong>Friday</strong><br />
-    No Mass<br />
-    <strong>Saturday</strong><br />
-    No Morning Mass<br />
-    6:00pm Vigil Mass<br />
-    <strong>Sunday</strong><br />
+{{< twocolumn
+  left="
+    **Monday**  
+    No Mass (see St. Peter’s)  
+    **Tuesday**  
+    10.00am Mass  
+    **Wednesday**  
+    No Mass (see St. Peter’s)  
+    **Thursday**  
+    10:00am Mass  
+    **Friday**  
+    No Mass  
+    **Saturday**  
+    No Morning Mass  
+    6:00pm Vigil Mass  
+    **Sunday**  
     9:15am Mass (includes Children’s Liturgy)
-  </div>
-
-  <!-- Right column: Confession & Devotions -->
-  <div style="flex: 1; min-width: 250px; line-height: 1.4;">
-    <strong>Confession</strong><br />
-    Tuesday 10.30am – 11.00am and anytime on request<br />
-    <strong>Holy Rosary</strong><br />
-    As Announced. See 
-    <a href="{{% ref "/news" %}}">News</a> 
-    page.<br />
-    <strong>Benediction</strong><br />
-    As Announced. See 
-    <a href="{{% ref "/news" %}}">News</a> 
-    page.<br />
-    <strong>Exposition</strong><br />
+  "
+  right="
+    **Confession**  
+    Tuesday 10.30am – 11.00am and anytime on request  
+    **Holy Rosary**  
+    As Announced. See [News](/news) page.  
+    **Benediction**  
+    As Announced. See [News](/news) page.  
+    **Exposition**  
     Tuesday 10.30am – 11.00am
-  </div>
-
-</div>
+  "
+>}}
 
 ### Times at St. Peter's
 
-<!-- Two-column container for St. Peter's -->
-<div style="display: flex; flex-wrap: wrap; gap: 2rem;">
-
-  <!-- Left column: Days & Mass Times -->
-  <div style="flex: 1; min-width: 250px; line-height: 1.4;">
-    <strong>Monday</strong><br />
-    9.00am Mass<br /><br />
-    <strong>Tuesday</strong><br />
-    No Mass (see St. Joseph’s)<br />
-    <strong>Wednesday</strong><br />
-    9.00am Mass<br /><br />
-    <strong>Thursday</strong><br />
-    No Mass (see St. Joseph’s)<br />
-    <strong>Friday</strong><br />
-    No Mass<br />
-    Mass at <a href="https://goo.gl/maps/McT83" target="_blank" rel="noopener noreferrer">Saltcotes cemetery Chapel</a> at 7:00pm on the first Friday of every month.<br />
-    <strong>Saturday</strong><br />
-    No morning Mass<br />
-    No Vigil Mass (see St. Joseph’s)<br />
-    <strong>Sunday</strong><br />
+{{< twocolumn
+  left="
+    **Monday**  
+    9.00am Mass  
+  
+    **Tuesday**  
+    No Mass (see St. Joseph’s)  
+    **Wednesday**  
+    9.00am Mass  
+  
+    **Thursday**  
+    No Mass (see St. Joseph’s)  
+    **Friday**  
+    No Mass  
+    Mass at [Saltcotes cemetery Chapel](https://goo.gl/maps/McT83) at 7:00pm on the first Friday of every month.  
+    **Saturday**  
+    No morning Mass  
+    No Vigil Mass (see St. Joseph’s)  
+    **Sunday**  
     10.30am Mass (includes Children’s Liturgy)
-  </div>
-
-  <!-- Right column: Confession & Devotions -->
-  <div style="flex: 1; min-width: 250px; line-height: 1.4;">
-    <strong>Confession</strong><br />
-    Saturday 9.30am – 10.00am and anytime on request<br />
-    <strong>Morning Prayer</strong><br />
-    8:10am before morning Mass on Wednesday / Thursday.<br />
-    <strong>Exposition</strong><br />
+  "
+  right="
+    **Confession**  
+    Saturday 9.30am – 10.00am and anytime on request  
+    **Morning Prayer**  
+    8:10am before morning Mass on Wednesday / Thursday.  
+    **Exposition**  
     Saturday 9.30am – 10.00am
-  </div>
-
-</div>
+  "
+>}}
