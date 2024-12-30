@@ -178,14 +178,32 @@ a:focus {
   }
 
   /* CSS for the mass time two column layout */
+/* styles.css */
+
+.two-column-container {
+  display: flex;
+  flex-wrap: wrap;
+  gap: 2rem;
+  margin-bottom: 2rem; /* Optional: Adds space below the columns */
+}
+
+.column {
+  flex: 1;
+  min-width: 250px;
+  line-height: 1.6;
+}
+
+/*.left-column {*/
+  /* Optional: Add specific styles for the left column */
+/*}*/
+
+/* .right-column { */
+  /* Optional: Add specific styles for the right column */
+/* } */
+
+/* Responsive Adjustments (Optional) */
+@media (max-width: 768px) {
   .two-column-container {
-    display: flex;
-    flex-wrap: wrap;
-    gap: 2rem;
+    flex-direction: column;
   }
-  
-  .column {
-    flex: 1;
-    min-width: 250px;
-    line-height: 1.4;
-  }
+}
