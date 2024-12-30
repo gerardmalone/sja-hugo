@@ -21,6 +21,7 @@ Whether you are moving into the parish, passing through, or just curious to know
 ---
 
 ## Church Photos
+
 {{< gallery1 "one" >}}
 
 {{< gallery2 "two" >}}
