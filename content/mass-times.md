@@ -84,12 +84,12 @@ Individual Feasts and Intentions, along with any ad hoc Mass time changes, can b
   left="
     **Monday**  
     9.00am Mass  
-  
+
     **Tuesday**  
     No Mass (see St. Joseph’s)  
     **Wednesday**  
     9.00am Mass  
-  
+      
     **Thursday**  
     No Mass (see St. Joseph’s)  
     **Friday**  
