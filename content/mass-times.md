@@ -1,6 +1,7 @@
 ---
 title: "Mass Times & Intentions"
 draft: false
+slug: "feasts-intentions"
 ---
 
 ## Feasts and Intentions this week
