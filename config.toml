@@ -37,7 +37,7 @@ custom_css = ["custom.css"]  # Register your custom CSS files here
 
   [[menu.main]]
     name = "Mass Times"
-    url = "/mass-times/"
+    url = "/feasts-intentions/"
     weight = 2
 
   [[menu.main]]

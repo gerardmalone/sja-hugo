@@ -6,7 +6,7 @@ cascade:
   omit_title: true
 ---
 
-Welcome! quick test This website has been designed to help you find information about activities in the Catholic parish of St Joseph’s in Ansdell, Lytham St Annes. Each week, the [News](news) page is refreshed with parish news. The [Mass Times & Intentions](mass-times) page is also updated weekly with both Mass times (including any weekly changes) and which feasts and intentions are being celebrated each day of the coming week. You can also subscribe to the weekly bulletin on this [page](bulletins) where you can find the last five bulletins.
+Welcome! quick test This website has been designed to help you find information about activities in the Catholic parish of St Joseph’s in Ansdell, Lytham St Annes. Each week, the [News](news) page is refreshed with parish news. The [Mass Times & Intentions](feasts-intentions) page is also updated weekly with both Mass times (including any weekly changes) and which feasts and intentions are being celebrated each day of the coming week. You can also subscribe to the weekly bulletin on this [page](bulletins) where you can find the last five bulletins.
 
 You can see some wonderful images of our stunning Church below.
 
