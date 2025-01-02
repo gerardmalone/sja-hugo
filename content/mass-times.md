@@ -6,34 +6,35 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week
 
-**Weekend: The Feast of the Holy Family**  
-**Saturday 28th**  
-6pm St. Joseph’s Mass The People of the Parishes  
-**Sunday 29th**  
-9:15am St. Joseph’s Mass Gwen and Bayne Spedding  
-10:30am St. Peter’s Mass John Genge
-
-**Monday 30th**  
-9am St. Peter’s Mass Joy Warwick followed by Exposition and Confessions till 9:55am
-
-**Tuesday 31st**  
-10am St. Joseph’s Mass Jean McLaughlin preceded by Exposition and Confessions till 9:55am
-
-**Wednesday 1st Jan**  
-10am St. Peter’s Mass John Nolan
-
-**Thursday 2nd**  
-10am St. Joseph’s Mass Tony Crean
-
 **Friday 3rd**  
-2pm St. Joseph’s Mass Elizabeth Whelan Cantoni
+2pm St. Joseph’s Mass Elizabeth Whelan Cantoni  
 
-**Weekend: The Feast of the Epiphany of Our Lord**  
+**Weekend: The Epiphany of the Lord**  
 **Saturday 4th**  
-6pm St. Joseph’s Mass The People of the Parishes  
+6pm St. Joseph’s Mass People of the Parishes  
 **Sunday 5th**  
 9:15am St. Joseph’s Mass Fred and Maureen McLeod  
-10:30am St. Peter’s Mass Thomas and Annie Ainsworth
+10:30am St. Peter’s Mass Thomas and Annie Ainsworth  
+
+**Monday 6th**  
+No Mass  
+7pm St. Peter’s Evening Prayer and Benediction  
+
+**Tuesday 7th**  
+No Mass  
+
+**Wednesday 8th**  
+9am St. Peter’s Mass Tom and Monica Hindley  
+
+**Thursday 9th**  
+10am St. Joseph’s Mass Margaret Bron  
+
+**Weekend: The Feast of the Baptism of The Lord**  
+**Saturday 11th**  
+6pm St. Joseph’s Mass People of the Parishes  
+**Sunday 12th**  
+9:15am St. Joseph’s Mass Richard Smith  
+10:30am St. Peter’s Mass For a dear Brother  
 
 **Sacrament of Reconciliation with Exposition**  
 Monday 9:30-10am at [St. Peter’s](https://www.stpeterslytham.co.uk/)  
