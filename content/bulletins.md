@@ -13,6 +13,9 @@ Please note that if you send information for the weekly bulletin via e-mail ([sj
 
 All bulletin queries should be directed to **Fr. Peter**. If there is a limited amount of space, notices may have to be abbreviated. Wherever possible a notice will be published in full. Notices can only be included up to a maximum of **3 weeks**.
 
+**The Baptism of the Lord**  
+[12th January 2025](/bulletins/Bulletin120125.pdf)  
+
 **The Epiphany of the Lord**  
 [5th January 2025](/bulletins/Bulletin050125.pdf)  
 
@@ -24,15 +27,3 @@ All bulletin queries should be directed to **Fr. Peter**. If there is a limited 
 
 **Third Sunday of Advent**  
 [15th December 2024](/bulletins/Bulletin151224.pdf)
-
-**Second Sunday of Advent**  
-[8th December 2024](/bulletins/Bulletin081224.pdf)
-
-**First Sunday of Advent**  
-[1st December 2024](/bulletins/Bulletin011224.pdf)
-
-**Thirty-third Sunday in Ordinary Time**  
-[17th November 2024](/bulletins/Bulletin171124.pdf)
-
-**Thirty-second Sunday in Ordinary Time**  
-[10th November 2024](/bulletins/Bulletin101124.pdf)
