@@ -2,25 +2,28 @@
 title: "News"
 draft: false
 ---
-## 19th January 2025
+## 26th January 2025
 
 **Message from Father Peter:**  
-'Do whatever he tells you' are the words of Mary to the Servants at the Wedding in Cana in this Sunday's Gospel. There are so many beautiful prayers in which we invoke the prayer and support of Mary. As England is traditionally known as the 'dowry of Mary' we are privileged to pray the 'Hail Mary' at every Mass at the end of the Bidding Prayers, and both of our Churches now pray 'The Angelus' before our weekday Masses. But I thought I should add to our Marian Prayers, by just focusing on the 'Hail, Holy Queen' or the 'Salve Regina' as it is known by its Latin title. This prayer is frequently used in the recitation of the Holy Rosary, as well as being one of the four Marian Anthems which is traditional said at the end of Night Prayer. The Prayer was composed and became popular in monasteries (and, intriguingly, among sailors) in the twelfth and thirteenth centuries. The prayer asks us to look at the world through the eyes of Mary, particularly noting the sorrows we experience as part of fallen humanity – remembering the sorrows Mary herself experienced at the death of her Son, as foretold by the prophet Simeon at the Presentation of the Lord on his eighth day. But the prayer is joyful and hopeful about how Mary can show us in her Son, Jesus, the answer to all our prayers – as Mary did throughout her life from the moment of His conception. Perhaps we could follow the tradition of the Church and make this prayer part of our own nightly routine. *Hail, Holy Queen, Mother of Mercy, our life, our sweetness and our hope! To thee do we cry, poor banished children of Eve. To thee do we send up our sighs, mourning and weeping in this valley of tears. Turn, then, O most gracious Advocate, thine eyes of mercy toward us, and after this, our exile, show unto us the blessed fruit of thy womb, Jesus. O clement, O loving, O sweet Virgin Mary. Pray for us, O holy Mother of God. That we may be made worthy of the promises of Christ. Incidentally, talking of nightly routines, A man is arrested late at night for drinking coffee... He was charged for resisting a rest. I'll get my coat. And my latte. Decaff.*  
-
+Last week I turned fifty-six years old (yes, I know it is hard to be believe but I am that young/old (delete as you feel is appropriate)). My usual 'Bingo Call' for the number 56 is 'The Hungarian uprising of Budapest', which itself is a personal reference to the musical 'Chess' which has a chorus of '1956 Budapest is Rising' (Don't ask about the plot, it's too convoluted to explain here). Anyway, I've been thinking about the Biblical implication of the number 56. The 56th book of the Bible (discounting the Deutero-canonical books) is St. Paul's Letter to Titus, a friend of Paul who had travelled with him and Barnabus to Jerusalem, and whom Paul left in charge of the community in Crete, and wrote to him about the duties of Priests and Bishops. In the year 56AD St. Paul was residing with the community in Ephesus, until he was drummed out of the city the following year. The year after that, AD58 Paul himself celebrated his 56th Birthday, a year which included him raising a man from the dead who had fallen whilst drifting off during one of Paul's all-night sermons (and you think my sermons are long). The word 'Honey' is found 56 times in the Bible. The beautiful Psalm 56 was written by King David before he was anointed King of Israel. The Psalm is a hymn of Praise thanking God for the support God has given David in his travels, and who, even when he is attacked by people on all sides, prays 'I will not be afraid, for what can man to do me? In the Lord I have put my trust', which isn't a bad thing to pray on your fifty-sixth birthday or any birthday come to that. Incidentally, I've decided that age is not going to get me down – it's far too difficult to get up again… I'll get my coat. And my zimmer frame…  
+  
 **Confirmation 2025:**  
-Our Confirmation journey has begun for our twenty-five candidates. This weekened they will make their Declaration of Commitment. The second session takes place in SJ's hall course this Monday 20th January for those who have registered in SJ's Hall at 6pm. Please pray for all our candidates as they make this important step in their journey of faith, as well as the indefatigable team of Parish catechists.  
+Bishop Paul will be coming to confer the Sacrament of Confirmation on Monday 10th February. The course continue this Monday 27th January for those who have registered in SJ's Hall at 6pm. Please pray for all our candidates as they make this important step in their journey of faith, as well as the indefatigable team of Parish catechists.  
+  
+**Lancaster Diocese Centenary Lours Pilgrimage:**  
+'With Mary, Pilgrims of Hope.' 23rd – 30th July. Details and booking forms on the notice boards at the back of Church or at: [www.joewalshtours.co.uk](https://www.joewalshtours.co.uk).  
 
-**Parish Hall:**  
-The Parish Hall is now back in action! Thanks to Jim for his swift work in sorting everything out.  
-
-**SJSP Ukulele Orchestra:**  
-SJSP Ukulele Orchestra continue their fun learning every Monday at SP's hall at 7pm, to which everyone, newcomers and old hands, are all most welcome.  
-
-**Prayer for Christian Unity:**  
-O God, the Father of our Lord Jesus Christ, our only Saviour, the Prince of Peace: Give us grace seriously to lay to heart the great dangers we are in by our unhappy divisions. Take away all hatred and prejudice, and whatsoever else may hinder us from godly union and concord: that, as there is but one Body, and one Spirit, and one hope of our calling, one Lord, one faith, one baptism, one God and Father of us all; so we may henceforth be all of one heart, and of one soul, united in one holy bond of truth and peace, of faith and charity, and with one mind and one mouth glorify thee; through Jesus Christ our Lord. Amen.  
-
+**Diocesan Pilgrimage to Lindisfarne 21-23 May 2025 with Bishop Paul:**  
+Accommodation at Ushaw College with visits to Lindisfarne, Bamburgh and Durham Cathedral Full board and lodging: £310 for shared / £340 for single If interested, please contact us via email: [info@christ-the-good-shepherd.co.uk](mailto:info@christ-the-good-shepherd.co.uk) for a booking form.  
+  
+**Trinity Hospice:**  
+Following the success of our first-ever joint fundraising appeal for Trinity Hospice and Brian House Children's Hospice in 2024, we plan to launch a similar Appeal in both Parishes, to run during the month of February 2025. This will feature a 'Just Giving' page and will be supplemented with Trinity Hospice bucket collections, at the end of masses in both parishes for two weekends 8/9 and 15/16 February. More information will be provided next week. If anyone would like to volunteer to help at the back of church with the Trinity collections, please contact (number in this weeks [bulletin](bulletins)).  
+  
+**Crib Offerings:**  
+Bishop Paul has asked that Collections this year be sent to help support the Catholic Christians in the Gaza Strip during this time of terrible conflict and suffering. Bishop Paul asks that we keep this collection open until the Feast of the Lord's Presentation, 2nd February. Many thanks for your generosity so far.  
+  
 **This Week's Liturgical Calendar:**  
-Monday 20th St. Fabian and St. Sebastian, Patron Saint of Athletes; Tuesday 21st St. Agnes, Patron Saint of young girls; Wednesday 22nd St. Vincent of Saragossa, Patron Saint of Winemakers; Friday 24th St. Francis of Sales; Saturday 25th The Conversion of St. Paul.
+Tuesday 28th is the Feast of St. Thomas Aquinas, the great Theologian and Doctor of the Church who wrote so much to us to help explain the great Mystery of the Holy Eucharist. Friday 31st is the Feast of St. John Bosco, one of the Apostles ot young people, who met people in the own place and situations to explain the Scriptures to them.  
 
 **Year of Jubilee 2025:**  
 Spes Non Confundit 'Hope does not disappoint' (Rom 5:5). You can download a pdf of the document, in which the pope speaks about the themes of the Jubilee [here](https://www.vatican.va/content/francesco/en/bulls/documents/20240509_spes-non-confundit_bolla-giubileo2025.pdf)  
