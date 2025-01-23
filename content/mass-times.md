@@ -6,32 +6,31 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week
 
-**Weekend: Second Sunday in Ordinary Time Year 'C'**  
-**Saturday 18th**  
-6pm St. Joseph's Mass Michael Cookson  
-**Sunday 19th**  
-9:15am St. Joseph's Mass People of the Parishes  
-10:30am St. Peter's Mass Deceased of O'Dea Family  
-  
-**Monday 20th**  
-11am St. Peter's Requiem Mass for Margaret Anne Smith  
-  
-**Tuesday 21st**  
-10am St. Joseph's Mass Deceased of McCloud Family preceded by Exposition till 9:55am  
-12:15pm St. Peter's Funeral service for Paul Brady  
-  
-**Wednesday 22nd**  
-9am St. Peter's Mass Intentions of Audrey Nolan  
-  
-**Thursday 23rd**  
-10am St. Joseph's Mass Intentions of Christopher (Seriously ill)  
-  
-**Weekend:Third Sunday in Ordinary Time Year 'C'**  
+**Weekend: Third Sunday in Ordinary Time Year 'C'**  
 **Saturday 25th**  
 6pm St. Joseph's Mass Intentions of Pat Gleeson  
 **Sunday 26th**  
 9:15am St. Joseph's Mass People of the Parishes  
 10:30am St. Peter's Mass Deceased of Worsley Family  
+  
+**Monday 27th**  
+9am St. Peter's Mass Intentions of Joan Horton followed by Exposition and Confession till 9:55am  
+  
+**Tuesday 28th**  
+10am St. Joseph's Mass Rachel Evans preceded by Exposition and Confession till 9:55am  
+  
+**Wednesday 29th**  
+9am St. Peter's Mass Mary and Arthur Horton  
+  
+**Thursday 30th**  
+10am St. Joseph's Mass The Flint Family  
+  
+**Weekend: Fourth Sunday in Ordinary Time Year 'C'**
+**Saturday 1st**  
+6pm St. Joseph's Mass In Memory of Wilma Bealey
+**Sunday 2nd**  
+9:15am St. Joseph's Mass People of the Parishes  
+10:30am St. Peter's Mass Bill Illingworth  
 
 **Sacrament of Reconciliation with Exposition**  
 Monday 9:30-10am at [St. Peter's](https://www.stpeterslytham.co.uk/)  
