@@ -6,31 +6,35 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week
 
-**Weekend: Third Sunday in Ordinary Time Year 'C'**  
-**Saturday 25th**  
-6pm St. Joseph's Mass Intentions of Pat Gleeson  
-**Sunday 26th**  
+**Weekend: Fifth Sunday in Ordinary Time Year 'C'**  
+**Saturday 8th**  
+6pm St. Joseph's Mass Richard Sisson Birthday Remembrance  
+**Sunday 9th**  
 9:15am St. Joseph's Mass People of the Parishes  
-10:30am St. Peter's Mass Deceased of Worsley Family  
-  
-**Monday 27th**  
-9am St. Peter's Mass Intentions of Joan Horton followed by Exposition and Confession till 9:55am  
-  
-**Tuesday 28th**  
-10am St. Joseph's Mass Rachel Evans preceded by Exposition and Confession till 9:55am  
-  
-**Wednesday 29th**  
-9am St. Peter's Mass Mary and Arthur Horton  
-  
-**Thursday 30th**  
-10am St. Joseph's Mass The Flint Family  
-  
-**Weekend: Fourth Sunday in Ordinary Time Year 'C'**
-**Saturday 1st**  
-6pm St. Joseph's Mass In Memory of Wilma Bealey
-**Sunday 2nd**  
+10:30amSt. Peter's Mass May White  
+
+**Monday 10th**  
+9am St. Peter's Mass For a dear Husband followed by Exposition and Confession till 9:55am  
+6:30pm St. Joseph's Mass of Confirmation led by Bishop Paul Rose & Philip Scott  
+
+**Tuesday 11th**  
+10am St. Joseph's Mass Joan Green preceded by Exposition and Confession till 9:55am
+
+**Wednesday 12th**  
+9am St. Peter's Mass John Worsley
+
+**Thursday 13th**  
+12noon St. Joseph's Requiem Mass for Mary Isobel Menzies
+
+**Friday 14th**  
+9am St. Joseph's Requiem Mass for Houghton Gledhill
+
+**Weekend Sixth Sunday in Ordinary Time Year 'C'**  
+**Saturday 15th**  
+6pm St. Joseph's Mass Intentions of Terry Thompson and Family  
+**Sunday 16th**  
 9:15am St. Joseph's Mass People of the Parishes  
-10:30am St. Peter's Mass Bill Illingworth  
+10:30amSt. Peter's Mass Joan and David Holt  
 
 **Sacrament of Reconciliation with Exposition**  
 Monday 9:30-10am at [St. Peter's](https://www.stpeterslytham.co.uk/)  
