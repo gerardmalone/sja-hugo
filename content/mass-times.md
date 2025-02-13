@@ -6,35 +6,34 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week
 
-**Weekend: Fifth Sunday in Ordinary Time Year 'C'**  
-**Saturday 8th**  
-6pm St. Joseph's Mass Richard Sisson Birthday Remembrance  
-**Sunday 9th**  
-9:15am St. Joseph's Mass People of the Parishes  
-10:30amSt. Peter's Mass May White  
-
-**Monday 10th**  
-9am St. Peter's Mass For a dear Husband followed by Exposition and Confession till 9:55am  
-6:30pm St. Joseph's Mass of Confirmation led by Bishop Paul Rose & Philip Scott  
-
-**Tuesday 11th**  
-10am St. Joseph's Mass Joan Green preceded by Exposition and Confession till 9:55am
-
-**Wednesday 12th**  
-9am St. Peter's Mass John Worsley
-
-**Thursday 13th**  
-12noon St. Joseph's Requiem Mass for Mary Isobel Menzies
-
-**Friday 14th**  
-9am St. Joseph's Requiem Mass for Houghton Gledhill
-
 **Weekend Sixth Sunday in Ordinary Time Year 'C'**  
 **Saturday 15th**  
-6pm St. Joseph's Mass Intentions of Terry Thompson and Family  
+6pm St. Joseph's Mass Intentions of Terry Thompson and Family
 **Sunday 16th**  
+9:15am St. Joseph's Mass People of the Parishes 
+10:30am St. Peter's Mass Joan and David Holt
+
+**Monday 17th**  
+8am St. Peter's Mass Deceased of O'Dea Family followed by Exposition and Confession till 9:55am  
+  
+**Tuesday 18th**  
+No Mass
+
+**Wednesday 19th**  
+9.00am St Peter's Services of Word and Eucharist (No Mass)
+
+**Thursday 20th**  
+10.00am St. Joseph's Services of Word and Eucharist (No Mass)
+
+**Friday 21st**  
+No Mass
+
+**Weekend Seventh Sunday in Ordinary Time Year 'C'**  
+**Saturday 22nd**  
+6pm St. Joseph's Mass Florence Lillian Lutas  
+**Sunday 23rd**  
 9:15am St. Joseph's Mass People of the Parishes  
-10:30amSt. Peter's Mass Joan and David Holt  
+10:30am St. Peter's Mass Padraic Geraghty  
 
 **Sacrament of Reconciliation with Exposition**  
 Monday 9:30-10am at [St. Peter's](https://www.stpeterslytham.co.uk/)  
