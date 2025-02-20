@@ -13,6 +13,9 @@ Please note that if you send information for the weekly bulletin via e-mail ([sj
 
 All bulletin queries should be directed to **Fr. Peter**. If there is a limited amount of space, notices may have to be abbreviated. Wherever possible a notice will be published in full. Notices can only be included up to a maximum of **3 weeks**.
 
+**Seventh Sunday in Ordinary Time**  
+[23rd February 2025](/bulletins/Bulletin230225.pdf)  
+
 **Sixth Sunday in Ordinary Time**  
 [16th February 2025](/bulletins/Bulletin160225.pdf)  
 
@@ -24,12 +27,3 @@ All bulletin queries should be directed to **Fr. Peter**. If there is a limited 
 
 **Second Sunday in Ordinary Time**  
 [19th January 2025](/bulletins/Bulletin190125.pdf)  
-
-**The Baptism of the Lord**  
-[12th January 2025](/bulletins/Bulletin120125.pdf)  
-
-**The Epiphany of the Lord**  
-[5th January 2025](/bulletins/Bulletin050125.pdf)  
-
-**The Feast of the Holy Family**  
-[29th December 2024](/bulletins/Bulletin291224.pdf)
