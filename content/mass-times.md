@@ -6,35 +6,32 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week
 
-**Weekend Sixth Sunday in Ordinary Time Year 'C'**  
-**Saturday 15th**  
-6pm St. Joseph's Mass Intentions of Terry Thompson and Family
-**Sunday 16th**  
-9:15am St. Joseph's Mass People of the Parishes 
-10:30am St. Peter's Mass Joan and David Holt
-
-**Monday 17th**  
-8am St. Peter's Mass Deceased of O'Dea Family followed by Exposition and Confession till 9:55am  
-  
-**Tuesday 18th**  
-No Mass
-
-**Wednesday 19th**  
-9.00am St Peter's Services of Word and Eucharist (No Mass)
-
-**Thursday 20th**  
-10.00am St. Joseph's Services of Word and Eucharist (No Mass)
-
-**Friday 21st**  
-No Mass
-
 **Weekend Seventh Sunday in Ordinary Time Year 'C'**  
 **Saturday 22nd**  
-6pm St. Joseph's Mass Florence Lillian Lutas  
+6pm St. Joseph's Mass Florence Lillian Lutas
 **Sunday 23rd**  
 9:15am St. Joseph's Mass People of the Parishes  
 10:30am St. Peter's Mass Padraic Geraghty  
 
+**Monday 24th**  
+9am St. Peter's Mass Peter Davey followed by Exposition and Confession till 9:55am  
+
+**Tuesday 25th**  
+10am St. Joseph's Mass Margaret White preceded by Exposition and Confession till 9:55am  
+
+**Wednesday 26th**  
+9am St. Peter's Mass For a dear sister who is ill  
+
+**Thursday 27th**  
+10am St. Joseph's Mass Nowakowska Sisters  
+
+**Weekend Eighth Sunday in Ordinary Time Year 'C'**  
+**Saturday 1st**  
+6pm St. Joseph's Mass Intentions of Zavagno Family  
+**Sunday 2nd**  
+9:15am St. Joseph's Mass People of the Parishes  
+10:30am St. Peter's Mass Michael King
+  
 **Sacrament of Reconciliation with Exposition**  
 Monday 9:30-10am at [St. Peter's](https://www.stpeterslytham.co.uk/)  
 Tuesday 10:30-11am at St. Joseph's,  
