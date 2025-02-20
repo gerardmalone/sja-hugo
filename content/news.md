@@ -47,7 +47,7 @@ Watch this Space for More Details!
 
 **Diocesan Pilgrimages for the Holy Year:**  
 *Lindisfarne*: 21-23 May Email: [info@christ-the-good-shepherd.co.uk](mailto:info@christ-the-good-shepherd.co.uk)  
-*Lourdes*: 'With Mary, Pilgrims of Hope.' 23rd – 30th July. Details and booking forms at: [(https://joewalshtours.co.uk)](https://joewalshtours.co.uk) 
+*Lourdes*: 'With Mary, Pilgrims of Hope.' 23rd – 30th July. Details and booking forms at: [(https://joewalshtours.co.uk)](https://joewalshtours.co.uk)  
 *Walsingham*: 20-24 October 2025 £475.00-£550.00. For booking details contact Deacon Charlie Conner (number in this weeks [bulletin](/bulletins)) or email [charlie.conner@lrdc.org.uk](mailto:charlie.conner@lrdc.org.uk)  
 
 **Catholic Voice**  
