@@ -8,7 +8,7 @@ slug: "feasts-intentions"
 
 **Weekend Seventh Sunday in Ordinary Time Year 'C'**  
 **Saturday 22nd**  
-6pm St. Joseph's Mass Florence Lillian Lutas
+6pm St. Joseph's Mass Florence Lillian Lutas  
 **Sunday 23rd**  
 9:15am St. Joseph's Mass People of the Parishes  
 10:30am St. Peter's Mass Padraic Geraghty  
