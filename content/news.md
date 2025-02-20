@@ -2,7 +2,7 @@
 title: "News"
 draft: false
 ---
-## 16th February 2025
+## 23rd February 2025
 
 **Lent 2025 at St. Joseph's and St. Peter's:**  
 Lent begins on Ash Wednesday 5th March  
