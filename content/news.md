@@ -40,7 +40,6 @@ taking inspiration from people from the Cook Islands. This Friday 7th March at 2
 **Fr Steven (Malawi) and Fr Victor (Turkana, Kenya)**  
 have asked pass on their sincere thanks for the welcome, interest and generosity that they received when they visited both churches last weekend. They also can't thank us enough for the generosity of last year when enough funds were raised for the four fishing boats that have made such a difference to four families in Turkana. They wished that they could have spent more time with us but duty called elsewhere in London, Norway and Spain - but to name a few. They look forward to visiting again next year but in the meantime if anyone wants more information about their missionary work get in touch with Pete and Pat Benning through Fr Peter.
 
-
 **SJSP's mini Pilgrimage to Lourdes this Summer.**  
 Four nights 3rd-7th June, £650 sharing, £749 single. Forms available from FrP and Deacon D now if anyone would like to come along! Our Lady of Lourdes, Pray for us.
 
