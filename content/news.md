@@ -2,7 +2,7 @@
 title: "News"
 draft: false
 ---
-## 23rd February 2025
+## 2nd March 2025
 
 **Lent 2025 at St. Joseph's and St. Peter's:**  
 Lent begins on Ash Wednesday 5th March  
@@ -16,20 +16,29 @@ Mondays at SP's at 7pm and Tuesdays at SJ's at 7pm
 *Lenten Service of Reconciliation (with O*ur Lady Star of the Sea)  
 Thursday 10th April 7pm at SJ's  
 
-**Message from Father Peter:**  
-A couple of weeks ago the new Translation of the Scriptures, when speaking of the Call of the first Apostles, had the Lord tell Peter that from now on he would 'catch men', which isn't too different from the previous Jerusalem translation 'catch people' (although less politically correct), and is somewhat wayward from the more poetic 'fishers of men' which, somewhat confusingly (for me anyway), was still the translation used in the Gospel Acclamation verse, sung by me at all masses! So how are you finding the New Translation? I'm generally ok with it, though I find some parts of it somewhat ungainly, and it can be difficult to read when you are used to a certain old phrase or a different order of words. (Incidentally I find the way it is laid out in the Lectionaries, verse by verse, sometimes difficult, as you think you've finished a sentence, and it continues on the next line). There is also the complexity of using 'old' missals and mass books with the previous translation. To aid this, the response to the psalm is always at the top of the newsletter (on this side, see above). Translations are freely downloadable from the internet at 'Universalis' usually a few days before, and there is always the 'app' for phones and tablets from 'Universalis', which, although expensive for an app, is much cheaper than a missal. You may see people reading their phones during the Liturgy of the Word – don't condemn them: they're following the Scriptures! Whether at SJ's the books should be wholly replaced or alternatively at both Churches we go on to weekly missalettes is something to think about, so if you have any strong views, please speak to me! Any ways or means to help us love, learn, know and understand the Scriptures is a good thing. Incidentally, did you hear about the guy who believed only 12.5% of the Bible? He was an eighth-theist. I'll get my coat. And my lectionary…
-
-**This Week's Liturgical Calendar:**  
-24th The Anniversary of the Episcopal Ordination of Rt. Rev. Thomas Pearson, the first Bishop of Lancaster in 1925; 7th St. Gregory of Narek, a tenth century Armenian mystic, monk, poet and theologian, proclaimed a Doctor of the Church by Pope Francis in 2015.
-
 **First Reconciliation and Holy Communion:**  
-Application forms are available from Father Peter after Masses. Please pray for our candidates as they continue their journeys of faith.
+This course begins this Monday for those who have registered. Please pray for all our candidates.  
 
 **Shrove Tuesday Pancake Party**  
-Everyone welcome for a pancake and refreshments, a raffle and general chit chat and mingle! Tuesday 5th March in the Presbytery from 6:30pm!  Please grab a ticket for £2 so we know how much batter to whisk up!
+Everyone welcome for a pancake and refreshments, a raffle and general chit chat and mingle!  This Tuesday 4th March in the Presbytery from 6:30pm!  Please grab a ticket for £2 so we know how much batter to whisk up!  
+
+**Father Peter's Lenten Challenge 2025:**  
+Over Lent I would like to try and raise £3000 to build a house in Malawi for a family with children afflicted with albinism. To this end I will be pledging to make a number of crafted crosses. I'll explain more this weekend and watch this space. Envelopes are available for any donations at the back of Church. Many thanks in anticipation.  
 
 **Trinity Hospice:**  
-We are absolutely delighted to announce that our 2025 Appeal for Trinity Hospice currently stands at £2,331.84. We would like to say a sincere 'Thank You' to everyone who has made a donation. Our 'Just Giving' page will continue to accept any final donations until 28 February 2025. This page can be found at: [www.justgiving.com/page/dennis-duignan-10](https://www.justgiving.com/page/dennis-duignan-10). Taxpayers can boost the amount of their donation by choosing to add Gift Aid to the value of their donation. All monies raised go directly to Trinity Hospice. If you have any questions, please contact Dennis Duignan (number in this weeks [bulletin](/bulletins)).  
+Our 2025 Appeal for Trinity Hospice and Brian House Children's Hospice has raised an incredible £2,701.83 (including Gift Aid). We would like to say a sincere 'Thank You' to everyone who has donated to this deserving cause. We hope to arrange a formal cheque presentation at an upcoming parish social event.  
+
+**Refurbishment of Bell Ringing Ropes:**  
+In order to keep our wonderful bells ringing, in March we will be sending our ropes to Ellis' in Loughborough for refurbishment. If you would like to contribute towards the cost of this work, ropes are available for sponsorship, the cost being £50 per rope. A record of the dedication would be displayed within the ringing room. Please contact James and Stacey (07921 032390). Thank you.  
+
+**SJSP's mini Pilgrimage to Lourdes this Summer:**  
+Four nights 3rd-7th June, £650 sharing, £749 single. Forms available from FrP and Deacon D now if anyone would like to come along! Our Lady of Lourdes, Pray for us.  
+
+**World Day of Prayer Service**  
+taking inspiration from people from the Cook Islands. This Friday 7th March at 2pm at St. John's Church Lytham, followed by Refreshments. All Welcome.
+
+**Fr Steven (Malawi) and Fr Victor (Turkana, Kenya)**  
+have asked pass on their sincere thanks for the welcome, interest and generosity that they received when they visited both churches last weekend. They also can't thank us enough for the generosity of last year when enough funds were raised for the four fishing boats that have made such a difference to four families in Turkana. They wished that they could have spent more time with us but duty called elsewhere in London, Norway and Spain - but to name a few. They look forward to visiting again next year but in the meantime if anyone wants more information about their missionary work get in touch with Pete and Pat Benning through Fr Peter.
 
 **Refurbishment of Bell Ringing Ropes:**  
 In order to keep our wonderful bells ringing, in March we will be sending our ropes to Ellis' in Loughborough to have part of the rope replaced with polyhemp. The benefits of this include good resistance to abrasion and rotting. This work has recently become necessary due to some our ropes snapping and showing significant signs of wear. If you would like to contribute towards the cost of this work, ropes are available for sponsorship, the cost being £50 per rope. A record of the dedication would be displayed within the ringing room. Please contact James and Stacey (number in this weeks [bulletin](/bulletins)). Thank you.
