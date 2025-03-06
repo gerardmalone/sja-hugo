@@ -2,10 +2,9 @@
 title: "News"
 draft: false
 ---
-## 2nd March 2025
+## 9th March 2025
 
 **Lent 2025 at St. Joseph's and St. Peter's:**  
-Lent begins on Ash Wednesday 5th March  
 Masses 9am at SP's, 10am and 7pm at SJ's.  
 Ashes will be blessed and distributed at all Masses.  
 *Prayer before the Blessed Sacrament:*  
@@ -16,35 +15,31 @@ Mondays at SP's at 7pm and Tuesdays at SJ's at 7pm
 *Lenten Service of Reconciliation (with O*ur Lady Star of the Sea)  
 Thursday 10th April 7pm at SJ's  
 
+**Message from Fr. Peter:**  
+The word 'Lent' comes from an Old English word meaning 'lengthen' as through this dark time, the daylight hours will lengthen as the season of Spring, well, springs upon us. The word lent' for this season should then be a reminder that, whilst the next six weeks are a time of penitence in preparation for our great celebrations of the death and resurrection of Christ at Passiontide and Eastertide, they should be a joyful season, filled with hope, and disciplines of prayer, fasting and almsgiving, which draw us closer to Christ and to one another. Let's make the most of all the opportunities given to us in this Season – and make our joyful Eastertide even more joyful. This is the prayer of Thomas a Kempis that I read at the end my homily last week, which many people have asked for copies of: Grant me, O Lord, to know what I ought to know, To love what I ought to love, To praise what delights thee most, To value what is precious in thy sight, To hate what is offensive to thee. Do not suffer me to judge according to the sight of my eyes, Nor to pass sentence according to the hearing of the ears of ignorant men; But to discern with a true judgment between things visible and spiritual, And above all, always to inquire what is the good pleasure of thy will. Amen.
+
 **First Reconciliation and Holy Communion:**  
-This course begins this Monday for those who have registered. Please pray for all our candidates.  
+The second session for Candidates is this Monday in the Hall at 6pm. Please pray for our young people as they continue their journeys of faith.
 
-**Shrove Tuesday Pancake Party**  
-Everyone welcome for a pancake and refreshments, a raffle and general chit chat and mingle!  This Tuesday 4th March in the Presbytery from 6:30pm!  Please grab a ticket for £2 so we know how much batter to whisk up!  
+**Fr Peter's Lenten Challenge House Appeal:**  
+as announced last week I am trying to raise £3000 to build a house (with lockable doors and windows) for a family with children with Albinism, to help save them from cruelty from within their own society, and abduction and torture from others. My challenge is to make a crafted cross (or two) every day during Lent. All donations are gratefully accepted, and envelopes are available at the back of Church. Please check out the pictures from Fr. Stephen in Malawi, and many thanks in anticipation.
 
-**Father Peter's Lenten Challenge 2025:**  
-Over Lent I would like to try and raise £3000 to build a house in Malawi for a family with children afflicted with albinism. To this end I will be pledging to make a number of crafted crosses. I'll explain more this weekend and watch this space. Envelopes are available for any donations at the back of Church. Many thanks in anticipation.  
+**Red Mission Boxes:**  
+the Spring collection from the boxes will commence in March. Please would you bring your box into church and leave in the sacristy, make sure your name is on the box. If you need your box collecting or would like a box, please contact David Warwick (number in this weeks [bulletin](/bulletins)).
 
-**Trinity Hospice:**  
-Our 2025 Appeal for Trinity Hospice and Brian House Children's Hospice has raised an incredible £2,701.83 (including Gift Aid). We would like to say a sincere 'Thank You' to everyone who has donated to this deserving cause. We hope to arrange a formal cheque presentation at an upcoming parish social event.  
-
-**Refurbishment of Bell Ringing Ropes:**  
-In order to keep our wonderful bells ringing, in March we will be sending our ropes to Ellis' in Loughborough to have part of the rope replaced with polyhemp. The benefits of this include good resistance to abrasion and rotting. This work has recently become necessary due to some our ropes snapping and showing significant signs of wear. If you would like to contribute towards the cost of this work, ropes are available for sponsorship, the cost being £50 per rope. A record of the dedication would be displayed within the ringing room. Please contact James and Stacey (number in this weeks [bulletin](/bulletins)). Thank you.
-
-**SJSP's mini Pilgrimage to Lourdes this Summer:**  
-Four nights 3rd-7th June, £650 sharing, £749 single. Forms available from FrP and Deacon D now if anyone would like to come along! Our Lady of Lourdes, Pray for us.  
-
-**World Day of Prayer Service**  
-taking inspiration from people from the Cook Islands. This Friday 7th March at 2pm at St. John's Church Lytham, followed by Refreshments. All Welcome.
-
-**Fr Steven (Malawi) and Fr Victor (Turkana, Kenya)**  
-have asked pass on their sincere thanks for the welcome, interest and generosity that they received when they visited both churches last weekend. They also can't thank us enough for the generosity of last year when enough funds were raised for the four fishing boats that have made such a difference to four families in Turkana. They wished that they could have spent more time with us but duty called elsewhere in London, Norway and Spain - but to name a few. They look forward to visiting again next year but in the meantime if anyone wants more information about their missionary work get in touch with Pete and Pat Benning through Fr Peter.
+**CAFOD Lent Appeal:**  
+Family Fast Day collection Please donate to our Family Fast Day parish collection supporting communities experiencing the impacts of poverty. Use the CAFOD envelope in church, donate online at [cafod.org.uk/envelope](https://cafod.org.uk/envelope) or call us on 0303 303 3030. You can also text: CAFODLENT to 70085 to donate £10. A few parishioners along with Father Peter, will be taking part in the Big Lent Walk again this year. Walking 200km during the 40 days of Lent. If you are interested in joining us, please leave your contact details with Fr Peter, or if you cannot join in the walk, please donate whatever you can. Every £1 raised will help fight poverty globally. (Online details to come next week).
 
 **SJSP's mini Pilgrimage to Lourdes this Summer.**  
-Four nights 3rd-7th June, £650 sharing, £749 single. Forms available from FrP and Deacon D now if anyone would like to come along! Our Lady of Lourdes, Pray for us.
+Four nights 3rd-7th June, £650 sharing, £749 single. Forms available from FrP and Deacon D now if anyone would like to come along! If you have a form, please return deposits and forms to FrP or Deacon D. Our Lady of Lourdes, Pray for us.
+
+**Refurbishment of Bell Ringing Ropes:**  
+In order to keep our wonderful bells ringing, in March we will be sending our ropes to Ellis' in Loughborough for refurbishment. If you would like to contribute towards the cost of this work, ropes are available for sponsorship, the cost being £50 per rope. A record of the dedication would be displayed within the ringing room. Please contact James and Stacey (number in this weeks [bulletin](/bulletins)). Thank you.
+
+**Message from Fr. Philip Newbold.**  
+I am undertaking a Sponsored Walk of 10,000 paces for the 40 days of Lent. It is to support the work of "Aid to the Church in Need" & a project on the border area between Lebanon/Syria providing a hot meal each weekday for 1500 people including many refugees from Syria & displaced Lebanese, after their own country was bombed. If you would likw to sponsor me there are sheets in church, so include your address & postcode if you wish to Gift Aid your donation. Or donate [online here](https://www.justgiving.com/page/fr-philip-newbold-2)
 
 **Dates for the Diary, Upcoming SJSP Social Events:**  
-*Shrove Tuesday 4th March*: Pancakes in the Presbytery from 6:30pm
 *Wednesday 9th April*: Easter Bingo at St. Peter's
 *Sunday May 11th*: Afternoon Tea & Entertainment in SJ's Hall 3-5pm
 *Saturday June 28th*: Lytham Club Day
@@ -54,10 +49,10 @@ Watch this Space for More Details!
 **Diocesan Pilgrimages for the Holy Year:**  
 *Lindisfarne*: 21-23 May Email: [info@christ-the-good-shepherd.co.uk](mailto:info@christ-the-good-shepherd.co.uk)  
 *Lourdes*: 'With Mary, Pilgrims of Hope.' 23rd – 30th July. Details and booking forms at: [(https://joewalshtours.co.uk)](https://joewalshtours.co.uk)  
-*Walsingham*: 20-24 October 2025 £475.00-£550.00. For booking details contact Deacon Charlie Conner (number in this weeks [bulletin](/bulletins)) or email [charlie.conner@lrdc.org.uk](mailto:charlie.conner@lrdc.org.uk)  
+*Walsingham*: 20-24 October 2025 £475.00-£550.00. For booking details contact Deacon Charlie Conner - email [charlie.conner@lrdc.org.uk](mailto:charlie.conner@lrdc.org.uk)  
 
 **Catholic Voice**  
-latest copy can be found [here](https://issuu.com/cathcom/docs/lancaster_jan_2025).
+latest copy can be found [here](https://issuu.com/cathcom/docs/lancaster_voice_march_2025).
 
 **Email Address:**  
 The Diocese is changing all email addresses. The one email for our two parishes is now [sjsp.lsa@lrcd.org.uk](mailto:sjsp.lsa@lrcd.org.uk). Please do whatever you have to do to use this email from now on. Cheers.  

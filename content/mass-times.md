@@ -6,42 +6,37 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week
 
-**Weekend Eighth Sunday in Ordinary Time Year 'C'**  
-**Saturday 1st**  
-6pm St. Joseph's Mass Intentions of Zavagno Family  
-**Sunday 2nd**  
-9:15am St. Joseph's Mass People of the Parishes  
-10:30am St. Peter's Mass Michael King  
-
-**Monday 3rd**  
-9am St. Peter's Mass Joe Ainsworth followed by Exposition and Confession till 9:55am  
-1:45pm St. Joseph's Requiem Mass for Christopher Hill  
-7pm St. Peter's Evening Prayer and Benediction  
-
-**Tuesday 4th**  
-10am St. Joseph's Mass Jonny Hart preceded by Exposition and Confession till 9:55am  
-11am St. Peter's Requiem Mass for Sr. Mary Curtin  
-
-**Ash Wednesday: Ashes will be blessed and distributed at all masses.**  
-**Wednesday 5th**  
-9am St. Peter's Mass Deceased of Marsh and Hodson Families
-10am St. Joseph's Mass For a good outcome of surgery and scan
-4pm Stella Matutina Reception Mass for Sr. Maria Goretti
-7pm St. Joseph's Mass Mary Bristow
-
-**Thursday 6th**  
-10am St. Joseph's Mass Special intention (SPS)
-11am Stella Matutina Requiem Mass for Sr. Maria Goretti
-
-**Friday 7th**  
-2pm St. Joseph's Mass and Sacrament of the Sick William and Mary Murray
-
 **Weekend First Sunday in Lent Year 'C'**  
 **Saturday 8th**  
 6pm St. Joseph's Mass Helen and Joseph Thomas  
 **Sunday 9th**  
 9:15am St. Joseph's Mass People of the Parishes  
 10:30am St. Peter's Mass Golden Jubilee of Sr. Maria O'Connor  
+4-5pm St. Peter's Exposition of the Blessed Sacrament and Benediction  
+
+**Monday 10th**  
+9am St. Peter's Mass For a dear husband followed by Exposition and Confession till 9:55am  
+1:15pm Lytham Crematorium Service for Eileen Barclay  
+7pm St. Peter's Stations of the Cross and Benediction  
+
+**Tuesday 11th**  
+10am St. Joseph's Mass Houghton and Mary Gledhill preceded by Exposition and Confession till 9:55am  
+7pm St. Joseph's Stations of the Cross and Benediction  
+
+**Wednesday 12th**  
+9am St. Peter's Mass For Phillip  
+11:30am Lytham Crematorium Service for James Wilson Andrew  
+
+**Thursday 13th**  
+10am St. Joseph's Mass In thanks for a successful teaching promotion  
+1:15pm Lytham Crematorium Service for Hilda Hebden  
+
+**Weekend Second Sunday in Lent Year 'C'**  
+**Saturday 14th**  
+6pm St. Joseph's Mass Alan Partington  
+**Sunday 15th**  
+9:15am St. Joseph's Mass People of the Parishes  
+10:30am St. Peter's Mass Kathleen Leeming  
   
 **Sacrament of Reconciliation with Exposition**  
 Monday 9:30-10am at [St. Peter's](https://www.stpeterslytham.co.uk/)  
