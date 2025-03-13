@@ -16,7 +16,7 @@ All bulletin queries should be directed to **Fr. Peter**. If there is a limited 
 **Second Sunday in Lent**  
 [16th March 2025](/bulletins/Bulletin160325.pdf)  
 
-**First Sunday in Lent**
+**First Sunday in Lent**  
 [9th March 2025](/bulletins/Bulletin090325.pdf)  
 
 **Eight Sunday in Ordinary Time**  
