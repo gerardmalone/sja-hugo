@@ -6,37 +6,35 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week
 
-**Weekend First Sunday in Lent Year 'C'**  
-**Saturday 8th**  
-6pm St. Joseph's Mass Helen and Joseph Thomas  
-**Sunday 9th**  
-9:15am St. Joseph's Mass People of the Parishes  
-10:30am St. Peter's Mass Golden Jubilee of Sr. Maria O'Connor  
-4-5pm St. Peter's Exposition of the Blessed Sacrament and Benediction  
-
-**Monday 10th**  
-9am St. Peter's Mass For a dear husband followed by Exposition and Confession till 9:55am  
-1:15pm Lytham Crematorium Service for Eileen Barclay  
-7pm St. Peter's Stations of the Cross and Benediction  
-
-**Tuesday 11th**  
-10am St. Joseph's Mass Houghton and Mary Gledhill preceded by Exposition and Confession till 9:55am  
-7pm St. Joseph's Stations of the Cross and Benediction  
-
-**Wednesday 12th**  
-9am St. Peter's Mass For Phillip  
-11:30am Lytham Crematorium Service for James Wilson Andrew  
-
-**Thursday 13th**  
-10am St. Joseph's Mass In thanks for a successful teaching promotion  
-1:15pm Lytham Crematorium Service for Hilda Hebden  
-
-**Weekend Second Sunday in Lent Year 'C'**  
-**Saturday 14th**  
+**Weekend March Second Sunday in Lent Year 'C'**  
+**Saturday 15th**  
 6pm St. Joseph's Mass Alan Partington  
-**Sunday 15th**  
+**Sunday 16th**  
 9:15am St. Joseph's Mass People of the Parishes  
 10:30am St. Peter's Mass Kathleen Leeming  
+
+**Monday 17th**  
+9am St. Peter's Mass Helen and Victor Hayes followed by Exposition and Confession till 9:55am  
+1:15am Lytham Crematorium Service for Phil Damian Lewis  
+7pm St. Peter's Stations of the Cross and Benediction  
+
+**Tuesday 18th**  
+10am St. Joseph's Mass The Illingworth Families preceded by Exposition and Confession till 9:55am  
+7pm St. Joseph's Stations of the Cross and Benediction  
+
+**Wednesday 19th**  
+9am St. Peter's Mass Bill Illingworth  
+12:15pm Lytham Crematorium Service for Andrew Mark Walker  
+
+**Thursday 20th**  
+No Mass  
+
+**Weekend March Third Sunday in Lent Year 'C'**  
+**Saturday 22nd**  
+6pm St. Joseph's Mass Wing Commander Thomas Patrick Gibson  
+**Sunday 23rd**  
+9:15am St. Joseph's Mass People of the Parishes  
+10:30amSt. Peter's Mass Thomas and Annie Ainsworth  
   
 **Sacrament of Reconciliation with Exposition**  
 Monday 9:30-10am at [St. Peter's](https://www.stpeterslytham.co.uk/)  
