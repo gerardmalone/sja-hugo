@@ -2,7 +2,7 @@
 title: "News"
 draft: false
 ---
-## 16th March 2025
+## 23rd March 2025
 
 **Lent 2025 at St. Joseph's and St. Peter's:**  
 Masses 9am at SP's, 10am and 7pm at SJ's.  
