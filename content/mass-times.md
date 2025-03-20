@@ -6,35 +6,33 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week
 
-**Weekend March Second Sunday in Lent Year 'C'**  
-**Saturday 15th**  
-6pm St. Joseph's Mass Alan Partington  
-**Sunday 16th**  
-9:15am St. Joseph's Mass People of the Parishes  
-10:30am St. Peter's Mass Kathleen Leeming  
-
-**Monday 17th**  
-9am St. Peter's Mass Helen and Victor Hayes followed by Exposition and Confession till 9:55am  
-1:15am Lytham Crematorium Service for Phil Damian Lewis  
-7pm St. Peter's Stations of the Cross and Benediction  
-
-**Tuesday 18th**  
-10am St. Joseph's Mass The Illingworth Families preceded by Exposition and Confession till 9:55am  
-7pm St. Joseph's Stations of the Cross and Benediction  
-
-**Wednesday 19th**  
-9am St. Peter's Mass Bill Illingworth  
-12:15pm Lytham Crematorium Service for Andrew Mark Walker  
-
-**Thursday 20th**  
-No Mass  
-
-**Weekend March Third Sunday in Lent Year 'C'**  
+**Weekend Third Sunday in Lent Year 'C'**  
 **Saturday 22nd**  
 6pm St. Joseph's Mass Wing Commander Thomas Patrick Gibson  
 **Sunday 23rd**  
 9:15am St. Joseph's Mass People of the Parishes  
-10:30amSt. Peter's Mass Thomas and Annie Ainsworth  
+10:30am St. Peter's Mass Thomas and Annie Ainsworth  
+
+**Monday 24th**  
+9am St. Peter's Mass Mary Josephine Buckley followed by Exposition and Confession till 9:55am  
+7pm St. Peter's Stations of the Cross and Benediction  
+
+**Tuesday 25th**  
+10am St. Joseph's Mass Francis Spedding Hobbs preceded by Exposition and Confession till 9:55am  
+7pm St. Joseph's Stations of the Cross and Benediction  
+
+**Wednesday 26th**  
+9am St. Peter's Mass Nellie Holland  
+
+**Thursday 27th**  
+10am St. Joseph's Mass William and Mary Murray  
+
+**Weekend Fourth Sunday in Lent Year 'C'**  
+**Saturday 29th**  
+6pm St. Joseph's Mass Roseanne Scott  
+**Sunday 30th**  
+9:15am St. Joseph's Mass People of the Parishes  
+10:30am St. Peter's Mass Annie Gallagher  
   
 **Sacrament of Reconciliation with Exposition**  
 Monday 9:30-10am at [St. Peter's](https://www.stpeterslytham.co.uk/)  
