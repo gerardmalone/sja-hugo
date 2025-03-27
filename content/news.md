@@ -2,7 +2,7 @@
 title: "News"
 draft: false
 ---
-## 23rd March 2025
+## 30th March 2025
 
 **Lent 2025 at St. Joseph's and St. Peter's:**  
 Masses 9am at SP's, 10am and 7pm at SJ's.  
@@ -15,29 +15,51 @@ Mondays at SP's at 7pm and Tuesdays at SJ's at 7pm
 *Lenten Service of Reconciliation (with O*ur Lady Star of the Sea)  
 Thursday 10th April 7pm at SJ's  
 
-**Message from Pope Francis Reflecting from Hospital:**  
-The walls of hospitals have heard more honest prayers than churches... It is in these moments, when the hospital touches the wounds of people, that different worlds intersect according to a divine design. And in this communion of destinies, we realize that alone, we are nothing. The absolute truth of people, most of the time, only reveals itself in moments of pain or in the real threat of an irreversible loss. A hospital is a place where human beings remove their masks and show themselves as they truly are, in their purest essence. This life will pass quickly, so do not waste it fighting with people. You are waiting for too much: Christmas, Friday, next year, when you have money, when love arrives, when everything is perfect... Listen, perfection does not exist. A human being cannot attain it because we are simply not made to be fulfilled here. Here, we are given an opportunity to learn. So, make the most of this trial of life -and do it now. Respect yourself, respect others. Walk your own path, and let go of the path others have chosen for you. Respect: do not comment, do not judge, do not interfere. Love more, forgive more, embrace more, live more intensely! And leave the rest in the hands of the Creator.
+**Holy Week and The Easter Triduum at St. Joseph's and St. Peter's 2025**  
+***Palm Sunday 13th April***  
+St. Joseph's 6pm Saturday Vigil Mass, Sunday St. Joseph's 9:15am, St. Peters 10:30am  
+Palms will be blessed and distributed at all Masses  
+***Monday 14th April:***  
+St. Peter's 9am Mass, Confessions & Exposition till 10am Stations of the Cross at 7pm  
+***Tuesday 15th April:***  
+St. Joseph's 10am Mass, Confessions & Exposition 9:30-9:50am Stations of the Cross at 7pm  
+***Spy Wednesday 16th April:***  
+St. Peter's 9am Mass  
+***Maundy Thursday 17th April***  
+St. Joseph's 7pm Mass of the Lord's Supper led by our First Holy Communion Children from SJs and SPs with Washing of the Feet, Blessed Sacrament Procession and watching until 10pm with Night Prayer of the Church at 9:50pm  
+***Good Friday 18th April***  
+Stations of the Cross St. Peter's 10am  
+St. Joseph's 3pm and St. Peter's 3pm Solemn Celebration of the Passion of the Lord  
+Prayers around Calvary: Outside at St. Joseph's 6pm  
+***Holy Saturday 19th April***  
+St. Joseph's 7pm Easter Vigil and Service of Light  
+***Easter Sunday 20th April***  
+St. Joseph's 9:15am Easter Sunday Morning Mass  
+St. Peter's 10:30am Easter Sunday Morning Mass  
 
 **First Reconciliation and Holy Communion:**  
-The fourth session for Candidates is this Monday in Church at 6pm., at which they will make their First Reconciliation. Please pray for our children on this important step in their faith journeys.
+The sixth session for Candidates is this Monday in SJ's hall at 6pm. Please pray for our children on this important step in their faith journeys.  
 
 **Fr Peter's Lenten Challenge House Appeal:**  
-I am trying to raise £3000 to build a house (with lockable doors and windows) for a family with children with Albinism, to help save them from cruelty from within their own society, and abduction and torture from others. My challenge is to make a crafted cross – and I'm fully up to speed! Samples are at the back of Church now, and each of the children will receive one at the First Confession on Monday. All donations are gratefully accepted, and envelopes are available at the back of Church. Please check out the pictures from Fr. Stephen in Malawi, and many thanks in anticipation.  
+I am trying to raise £3000 to build a house! All donations are gratefully accepted, and envelopes are available at the back of Church. Please check out the pictures from Fr. Stephen in Malawi, and feel free to take a woollen cross! Many thanks in anticipation.  
+
+**Message from Fr. Philip Newbold.**  
+You have completed 22 of the 40 days of The Lent walk for Aid to the Church in Need project for Syrian and Lebanese displaced. Please consider sponsorship re. sponsor forms at the back of Church, and include your address if you wish to Gift Aid. All monies will be collected after easter. Thank you.  
+
+**Team Elston Youth Homelessness:**  
+On 4th April 2025 our friends Team Elston (Mike, Joe, Dan and Tom) will be sleeping on the cobbles of St Johns Square in Blackpool Town Centre to raise awareness about youth homelessness and much needed funds to support the small local charity Streetlife. They run the only emergency night shelter in Blackpool for young people aged 16-25 who may find themselves with nowhere safe to sleep. We would appreciate any support you can offer, either by cash donations at mass or via our [JustGiving](https://www.justgiving.com/page/team-elston25) page.  
+
+**Bingo Night:**  
+St. Peter's Wednesday 9th April at 6:30pm. It's Bingo Night! Adults £3, Children £1 for 6 games of bingo! BYO drinks & snacks Proceeds from the evening to go to our joint parishes Club Day funds.  
+
+**Saturday 26th April:**  
+Line Dancing Night! with food, a bar and the ukelele orchestra from 7:30pm at SJ's hall. Tickets are available from SJ's and SP's after Masses £6 for adults and £3 for children. All profits will be donated to Fr Peter's Lenten Challenge House Appeal.  
+
+**SJSP's mini Pilgrimage to Lourdes this Summer.**  
+Four nights 3rd-7th June, £650 sharing, £749 single. Forms available from FrP and Deacon D now if anyone would like to come along! If you have a form, please return deposits and forms to FrP or Deacon D. Our Lady of Lourdes, Pray for us.  
 
 **CAFOD Lent Appeal:**  
 Please place envelopes in the collection or basket sat the back of Church. Parishioners from both Parishes are counting their steps over Lent to raise money, and you can contribute online and see how we are doing [here](https://parishes.walk.cafod.org.uk/fundraising/st-joseph-and-st-peters-big-lent-walk). Thank you.
-
-**Bell Ropes:**  
-The ropes have been repaired, and the bells are able to ring again. We are very grateful for the generosity of our parish family as there was much support for this cause. Thank you. The Bell Ringers
-
-**Jubilee Icon:**  
-In order to celebrate and commemorate the Jubilee Year, CAFOD and the Bishops' Conference of England and Wales have commissioned an icon depicting Jesus announcing the year of the Lord's favour. The icon will visit Lancaster Diocese from 26th March to 1st April and will be on display in the Lady Chapel at St Peter's Cathedral in Lancaster. To help you to reflect on the meaning of this special year, CAFOD will be hosting a short prayer and reflection time with the icon in the Lady Chapel after the 12.15pm weekday Mass each day. All Welcome.  
-
-**Message from Fr. Philip Newbold.**  
-I am undertaking a Sponsored Walk of 10,000 paces for the 40 days of Lent. It is to support the work of "Aid to the Church in Need" & a project on the border area between Lebanon/Syria. The project provides a hot meal each weekday for 1500 people. Many are refugees from Syria & displaced Lebanese, after their own country was bombed. You may like to sponsor me? If so, there are sponsor sheets in church, so include your address & postcode if you wish to Gift Aid your donation.
-
-**SJSP's mini Pilgrimage to Lourdes this Summer.**  
-Four nights 3rd-7th June, £650 sharing, £749 single. Forms available from FrP and Deacon D now if anyone would like to come along! If you have a form, please return deposits and forms to FrP or Deacon D. Our Lady of Lourdes, Pray for us.
 
 **Dates for the Diary, Upcoming SJSP Social Events:**  
 *Wednesday 9th April*: Easter Bingo at St. Peter's

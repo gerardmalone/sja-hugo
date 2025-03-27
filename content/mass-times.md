@@ -4,35 +4,68 @@ draft: false
 slug: "feasts-intentions"
 ---
 
-## Feasts and Intentions this week
+## Holy Week and The Easter Triduum at St. Joseph's and St. Peter's 2025
 
-**Weekend Third Sunday in Lent Year 'C'**  
-**Saturday 22nd**  
-6pm St. Joseph's Mass Wing Commander Thomas Patrick Gibson  
-**Sunday 23rd**  
-9:15am St. Joseph's Mass People of the Parishes  
-10:30am St. Peter's Mass Thomas and Annie Ainsworth  
+**Palm Sunday 13th April**  
+St. Joseph's 6pm Saturday Vigil Mass, Sunday St. Joseph's 9:15am, St. Peters 10:30am  
+Palms will be blessed and distributed at all Masses  
 
-**Monday 24th**  
-9am St. Peter's Mass Mary Josephine Buckley followed by Exposition and Confession till 9:55am  
-7pm St. Peter's Stations of the Cross and Benediction  
+**Monday 14th April:**  
+St. Peter's 9am Mass, Confessions & Exposition till 10am Stations of the Cross at 7pm  
 
-**Tuesday 25th**  
-10am St. Joseph's Mass Francis Spedding Hobbs preceded by Exposition and Confession till 9:55am  
-7pm St. Joseph's Stations of the Cross and Benediction  
+**Tuesday 15th April:**  
+St. Joseph's 10am Mass, Confessions & Exposition 9:30-9:50am Stations of the Cross at 7pm  
 
-**Wednesday 26th**  
-9am St. Peter's Mass Nellie Holland  
+**Spy Wednesday 16th April:**  
+St. Peter's 9am Mass  
 
-**Thursday 27th**  
-10am St. Joseph's Mass William and Mary Murray  
+**Maundy Thursday 17th April**  
+St. Joseph's 7pm Mass of the Lord's Supper led by our First Holy Communion Children from SJs and SPs with Washing of the Feet, Blessed Sacrament Procession and watching until 10pm with Night Prayer of the Church at 9:50pm  
 
-**Weekend Fourth Sunday in Lent Year 'C'**  
+**Good Friday 18th April**  
+Stations of the Cross St. Peter's 10am  
+St. Joseph's 3pm and St. Peter's 3pm Solemn Celebration of the Passion of the Lord  
+Prayers around Calvary: Outside at St. Joseph's 6pm  
+
+**Holy Saturday 19th April**  
+St. Joseph's 7pm Easter Vigil and Service of Light  
+
+**Easter Sunday 20th April**  
+St. Joseph's 9:15am Easter Sunday Morning Mass  
+St. Peter's 10:30am Easter Sunday Morning Mass  
+
+## Feasts and Intentions this week  
+
+**Weekend Fourth Sunday in Lent Year 'C'**
 **Saturday 29th**  
 6pm St. Joseph's Mass Roseanne Scott  
 **Sunday 30th**  
 9:15am St. Joseph's Mass People of the Parishes  
 10:30am St. Peter's Mass Annie Gallagher  
+
+**Monday 31st**  
+9am St. Peter's Mass Frank Devine followed by Exposition and Confession till 9:55am  
+7pm St. Peter's Stations of the Cross and Benediction  
+
+**Tuesday 1st**  
+10am St. Joseph's Mass Tom Carter preceded by Exposition and Confession till 9:55am  
+12:15pm St. Peter's Funeral Service for Joan Woodcock  
+7pm St. Joseph's Stations of the Cross and Benediction  
+
+**Wednesday 2nd**  
+10am Saltcotes Cemetery Chapel Fr. Billy Bootle  
+
+**Thursday 3rd**  
+10am St. Joseph's Mass John Gornall  
+2pm Lytham Crematorium Service for Theresa Jeffs  
+Friday 2pm St. Joseph's Mass and Sacrament of the Sick Roseanne and Philip Scott  
+
+**Weekend Fifth Sunday in Lent Year 'C'**  
+**Saturday 5th**  
+6pm St. Joseph's Mass People of the Parishes  
+**Sunday 6th**  
+9:15am St. Joseph's Mass The Shaw Family  
+10:30am St. Peter's Mass For a dear sister who is very ill  
   
 **Sacrament of Reconciliation with Exposition**  
 Monday 9:30-10am at [St. Peter's](https://www.stpeterslytham.co.uk/)  

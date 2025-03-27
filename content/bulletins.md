@@ -13,6 +13,9 @@ Please note that if you send information for the weekly bulletin via e-mail ([sj
 
 All bulletin queries should be directed to **Fr. Peter**. If there is a limited amount of space, notices may have to be abbreviated. Wherever possible a notice will be published in full. Notices can only be included up to a maximum of **3 weeks**.
 
+**Fourth Sunday in Lent**  
+[30th March 2025](/bulletins/Bulletin300325.pdf)  
+
 **Third Sunday in Lent**  
 [23th March 2025](/bulletins/Bulletin230325.pdf)  
 
@@ -24,6 +27,3 @@ All bulletin queries should be directed to **Fr. Peter**. If there is a limited 
 
 **Eight Sunday in Ordinary Time**  
 [2nd March 2025](/bulletins/Bulletin020325.pdf)  
-
-**Seventh Sunday in Ordinary Time**  
-[23rd February 2025](/bulletins/Bulletin230225.pdf)  
