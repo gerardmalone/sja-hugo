@@ -2,7 +2,7 @@
 title: "News"
 draft: false
 ---
-## 30th March 2025
+## 6th April 2025
 
 **Lent 2025 at St. Joseph's and St. Peter's:**  
 Masses 9am at SP's, 10am and 7pm at SJ's.  
@@ -37,23 +37,26 @@ St. Joseph's 7pm Easter Vigil and Service of Light
 St. Joseph's 9:15am Easter Sunday Morning Mass  
 St. Peter's 10:30am Easter Sunday Morning Mass  
 
+**It's Bingo Night!**  
+St. Peter's Wednesday 9th April at 6:30pm. Adults £3, Children £1 for 6 games of bingo! BYO drinks & snacks Proceeds from the evening to go to our joint parishes Club Day funds.
+
+**Pastoral Letter:**  
+Today there is a Pastoral Letter from the Bishop's Conference regarding the Adults End of Life (Assisted Dying) Bill. Copies are available at the back of Church, as are postcards which can be filled in to petition Parliament.
+
 **First Reconciliation and Holy Communion:**  
-The sixth session for Candidates is this Monday in SJ's hall at 6pm. Please pray for our children on this important step in their faith journeys.  
+The next session for Candidates is this Monday in SJ's hall at 6pm. Please pray for our children on this important step in their faith journeys.
 
 **Fr Peter's Lenten Challenge House Appeal:**  
 I am trying to raise £3000 to build a house! All donations are gratefully accepted, and envelopes are available at the back of Church. Please check out the pictures from Fr. Stephen in Malawi, and feel free to take a woollen cross! Many thanks in anticipation.  
 
 **Message from Fr. Philip Newbold.**  
-You have completed 22 of the 40 days of The Lent walk for Aid to the Church in Need project for Syrian and Lebanese displaced. Please consider sponsorship re. sponsor forms at the back of Church, and include your address if you wish to Gift Aid. All monies will be collected after easter. Thank you.  
+Please consider sponsorship for my 10,000 Steps a day for Aid to the Church in Need, re. sponsor forms at the back of Church, and include your address if you wish to Gift Aid. All monies will be collected after Easter. Thank you.  
 
 **Team Elston Youth Homelessness:**  
 On 4th April 2025 our friends Team Elston (Mike, Joe, Dan and Tom) will be sleeping on the cobbles of St Johns Square in Blackpool Town Centre to raise awareness about youth homelessness and much needed funds to support the small local charity Streetlife. They run the only emergency night shelter in Blackpool for young people aged 16-25 who may find themselves with nowhere safe to sleep. We would appreciate any support you can offer, either by cash donations at mass or via our [JustGiving](https://www.justgiving.com/page/team-elston25) page.  
 
-**Bingo Night:**  
-St. Peter's Wednesday 9th April at 6:30pm. It's Bingo Night! Adults £3, Children £1 for 6 games of bingo! BYO drinks & snacks Proceeds from the evening to go to our joint parishes Club Day funds.  
-
-**Saturday 26th April:**  
-Line Dancing Night! with food, a bar and the ukelele orchestra from 7:30pm at SJ's hall. Tickets are available from SJ's and SP's after Masses £6 for adults and £3 for children. All profits will be donated to Fr Peter's Lenten Challenge House Appeal.  
+**Saturday 26th April: Line Dancing Night!**  
+with food, a bar and the ukelele orchestra from 7:30pm at SJ's hall. Tickets are available from SJ's and SP's after Masses £6 for adults and £3 for children. All profits will be donated to Fr Peter's Lenten Challenge House Appeal.
 
 **SJSP's mini Pilgrimage to Lourdes this Summer.**  
 Four nights 3rd-7th June, £650 sharing, £749 single. Forms available from FrP and Deacon D now if anyone would like to come along! If you have a form, please return deposits and forms to FrP or Deacon D. Our Lady of Lourdes, Pray for us.  

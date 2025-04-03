@@ -36,36 +36,34 @@ St. Peter's 10:30am Easter Sunday Morning Mass
 
 ## Feasts and Intentions this week  
 
-**Weekend Fourth Sunday in Lent Year 'C'**
-**Saturday 29th**  
-6pm St. Joseph's Mass Roseanne Scott  
-**Sunday 30th**  
-9:15am St. Joseph's Mass People of the Parishes  
-10:30am St. Peter's Mass Annie Gallagher  
-
-**Monday 31st**  
-9am St. Peter's Mass Frank Devine followed by Exposition and Confession till 9:55am  
-7pm St. Peter's Stations of the Cross and Benediction  
-
-**Tuesday 1st**  
-10am St. Joseph's Mass Tom Carter preceded by Exposition and Confession till 9:55am  
-12:15pm St. Peter's Funeral Service for Joan Woodcock  
-7pm St. Joseph's Stations of the Cross and Benediction  
-
-**Wednesday 2nd**  
-10am Saltcotes Cemetery Chapel Fr. Billy Bootle  
-
-**Thursday 3rd**  
-10am St. Joseph's Mass John Gornall  
-2pm Lytham Crematorium Service for Theresa Jeffs  
-Friday 2pm St. Joseph's Mass and Sacrament of the Sick Roseanne and Philip Scott  
-
 **Weekend Fifth Sunday in Lent Year 'C'**  
 **Saturday 5th**  
 6pm St. Joseph's Mass People of the Parishes  
 **Sunday 6th**  
 9:15am St. Joseph's Mass The Shaw Family  
-10:30am St. Peter's Mass For a dear sister who is very ill  
+10:30am St. Peter's Mass For a dear sister who has died.  
+
+**Monday 7th**  
+9am St. Peter's Mass William Holland followed by Exposition and Confession till 9:55am  
+7pm St. Peter's Stations of the Cross and Benediction  
+
+**Tuesday 8th**  
+10am St. Joseph's Mass William and Mary Murray preceded by Exposition and Confession till 9:55am  
+7pm St. Joseph's Stations of the Cross and Benediction  
+
+**Wednesday 9th**  
+9am St. Peter's Mass Mary Alice Gallagher  
+
+**Thursday 10th**  
+10am St. Joseph's Mass For a dear husband  
+7pm St. Joseph's Service of Reconciliation with Individual Confessions  
+
+**Weekend Palm Sunday Year 'C'**  
+**Saturday 13th**  
+6pm St. Joseph's Mass People of the Parishes
+**Sunday 13th**  
+9:15am St. Joseph's Mass Deceased parents, Ken and Margaret Hammond  
+10:30am St. Peter's Mass Repose of the Soul of Bernadette Leach
   
 **Sacrament of Reconciliation with Exposition**  
 Monday 9:30-10am at [St. Peter's](https://www.stpeterslytham.co.uk/)  
