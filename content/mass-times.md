@@ -4,6 +4,44 @@ draft: false
 slug: "feasts-intentions"
 ---
 
+## Feasts and Intentions this week  
+
+**Weekend Palm Sunday Year 'C'**  
+**Saturday 12th**  
+6pm St. Joseph's Mass People of the Parishes
+**Sunday 13th**  
+9:15am St. Joseph's Mass Deceased parents Ken and Margaret Hammond 
+10:30am St. Peter's Mass Repose of the Soul of Bernadette Leach
+
+**Monday 14th**  
+9am St. Peter's Mass Mary Josephine Buckley followed by Exposition and Confession till 9:55am 
+7pm St. Peter's Stations of the Cross and Benediction
+
+**Tuesday 15th**  
+10am St. Joseph's Mass Mary Broaders and her family preceded by Exposition and Confession till 9:55am
+11am St. Joseph's Funeral Service for Mary Elizabeth Billington
+7pm St. Joseph's Stations of the Cross and Benediction
+
+**Wednesday 16th**  
+9am St. Peter's Marge Lavelle
+
+**The Easter Triduum:**  
+**Maundy Thursday 17th**  
+7pm St. Joseph's Mass of the Lord's Supper Deceased members of the O'Dea Family
+
+**Good Friday 18th**  
+10am St. Peter's Stations of the Cross
+3pm St Joseph's Solemn Celebration of the Passion of Our Lord
+3pm St. Peter's Solemn Celebration of the Passion of Our Lord
+6pm Outside St. Joseph's Prayer around the Cross of Calvary
+
+**Weekend Easter Sunday**  
+**Saturday 19th**  
+7pm St. Joseph's Service of Light and the Mass of The Easter Vigil Mary Josephine Buckley
+**Sunday 20th**  
+9:15am St. Joseph's Mass Mark and Dawn Ghee
+10:30am St. Peter's Mass People of the Parishes
+
 ## Holy Week and The Easter Triduum at St. Joseph's and St. Peter's 2025
 
 **Palm Sunday 13th April**  
@@ -33,37 +71,6 @@ St. Joseph's 7pm Easter Vigil and Service of Light
 **Easter Sunday 20th April**  
 St. Joseph's 9:15am Easter Sunday Morning Mass  
 St. Peter's 10:30am Easter Sunday Morning Mass  
-
-## Feasts and Intentions this week  
-
-**Weekend Fifth Sunday in Lent Year 'C'**  
-**Saturday 5th**  
-6pm St. Joseph's Mass People of the Parishes  
-**Sunday 6th**  
-9:15am St. Joseph's Mass The Shaw Family  
-10:30am St. Peter's Mass For a dear sister who has died.  
-
-**Monday 7th**  
-9am St. Peter's Mass William Holland followed by Exposition and Confession till 9:55am  
-7pm St. Peter's Stations of the Cross and Benediction  
-
-**Tuesday 8th**  
-10am St. Joseph's Mass William and Mary Murray preceded by Exposition and Confession till 9:55am  
-7pm St. Joseph's Stations of the Cross and Benediction  
-
-**Wednesday 9th**  
-9am St. Peter's Mass Mary Alice Gallagher  
-
-**Thursday 10th**  
-10am St. Joseph's Mass For a dear husband  
-7pm St. Joseph's Service of Reconciliation with Individual Confessions  
-
-**Weekend Palm Sunday Year 'C'**  
-**Saturday 13th**  
-6pm St. Joseph's Mass People of the Parishes
-**Sunday 13th**  
-9:15am St. Joseph's Mass Deceased parents, Ken and Margaret Hammond  
-10:30am St. Peter's Mass Repose of the Soul of Bernadette Leach
   
 **Sacrament of Reconciliation with Exposition**  
 Monday 9:30-10am at [St. Peter's](https://www.stpeterslytham.co.uk/)  
