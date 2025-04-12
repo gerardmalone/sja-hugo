@@ -10,11 +10,11 @@ slug: "feasts-intentions"
 **Saturday 12th**  
 6pm St. Joseph's Mass People of the Parishes
 **Sunday 13th**  
-9:15am St. Joseph's Mass Deceased parents Ken and Margaret Hammond 
+9:15am St. Joseph's Mass Deceased parents Ken and Margaret Hammond  
 10:30am St. Peter's Mass Repose of the Soul of Bernadette Leach
 
 **Monday 14th**  
-9am St. Peter's Mass Mary Josephine Buckley followed by Exposition and Confession till 9:55am 
+9am St. Peter's Mass Mary Josephine Buckley followed by Exposition and Confession till 9:55am  
 7pm St. Peter's Stations of the Cross and Benediction
 
 **Tuesday 15th**  
