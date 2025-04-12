@@ -8,7 +8,7 @@ slug: "feasts-intentions"
 
 **Weekend Palm Sunday Year 'C'**  
 **Saturday 12th**  
-6pm St. Joseph's Mass People of the Parishes
+6pm St. Joseph's Mass People of the Parishes  
 **Sunday 13th**  
 9:15am St. Joseph's Mass Deceased parents Ken and Margaret Hammond  
 10:30am St. Peter's Mass Repose of the Soul of Bernadette Leach
@@ -37,7 +37,7 @@ slug: "feasts-intentions"
 
 **Weekend Easter Sunday**  
 **Saturday 19th**  
-7pm St. Joseph's Service of Light and the Mass of The Easter Vigil Mary Josephine Buckley
+7pm St. Joseph's Service of Light and the Mass of The Easter Vigil Mary Josephine Buckley  
 **Sunday 20th**  
 9:15am St. Joseph's Mass Mark and Dawn Ghee
 10:30am St. Peter's Mass People of the Parishes
