@@ -6,29 +6,6 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week  
 
-**Weekend Palm Sunday Year 'C'**  
-**Saturday 12th**  
-6pm St. Joseph's Mass People of the Parishes  
-**Sunday 13th**  
-9:15am St. Joseph's Mass Deceased parents Ken and Margaret Hammond  
-10:30am St. Peter's Mass Repose of the Soul of Bernadette Leach
-
-**Monday 14th**  
-9am St. Peter's Mass Mary Josephine Buckley followed by Exposition and Confession till 9:55am  
-7pm St. Peter's Stations of the Cross and Benediction
-
-**Tuesday 15th**  
-10am St. Joseph's Mass Mary Broaders and her family preceded by Exposition and Confession till 9:55am
-11am St. Joseph's Funeral Service for Mary Elizabeth Billington
-7pm St. Joseph's Stations of the Cross and Benediction
-
-**Wednesday 16th**  
-9am St. Peter's Marge Lavelle
-
-**The Easter Triduum:**  
-**Maundy Thursday 17th**  
-7pm St. Joseph's Mass of the Lord's Supper Deceased members of the O'Dea Family
-
 **Good Friday 18th**  
 10am St. Peter's Stations of the Cross
 3pm St Joseph's Solemn Celebration of the Passion of Our Lord
@@ -39,8 +16,29 @@ slug: "feasts-intentions"
 **Saturday 19th**  
 7pm St. Joseph's Service of Light and the Mass of The Easter Vigil Mary Josephine Buckley  
 **Sunday 20th**  
-9:15am St. Joseph's Mass Mark and Dawn Ghee
-10:30am St. Peter's Mass People of the Parishes
+9:15am St. Joseph's Mass Mark and Dawn Ghee  
+10:30am St. Peter's Mass People of the Parishes  
+
+**Monday 21st**  
+9am St. Peter's Mass Successful Operation  
+
+**Tuesday 22nd**  
+No Mass today  
+
+**Wednesday 23rd**  
+9am St. Peter's Mass Joyce Hanniball  
+
+**Thursday 24th**  
+10am St. Joseph's Mass Intentions of Jayne and Tony Thornton  
+
+**Weekend April Second Sunday of Easter 'C'**  
+**Saturday 26th**  
+6pm St. Joseph's Mass Marcus (a successful operation)  
+**Sunday 27th**  
+9:15am St. Joseph's Mass People of the Parishes  
+10:30am St. Peter's Mass Anniversary of Eric and Agnes Walsh  
+
+No Sacrament of Reconciliation with Exposition this week.
 
 ## Holy Week and The Easter Triduum at St. Joseph's and St. Peter's 2025
 
