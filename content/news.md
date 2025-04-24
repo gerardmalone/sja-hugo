@@ -2,34 +2,42 @@
 title: "News"
 draft: false
 ---
-## 20th April 2025
+## 27th April 2025
 
-**Holy Week and Easter Mass Times**  
-Click [here](/feasts-intentions) for details of all services trhis week.  
+**Statement from the Catholic Diocese of Lancaster upon the death of our Holy Father Pope Francis.**  
+It is with great sadness that we learned this morning of the death of our Holy Father, Pope Francis, following a period of ill-health. Yesterday, on Easter Sunday, Pope Francis made a brief appearance at St Peter's Square to bless thousands of people gathered in Rome to celebrate the Resurrection of the Lord. May he now rest in the peace of the Risen Christ whose faithful servant he has been. We are deeply grateful for the life and service of Pope Francis. While we mourn his loss, we are thankful for his steadfast witness and legacy. His life of discipleship, and then leadership, within the Church saw him accept responsibility from the Lord as a Jesuit, a priest, a bishop, and finally as successor to St Peter. His firm resolve and challenging teaching on issues including care for creation, the sexual abuse of children, and insights into intimacy of human relationships, saw the Pope broaden opportunities for dialogue within the church, and with people and groups from outside of the Catholic Church. Masses for the repose of the Pope's soul will be offered across the churches of our Diocese in the coming days. We entrust Pope Francis to the Father of all mercies and pray for the happy repose of his soul. Please remember Pope Francis in your prayers. An announcement will follow in due course regarding a diocesan mass in the cathedral, to which ecumenical and civic guests will be invited. O God, for whom the just receive an unfailing reward, grant that your servant, Francis, our Pope, whom you made vicar of Peter and shepherd of your Church, may rejoice for ever in the vision of your glory, for he was a faithful steward here on earth of the mysteries of your forgiveness and grace. Though Christ our Lord.
 
-**After the Easter Vigil:**  
-After the Easter Vigil everyone is welcome into the presbytery for some sherry and chocolate. It is a tradition in Benedictine Monasteries that their monks are allowed five squares of chocolate after the Vigil to give them energy to sing Morning Prayer. So chocolate for all will be provided!
+***We will celebrate a Requiem Mass for Pope Francis on Tuesday evening at 7pm. All Welcome.***  
 
-**Message from Fr. Peter:**  
-Well, what a Lent. Only six weeks ago the season of prayer and penitence stretched before us and now it concludes with the most amazing joyful services of the whole liturgical Year. This Lent has seen two First Fridays which are always such special occasions, one of which involved a fasting lunch, children bringing a statue of Our Lady, and people being blessed as they spent a night in empathy with the homeless in Blackpool. We had a beautiful Reconciliation Service with our friends from Star of the Sea - and there have many opportunities for individual confession which it has been refreshing to see that people have taken up throughout the season – my absolution arm has been much exercised! Stations of the Cross has seen wonderful attendances at both our churches throughout Lent, and I had the privilege of spending a whole morning taking all our children in school through this great devotion. Mothers have prayed on a Wednesday evening. Our communion children have made their First Confession, and are almost ready for their reception of the Eucharist in May. And a group of adults have been presented to the Bishop and (depending on when you read this) are becoming/have become the latest members, not only of St. Joseph's and St. Peter's but of the whole Universal Church throughout the world – along with thousands of other born again faithful throughout the world. Along with prayer and fasting there has been much almsgiving, both privately, and the many causes drawn to our attention throughout Lent – I can now make a crocheted cross in my sleep! With such a wonderful Lent behind us, let us continue our joyfully fellowship into Easter – and perhaps because of everything we are doing, one day, into the Eternal Easter. Alleluia Alleluia!
+**Prayer of Entrustment to Divine Mercy:**  
+O Lord, our God. We place our trust in You, because you are mercy itself. We repent of our sins and turn to You for mercy. We trust You to provide for our every need, according to Your will. Help us to forgive others as You forgive us. We promise to be merciful by our deeds, words and prayers. Though we have fears because of human weakness, we rely on Your infinite goodness and mercy. We entrust to You the future of our planet, our Church, our nations, our families and all our needs. With loud cries we implore your mercy on us
+and on the whole world. Look upon us, created in your image and likeness. Form us in the Heart of Mary by the power of the Holy Spirit into the living images of mercy. May all come to know the depth of Your mercy and sing the praises of Your mercy forever. Amen!
 
-**Easter Sunday:**  
-Please pray with great joy and gladness for Joyce, Rachel, Alex, Lee, Jake and Richard who were received into Full Communion with the Church at the Easter Vigil and Emy who was baptised. Huge congratulations to them, and many blessings to them on this life changing moment in their spiritual lives.
-
-**A Huge Thank You:**  
-A Huge Thank You to everyone involved with the wonderful services we have celebrated over Lent and Easter: our friends and deacons, Michael and David, the altar servers and sacristy organisers, the readers and ministers and organizers; the choirs and instrumentalists; the flower people; the welcomers; the collectors; the children's and sacramental catechists, teachers and parents; the refreshment makers and social organisers; our Church Cleaners and those who prepared the Churches; and all those who keep the Parishes, the Churches, the House and grounds running; those who do support me in my ministry here; and everyone (including those I haven't mentioned!) who comes along throughout the year to ensure that the light of Christ is burning brightly at St. Joseph's and St. Peter's throughout the year. A very Happy Eastertide to you all!
+**First Week of the Month at SJSP's**  
+This Friday 2nd May: First Friday Mass & Anointing of the Sick at St. Joseph's at 2pm, followed by Refreshments in the Parish Hall.
 
 **Fr Peter's Lenten Challenge House Appeal:**  
-Many thanks for all the contributions, every single penny has been counted and greatly appreciated. I will announce the final total this weekend at all masses and write more on next week's newsletter.
+Many thanks for all the contributions, every single penny has been counted and greatly appreciated. I announced the total as £8126, but since then more funds have come in with people offering to make the total to £9000 meaning that we will have raised enough for THREE houses. That is truly amazing and more than I ever expected. I will keep you posted as to what is happening and our priest friends in Malawi will be sending updates. HUGE THANKS AND MANY BLESSINGS HUGE THANKS AND MANY BLESSINGS TO YOU ALL!
 
 **First Reconciliation and Holy Communion:**  
-The next session for Candidates is Monday 28th in SAINT PETER'S HALL at 6pm. Please pray for our children on this important step in their faith journeys.
+The next session for Candidates is Monday 28th in ST. PETER's HALL at 6pm. Please pray for our children on this important step in their faith journeys.
+
+**Continued Easter Thanks to everyone**  
+Continued Easter Thanks to everyone involved with the wonderful services we have celebrated over Lent and Easter: our friends and deacons, Michael and David, the altar servers and sacristy organisers, the readers and ministers and organizers; the choirs and instrumentalists; the flower people; the welcomers; the collectors; the children's and sacramental catechists, teachers and parents; the refreshment makers and social organisers; our Church Cleaners and those who prepared the Churches; and all those who keep the Parishes, the Churches, the House and grounds running; those who do support me in my ministry here; and everyone (including those I haven't mentioned!) who comes along throughout the year to ensure that the light of Christ is burning brightly at St. joseph's and St. Peter's throughout the year. A very Happy Eastertide to you all!
+
+**Fr. Philip**  
+Fr. Philip completed his 40 day Sponsored Walk of 10,000 steps plus on Saturday 19/04. Thank you for your prayerful & financial support. Please follow these directions for collection of money.  
+
+1. Place your sponsor money in a plain envelope & seal it. Please do NOT use parish gift aid or Mass Intention envelopes. They will not be passed to me.  
+2. Write on the envelope "Fr. Philip's Sponsor Money"  
+3. Write on the envelope your own name.  
+4. Write on the amount of money enclosed.  
+5. Your address & postcode must be included to claim Gift Aid. (Aid to the Church in Need Office will deal with claims)  
+6. Place your envelope in the collection bag/basket at Mass on the weekends 26/27 April or 3/4 May.  
+Thank you. Fr. Philip  
 
 **SPUC Pro-Life Chain:**  
 Saturday 26th April 11.00 am – 1.00 pm Please join us for a silent act of witness against assisted suicide/euthanasia. Meet on London Road, Preston –north of Ribble bridge. Stay for all or part of the time; bring a chair if required.
-
-**Fr. Philip's 40 day Sponsored Walk:**  
-Fr. Philip completed his 40 day Sponsored Walk of 10,000 steps plus on Saturday 19/04. Thank you for your prayerful & financial support. Please follow these directions for collection of money. 1. Place your sponsor money in a plain envelope & seal it. Please do NOT use parish gift aid or Mass Intention envelopes. They will not be passed to me. 2. Write on the envelope "Fr. Philip's Sponsor Money" 3. Write on the envelope your own name.4 Write on the amount of money enclosed. 5. Your address & postcode must be included to claim Gift Aid. (Aid to the Church in Need Office will deal with claims) 6. Place your envelope in the collection bag/basket at Mass on the weekends 26/27 April or 3/4 May. Thank you. Fr. Philip
 
 **Saturday 26th April: Line Dancing Night!**  
 with food, a bar and the ukelele orchestra from 7:30pm at SJ's hall. Tickets are available from SJ's and SP's after Masses £6 for adults and £3 for children. All profits will be donated to Fr Peter's Lenten Challenge House Appeal.
@@ -37,20 +45,8 @@ with food, a bar and the ukelele orchestra from 7:30pm at SJ's hall. Tickets are
 **Catholic Voice**  
 latest copy can be found [here](https://issuu.com/cathcom/docs/lancaster_voice_april_2025).
 
-**Fr Peter's Lenten Challenge House Appeal:**  
-Last few days of making crosses to raise £3000 to build a house! I can now do them in my sleep! All donations are gratefully accepted, and envelopes are available at the back of Church. Please check out the pictures from Fr. Stephen in Malawi, and feel free to take a woollen cross! Many thanks in anticipation. I'll announce the final total over Easter Weekend.
-
-**A Gift Aid tax reclaim will be submitted shortly to HMRC.**  
-Please notify me if you are no longer a taxpayer or you paid insufficient tax during 2024/25 to cover the tax that will be reclaimed on all your donations given under Gift Aid to all charities during the tax year.At the present standard rate of tax of 20%, 25p is reclaimed for every £1 donated. If you have moved house during the tax year please ensure that you have notified your parish. Sue Halton.
-
-**Saturday 26th April: Line Dancing Night!**  
-with food, a bar and the ukelele orchestra from 7:30pm at SJ's hall. Tickets are available from SJ's and SP's after Masses £6 for adults and £3 for children. All profits will be donated to Fr Peter's Lenten Challenge House Appeal.
-
 **SJSP's mini Pilgrimage to Lourdes this Summer.**  
 Four nights 3rd-7th June, £650 sharing, £749 single. Forms available from FrP and Deacon D now if anyone would like to come along! If you have a form, please return deposits and forms to FrP or Deacon D. Our Lady of Lourdes, Pray for us.  
-
-**CAFOD Lent Appeal:**  
-Please place envelopes in the collection or basket sat the back of Church. Parishioners from both Parishes are counting their steps over Lent to raise money, and you can contribute online and see how we are doing [here](https://parishes.walk.cafod.org.uk/fundraising/st-joseph-and-st-peters-big-lent-walk). Thank you.
 
 **Dates for the Diary, Upcoming SJSP Social Events:**  
 *Sunday May 11th*: Afternoon Tea & Entertainment in SJ's Hall 3-5pm

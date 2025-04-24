@@ -6,69 +6,37 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week  
 
-**Good Friday 18th**  
-10am St. Peter's Stations of the Cross
-3pm St Joseph's Solemn Celebration of the Passion of Our Lord
-3pm St. Peter's Solemn Celebration of the Passion of Our Lord
-6pm Outside St. Joseph's Prayer around the Cross of Calvary
-
-**Weekend Easter Sunday**  
-**Saturday 19th**  
-7pm St. Joseph's Service of Light and the Mass of The Easter Vigil Mary Josephine Buckley  
-**Sunday 20th**  
-9:15am St. Joseph's Mass Mark and Dawn Ghee  
-10:30am St. Peter's Mass People of the Parishes  
-
-**Monday 21st**  
-9am St. Peter's Mass Successful Operation  
-
-**Tuesday 22nd**  
-No Mass today  
-
-**Wednesday 23rd**  
-9am St. Peter's Mass Joyce Hanniball  
-
-**Thursday 24th**  
-10am St. Joseph's Mass Intentions of Jayne and Tony Thornton  
-
-**Weekend April Second Sunday of Easter 'C'**  
+**Weekend Second Sunday of Easter Year 'C'**  
 **Saturday 26th**  
-6pm St. Joseph's Mass Marcus (a successful operation)  
+6pm St. Joseph's Mass Marcus A Successful Operation  
 **Sunday 27th**  
 9:15am St. Joseph's Mass People of the Parishes  
 10:30am St. Peter's Mass Anniversary of Eric and Agnes Walsh  
 
-No Sacrament of Reconciliation with Exposition this week.
+**Monday 28th**  
+9am St. Peter's Mass Joy Warwick followed by Exposition and Confession till 9:55am  
+11am St. Joseph's Funeral Service for Moira Roberts
 
-## Holy Week and The Easter Triduum at St. Joseph's and St. Peter's 2025
+**Tuesday 29th**  
+*No 10am Mass This Morning at St. Joseph's*
+12noon St. Bernadette's Bispham Requiem mass for Maria Poyner
+***7pm St. Joseph's Requiem Mass for Pope Francis***
 
-**Palm Sunday 13th April**  
-St. Joseph's 6pm Saturday Vigil Mass, Sunday St. Joseph's 9:15am, St. Peters 10:30am  
-Palms will be blessed and distributed at all Masses  
+**Wednesday 30th**  
+9am St. Peter's Mass Canon Peter Draper Golden Jubilee  
 
-**Monday 14th April:**  
-St. Peter's 9am Mass, Confessions & Exposition till 10am Stations of the Cross at 7pm  
+**Thursday 1st**  
+10am St. Joseph's Mass In Memory of Anita Walsh  
 
-**Tuesday 15th April:**  
-St. Joseph's 10am Mass, Confessions & Exposition 9:30-9:50am Stations of the Cross at 7pm  
+**Friday 2nd**  
+2pm St. Joseph's Mass and Anointing of the Sick Intentions of Fr. Peter
 
-**Spy Wednesday 16th April:**  
-St. Peter's 9am Mass  
-
-**Maundy Thursday 17th April**  
-St. Joseph's 7pm Mass of the Lord's Supper led by our First Holy Communion Children from SJs and SPs with Washing of the Feet, Blessed Sacrament Procession and watching until 10pm with Night Prayer of the Church at 9:50pm  
-
-**Good Friday 18th April**  
-Stations of the Cross St. Peter's 10am  
-St. Joseph's 3pm and St. Peter's 3pm Solemn Celebration of the Passion of the Lord  
-Prayers around Calvary: Outside at St. Joseph's 6pm  
-
-**Holy Saturday 19th April**  
-St. Joseph's 7pm Easter Vigil and Service of Light  
-
-**Easter Sunday 20th April**  
-St. Joseph's 9:15am Easter Sunday Morning Mass  
-St. Peter's 10:30am Easter Sunday Morning Mass  
+**Weekend Second Sunday of Easter**  
+**Saturday 3rd**  
+6pm St. Joseph's Mass My Beloved Wife Barbara
+**Sunday 4th**  
+9:15am St. Joseph's Mass People of the Parishes  
+10:30am St. Peter's Mass Sheila Dewhurst
   
 **Sacrament of Reconciliation with Exposition**  
 Monday 9:30-10am at [St. Peter's](https://www.stpeterslytham.co.uk/)  
