@@ -18,9 +18,9 @@ slug: "feasts-intentions"
 11am St. Joseph's Funeral Service for Moira Roberts
 
 **Tuesday 29th**  
-*No 10am Mass This Morning at St. Joseph's*
-12noon St. Bernadette's Bispham Requiem mass for Maria Poyner
-***7pm St. Joseph's Requiem Mass for Pope Francis***
+*No 10am Mass This Morning at St. Joseph's*  
+12noon St. Bernadette's Bispham Requiem mass for Maria Poyner  
+***7pm St. Joseph's Requiem Mass for Pope Francis***  
 
 **Wednesday 30th**  
 9am St. Peter's Mass Canon Peter Draper Golden Jubilee  
