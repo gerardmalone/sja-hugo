@@ -2,45 +2,26 @@
 title: "News"
 draft: false
 ---
-## 27th April 2025
+## 4th May 2025
 
-**Statement from the Catholic Diocese of Lancaster upon the death of our Holy Father Pope Francis.**  
-It is with great sadness that we learned this morning of the death of our Holy Father, Pope Francis, following a period of ill-health. Yesterday, on Easter Sunday, Pope Francis made a brief appearance at St Peter's Square to bless thousands of people gathered in Rome to celebrate the Resurrection of the Lord. May he now rest in the peace of the Risen Christ whose faithful servant he has been. We are deeply grateful for the life and service of Pope Francis. While we mourn his loss, we are thankful for his steadfast witness and legacy. His life of discipleship, and then leadership, within the Church saw him accept responsibility from the Lord as a Jesuit, a priest, a bishop, and finally as successor to St Peter. His firm resolve and challenging teaching on issues including care for creation, the sexual abuse of children, and insights into intimacy of human relationships, saw the Pope broaden opportunities for dialogue within the church, and with people and groups from outside of the Catholic Church. Masses for the repose of the Pope's soul will be offered across the churches of our Diocese in the coming days. We entrust Pope Francis to the Father of all mercies and pray for the happy repose of his soul. Please remember Pope Francis in your prayers. An announcement will follow in due course regarding a diocesan mass in the cathedral, to which ecumenical and civic guests will be invited. O God, for whom the just receive an unfailing reward, grant that your servant, Francis, our Pope, whom you made vicar of Peter and shepherd of your Church, may rejoice for ever in the vision of your glory, for he was a faithful steward here on earth of the mysteries of your forgiveness and grace. Though Christ our Lord.
-
-***We will celebrate a Requiem Mass for Pope Francis on Tuesday evening at 7pm. All Welcome.***  
-
-**Prayer of Entrustment to Divine Mercy:**  
-O Lord, our God. We place our trust in You, because you are mercy itself. We repent of our sins and turn to You for mercy. We trust You to provide for our every need, according to Your will. Help us to forgive others as You forgive us. We promise to be merciful by our deeds, words and prayers. Though we have fears because of human weakness, we rely on Your infinite goodness and mercy. We entrust to You the future of our planet, our Church, our nations, our families and all our needs. With loud cries we implore your mercy on us
-and on the whole world. Look upon us, created in your image and likeness. Form us in the Heart of Mary by the power of the Holy Spirit into the living images of mercy. May all come to know the depth of Your mercy and sing the praises of Your mercy forever. Amen!
+**Message from Fr. Peter:**  
+The weeks of this joyful Eastertide follow the days after the Resurrection of Jesus on easter Sunday, though Ascension Thursday (on May 29th), right through to the great celebration of Pentecost and our recalling of the coming of the Holy Spirit upon the Apostles fifty days after Easter. The prayer ‘Come, Holy Spirit’ is a most appropriate prayer to pray in this season. It’s actually a very ancient prayer, really a collection of mini lines and prayers which were put together by the praying faithful over the centuries. Some of its lines, for example. ‘Send forth you Spirit, and they shall be created’ go right back to the Book of Psalms in the Old Testament’, while other parts of the prayer can be traced right back to the early theologian Hippolytus from the second century, through a European Monk named Rabanus Maurus who wrote a song called ‘Come, Creator Spirit,’ and onwards through to the twelfth century when the prayer become a common text for the Church throughout the world. As I say, it’s a beautiful prayer to pray anytime, certainly during Eastertide, but perhaps especially in this time of ‘sede vacante’ as we wait for the election of a new Pope. Let us pray the prayer at our masses this week, seeking the inspiration of the Holy Spirit for the College of Cardinals, that a worthy successor will be chosen to follow on the work of Pope Francis and his predecessors, going right back to St. Peter – present in the Upper Room on that very first Pentecost Sunday. Come, Holy Spirit, fill the hearts of your faithful and kindle in them the fire of your love. Send forth your Spirit and they shall be created, and you shall renew the face of the earth.
+*Let us pray. O God, who have taught the hearts of the faithful by the light of the Holy Spirit, grant that in the same Spirit we may be truly wise and ever rejoice in his consolation. Through Christ our Lord. Amen.*
 
 **First Week of the Month at SJSP's**  
-This Friday 2nd May: First Friday Mass & Anointing of the Sick at St. Joseph's at 2pm, followed by Refreshments in the Parish Hall.
-
-**Fr Peter's Lenten Challenge House Appeal:**  
-Many thanks for all the contributions, every single penny has been counted and greatly appreciated. I announced the total as £8126, but since then more funds have come in with people offering to make the total to £9000 meaning that we will have raised enough for THREE houses. That is truly amazing and more than I ever expected. I will keep you posted as to what is happening and our priest friends in Malawi will be sending updates. HUGE THANKS AND MANY BLESSINGS HUGE THANKS AND MANY BLESSINGS TO YOU ALL!
+Mass at Saltcotes Cemetery Chapel Wednesday 7th May at 10am. Please note that there is no Vespers Service this First Monday.  
 
 **First Reconciliation and Holy Communion:**  
-The next session for Candidates is Monday 28th in ST. PETER's HALL at 6pm. Please pray for our children on this important step in their faith journeys.
+The First Holy Communion Mass takes place This Saturday at St. Peter's at 2pm. Please pray for our twenty candidates who we will welcome to Mass on Sunday morning in their respective Churches. May God bless them on this hugely important day in their journeys of faith.  
 
-**Continued Easter Thanks to everyone**  
-Continued Easter Thanks to everyone involved with the wonderful services we have celebrated over Lent and Easter: our friends and deacons, Michael and David, the altar servers and sacristy organisers, the readers and ministers and organizers; the choirs and instrumentalists; the flower people; the welcomers; the collectors; the children's and sacramental catechists, teachers and parents; the refreshment makers and social organisers; our Church Cleaners and those who prepared the Churches; and all those who keep the Parishes, the Churches, the House and grounds running; those who do support me in my ministry here; and everyone (including those I haven't mentioned!) who comes along throughout the year to ensure that the light of Christ is burning brightly at St. joseph's and St. Peter's throughout the year. A very Happy Eastertide to you all!
+**Fr Peter's Lenten Challenge House Appeal:**  
+Dear friends at St Joseph's, St Peter's and St Bernadette's, After our visit to you in February, when we came to thank you for raising the money for three fishing boats, I was amazed to hear that Fr Peter had set a new Lenten challenge to raise £3000 to build a house for an albino family here in Malawi. I was also very touched as the need only came up in a conversation over a coffee! On Easter Sunday I received a video of Fr Peter announcing at Mass that you had donated over £8K and likely to reach £9K – enough for three houses! I was speechless and It took me a few minutes for it to register. The news came when I was with colleagues and we celebrated your generosity, fellowship and compassion. Three very vulnerable families in bad situations are going to benefit immensely from your kindness – I cannot tell you how grateful we are. I will write again with an update and pictures of the houses being constructed. In the meantime, I pray for you all and for your wonderful charity and I look forward to seeing you all again next year when we come to stay with our friends. Love and prayers, Fr Steven, Missionary Community of St Paul the Apostle. (MCSPA)  
 
-**Fr. Philip**  
-Fr. Philip completed his 40 day Sponsored Walk of 10,000 steps plus on Saturday 19/04. Thank you for your prayerful & financial support. Please follow these directions for collection of money.  
+**Edwina Gillett Papal Award:**  
+At the 12:15 pm Mass on Saturday 31st May I am to receive the Bene Merenti from Bishop Paul in the Cathedral, Lancaster. This will be followed by a reception at Lancaster Golf Club. Unfortunately, because numbers at the reception are restricted, I haven't been able to invite everyone to the celebration but I have tried to invite a cross section of people from across our two parishes to participate in the day. However, everyone is welcome at the Cathedral should you wish to come along, you will be very welcome. On the following day, Sunday 1st June, we will have a Deanery celebration in St Joseph's to which everyone is invited. It will take the form of Evening Prayer and Benediction at 4pm followed by a sherry reception in the Presbytery. E. Gillett.  
 
-1. Place your sponsor money in a plain envelope & seal it. Please do NOT use parish gift aid or Mass Intention envelopes. They will not be passed to me.  
-2. Write on the envelope "Fr. Philip's Sponsor Money"  
-3. Write on the envelope your own name.  
-4. Write on the amount of money enclosed.  
-5. Your address & postcode must be included to claim Gift Aid. (Aid to the Church in Need Office will deal with claims)  
-6. Place your envelope in the collection bag/basket at Mass on the weekends 26/27 April or 3/4 May.  
-Thank you. Fr. Philip  
-
-**SPUC Pro-Life Chain:**  
-Saturday 26th April 11.00 am – 1.00 pm Please join us for a silent act of witness against assisted suicide/euthanasia. Meet on London Road, Preston –north of Ribble bridge. Stay for all or part of the time; bring a chair if required.
-
-**Saturday 26th April: Line Dancing Night!**  
-with food, a bar and the ukelele orchestra from 7:30pm at SJ's hall. Tickets are available from SJ's and SP's after Masses £6 for adults and £3 for children. All profits will be donated to Fr Peter's Lenten Challenge House Appeal.
+**Streetlife:**  
+Thank you to everyone who donated to Streetlife via Team Elston (Mike, Tom, Dan and Joe) who slept out on the cobbles of Blackpool with 100 other fundraisers. Thanks to your kind donations we raised £1936, nearly double our target! The whole event has raised about £20,000 so far. It was cold but dry, generally better than you can expect if you face the prospect of sleeping rough every night. These funds will be a massive help to Streetlife, both for its nightshelter and day center in Blackpool that help young people from 16-25, often with no other support. Thank you so much for the donations, and also to Father Peter for blessing us on the day! Donations can still be made [here](https://justgiving.com/page/team-elston25)  
 
 **Catholic Voice**  
 latest copy can be found [here](https://issuu.com/cathcom/docs/lancaster_voice_april_2025).

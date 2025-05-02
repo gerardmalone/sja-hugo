@@ -6,38 +6,34 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week  
 
-**Weekend Second Sunday of Easter Year 'C'**  
-**Saturday 26th**  
-6pm St. Joseph's Mass Marcus A Successful Operation  
-**Sunday 27th**  
-9:15am St. Joseph's Mass People of the Parishes  
-10:30am St. Peter's Mass Anniversary of Eric and Agnes Walsh  
-
-**Monday 28th**  
-9am St. Peter's Mass Joy Warwick followed by Exposition and Confession till 9:55am  
-11am St. Joseph's Funeral Service for Moira Roberts
-
-**Tuesday 29th**  
-*No 10am Mass This Morning at St. Joseph's*  
-12noon St. Bernadette's Bispham Requiem mass for Maria Poyner  
-***7pm St. Joseph's Requiem Mass for Pope Francis***  
-
-**Wednesday 30th**  
-9am St. Peter's Mass Canon Peter Draper Golden Jubilee  
-
-**Thursday 1st**  
-10am St. Joseph's Mass In Memory of Anita Walsh  
-
-**Friday 2nd**  
-2pm St. Joseph's Mass and Anointing of the Sick Intentions of Fr. Peter
-
-**Weekend Second Sunday of Easter**  
+**Weekend Third Sunday of Easter**  
 **Saturday 3rd**  
-6pm St. Joseph's Mass My Beloved Wife Barbara
+6pm St. Joseph’s Mass My Beloved Wife Barbara  
 **Sunday 4th**  
-9:15am St. Joseph's Mass People of the Parishes  
-10:30am St. Peter's Mass Sheila Dewhurst
-  
+9:15am St. Joseph’s Mass People of the Parishes  
+10:30am St. Peter’s Mass Sheila Dewhurst  
+
+**Monday 5th**  
+9am St. Peter's Mass John Nolan followed by Exposition and Confession till 9:55am  
+
+**Tuesday 6th**  
+10am St. Joseph’s Mass Denise Duffy preceded by Exposition and Confession till 9:55am  
+
+**Wednesday 7th**  
+10am Saltcotes Cemetery Mass Roseanne and Phillip Scott  
+
+**Thursday 8th**  
+10am St. Joseph’s Mass Thomas and Dorothy Gillully  
+11am St. Joseph’s Funeral Service for Ronald Rawstron  
+
+**Weekend Fourth Sunday of Easter**  
+**Saturday 10th**  
+2pm St. Peter’s Mass of First Holy Communion  
+6pm St. Joseph’s Mass Vernon and Mary Eccles  
+**Sunday 11th**  
+9:15am St. Joseph’s Mass People of the Parishes  
+10:30am St. Peter’s Mass Anniversary of Andrew Towler  
+
 **Sacrament of Reconciliation with Exposition**  
 Monday 9:30-10am at [St. Peter's](https://www.stpeterslytham.co.uk/)  
 Tuesday 10:30-11am at St. Joseph's,  
