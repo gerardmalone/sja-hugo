@@ -6,26 +6,6 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week  
 
-**Weekend Third Sunday of Easter**  
-**Saturday 3rd**  
-6pm St. Joseph’s Mass My Beloved Wife Barbara  
-**Sunday 4th**  
-9:15am St. Joseph’s Mass People of the Parishes  
-10:30am St. Peter’s Mass Sheila Dewhurst  
-
-**Monday 5th**  
-9am St. Peter's Mass John Nolan followed by Exposition and Confession till 9:55am  
-
-**Tuesday 6th**  
-10am St. Joseph’s Mass Denise Duffy preceded by Exposition and Confession till 9:55am  
-
-**Wednesday 7th**  
-10am Saltcotes Cemetery Mass Roseanne and Phillip Scott  
-
-**Thursday 8th**  
-10am St. Joseph’s Mass Thomas and Dorothy Gillully  
-11am St. Joseph’s Funeral Service for Ronald Rawstron  
-
 **Weekend Fourth Sunday of Easter**  
 **Saturday 10th**  
 2pm St. Peter’s Mass of First Holy Communion  
@@ -33,6 +13,28 @@ slug: "feasts-intentions"
 **Sunday 11th**  
 9:15am St. Joseph’s Mass People of the Parishes  
 10:30am St. Peter’s Mass Anniversary of Andrew Towler  
+
+**Monday 12th**  
+9am St. Peter's Mass Mary Josephine Buckley followed by Exposition and Confession till 9:55am  
+
+**Tuesday 13th**  
+10am St. Joseph’s Mass Elizabeth Godden preceded by Exposition and Confession till 9:55am  
+2pm Lytham Crematorium Service for Elizabeth Teasdale  
+
+**Wednesday 14th**  
+9am St. Peter's Mass Mary and Arthur Horton and Kathleen Horton  
+12:15pm Lytham Crematorium Service for James Quinn  
+2pm St. Joseph’s Wedding Service for Ewa and Peter  
+
+**Thursday 15th**  
+10am St. Joseph’s Mass For Mary  
+
+**Weekend Fifth Sunday of Easter**  
+**Saturday 17th**  
+6pm St. Joseph’s Mass Joan Woodcock
+**Sunday 18th**  
+9:15am St. Joseph’s Mass Repose of the Souls of Members of the Burke Family  
+10:30am St. Peter’s Mass People of the Parishes  
 
 **Sacrament of Reconciliation with Exposition**  
 Monday 9:30-10am at [St. Peter's](https://www.stpeterslytham.co.uk/)  
