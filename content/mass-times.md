@@ -6,35 +6,39 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week  
 
-**Weekend Fourth Sunday of Easter**  
-**Saturday 10th**  
-2pm St. Peter’s Mass of First Holy Communion  
-6pm St. Joseph’s Mass Vernon and Mary Eccles  
-**Sunday 11th**  
-9:15am St. Joseph’s Mass People of the Parishes  
-10:30am St. Peter’s Mass Anniversary of Andrew Towler  
-
-**Monday 12th**  
-9am St. Peter's Mass Mary Josephine Buckley followed by Exposition and Confession till 9:55am  
-
-**Tuesday 13th**  
-10am St. Joseph’s Mass Elizabeth Godden preceded by Exposition and Confession till 9:55am  
-2pm Lytham Crematorium Service for Elizabeth Teasdale  
-
-**Wednesday 14th**  
-9am St. Peter's Mass Mary and Arthur Horton and Kathleen Horton  
-12:15pm Lytham Crematorium Service for James Quinn  
-2pm St. Joseph’s Wedding Service for Ewa and Peter  
-
-**Thursday 15th**  
-10am St. Joseph’s Mass For Mary  
-
 **Weekend Fifth Sunday of Easter**  
 **Saturday 17th**  
-6pm St. Joseph’s Mass Joan Woodcock
+6pm St. Joseph’s Mass People of the Parishes  
 **Sunday 18th**  
 9:15am St. Joseph’s Mass Repose of the Souls of Members of the Burke Family  
+10:30am St. Peter’s Mass Joan Woodcock  
+
+**Monday 19th**  
+9am St. Peter's ***No Mass today***  
+
+**Tuesday 20th**  
+10am St. Joseph’s ***No Mass today***  
+
+**Wednesday 21st**  
+9am St. Peter's Mass Tom Carter  
+2pm St. Peter’s Requiem Mass for Frances Julie Watson  
+7pm St. Joseph’s Vespers for Pope Leo XIV  
+
+**Thursday 22nd**  
+10am St. Joseph’s Mass Stuart Peacock  
+4pm Stella Matutina Reception for Sr. Filumina  
+
+**Friday 23rd**  
+11am Stella Matutina Requiem for Sr. Filumina  
+
+**Weekend Sixth Sunday of Easter**  
+**Saturday 24th**  
+6pm St. Joseph’s Mass Maria Henzi  
+**Sunday 25th**  
+9:15am St. Joseph’s Mass Greta Nickson  
 10:30am St. Peter’s Mass People of the Parishes  
+
+**No Sacrament of Reconciliation with Exposition this week.**  
 
 **Sacrament of Reconciliation with Exposition**  
 Monday 9:30-10am at [St. Peter's](https://www.stpeterslytham.co.uk/)  
