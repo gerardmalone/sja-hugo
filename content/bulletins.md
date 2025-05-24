@@ -14,7 +14,7 @@ Please note that if you send information for the weekly bulletin via e-mail ([sj
 All bulletin queries should be directed to **Fr. Peter**. If there is a limited amount of space, notices may have to be abbreviated. Wherever possible a notice will be published in full. Notices can only be included up to a maximum of **3 weeks**.
 
 **Sixth Sunday of Easter**  
-[25h May 2025](/bulletins/Bulletin125525.pdf)  
+[25h May 2025](/bulletins/Bulletin250525.pdf)  
 
 **Fifth Sunday of Easter**  
 [18th May 2025](/bulletins/Bulletin180525.pdf)  
