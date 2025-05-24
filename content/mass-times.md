@@ -6,39 +6,34 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week  
 
-**Weekend Fifth Sunday of Easter**  
-**Saturday 17th**  
-6pm St. Joseph’s Mass People of the Parishes  
-**Sunday 18th**  
-9:15am St. Joseph’s Mass Repose of the Souls of Members of the Burke Family  
-10:30am St. Peter’s Mass Joan Woodcock  
-
-**Monday 19th**  
-9am St. Peter's ***No Mass today***  
-
-**Tuesday 20th**  
-10am St. Joseph’s ***No Mass today***  
-
-**Wednesday 21st**  
-9am St. Peter's Mass Tom Carter  
-2pm St. Peter’s Requiem Mass for Frances Julie Watson  
-7pm St. Joseph’s Vespers for Pope Leo XIV  
-
-**Thursday 22nd**  
-10am St. Joseph’s Mass Stuart Peacock  
-4pm Stella Matutina Reception for Sr. Filumina  
-
-**Friday 23rd**  
-11am Stella Matutina Requiem for Sr. Filumina  
-
 **Weekend Sixth Sunday of Easter**  
 **Saturday 24th**  
-6pm St. Joseph’s Mass Maria Henzi  
+6pm St. Joseph’s  Mass Maria Henzi  
 **Sunday 25th**  
 9:15am St. Joseph’s Mass Greta Nickson  
 10:30am St. Peter’s Mass People of the Parishes  
 
-**No Sacrament of Reconciliation with Exposition this week.**  
+**Monday 26th**  
+9am St. Peter's Mass Fr. Francis Jaconelli followed by Expositions and Confessions till 10am
+
+**Tuesday 27th**  
+10am St. Joseph’s Mass Ron Rawstron preceded by Exposition and Confessions till 9:55am
+
+**Wednesday 28th**  
+9am St. Peter's Mass Robert Birrell  
+7pm St. Joseph’s Mass Eileen Wall  
+
+**Thursday 29th**  
+9pm St. Peter’s Mass Pauline Worsley  
+10am St. Joseph’s Mass William and Mary Murray  
+12noon St. Joseph’s Requiem Mass for Pat Kay  
+
+**Weekend Seventh Sunday of Easter**  
+**Saturday 31st**  
+6pm St. Joseph’s Mass Isobel Quinn  
+**Sunday 1st**  
+9:15am St. Joseph’s Mass People of the Parishes  
+10:30am St. Peter’s Mass Pat Kay  
 
 **Sacrament of Reconciliation with Exposition**  
 Monday 9:30-10am at [St. Peter's](https://www.stpeterslytham.co.uk/)  
