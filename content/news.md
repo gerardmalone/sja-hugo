@@ -4,15 +4,16 @@ draft: false
 ---
 ## 125h May 2025
 
-**Message from Deacon David (who was present in Rome for the announcement of Pope Leo’s election and his First Blessing):**  
-Unlike human leaders, who come and go and make mistakes, Christ remains forever. He is our High Priest — eternal, sinless, unchanging — and thank God for that! And yet, Jesus in His divine wisdom did something rather daring: He entrusted His Church to us — to human hands. He built His Church not on angels, but on Peter. A fisherman who was bold, flawed, impulsive and relied upon more passion than planning. And now, in that same spirit, we welcome another man who has dared to say yes to the same call: to be the successor of Peter. Now, Pope Leo XIV takes his name from a legendary line of papal Leos — including, of course, Pope Leo XIII, the great champion of Catholic social teaching, who wrote Rerum Novarum and somehow made theology sound poetic while talking about workers' rights. Leo XIII was called the “Pope of the working class,” the “Pope of reason,” So Pope Leo XIV — no pressure! But we know this: the papacy is not a platform for personal greatness, but a call to radical service. It’s a position where you trade privacy for prayer requests, and comfort for a cross. The white cassock may look clean, but as every pope quickly learns, it’s a working uniform. Jesus is “holy, innocent, uncontaminated, beyond the influence of sinners” — a description, I might add, that no pope would dare apply to himself! But it is Christ, not the Pope, who saves us. The Pope is not a replacement for Christ — he is a signpost pointing to Him, a voice echoing His Gospel, and a shepherd echoing the care of the Good Shepherd Himself. So as Pope Leo XIV begins his ministry, we pray he will have the wisdom of Leo XIII, the courage of Peter, but most importantly — the humility to keep Christ at the centre. And perhaps, may he also have the humour to survive Vatican meetings, and the stamina to greet pilgrims who never seem to run out of babies to bless. Let us pray for our Holy Father: that he may guide the Church not with power, but with love; not by his own strength, but through Christ, who lives and intercedes forever. And may we, because we have a part to play as faithful members of the Church, may we walk with him — praying, supporting, and listening — always keeping our eyes on Jesus, the one true and eternal High Priest.  
+**Catholic Voice**  
+latest copy can be found [by clicking this link](https://issuu.com/cathcom/docs/lancaster_voice_june_2025).
 
-**Feast of the Ascension:**  
-Thursday 29th is the Feast of the Ascension, a Holy Day of Obligation. Vigil Mass at SJs at 7pm on Wednesday evening, Morning Mass at SPs at 9am and SJs at 10am on Thursday.
-In This Feast’s Gospel, Luke 24:46-53, Jesus helps the disciples to understand what his death and resurrection have achieved, so that they can continue to serve him wherever they may be after his ascension. Please note that attendance at the Requiem Mass for Pat Kay at Noon on this day does fulfil the Holy Day Obligation  
+**Message from Father Peter:**  
+Last Sunday I mentioned that the New Translation of the Scriptures somewhat bowled me a googley in changing Jesus’s description of the Holy Spirit as an ‘Advocate’ to ‘helper’. Lo and behold the following day on Monday’s Scripture reading there was another googley, when, in Acts of the Apostles 16:11-15 we catch up with St. Paul, on his Second Missionary Journey, where he reaches Macedonia and goes to the town of Philippi, where they meet Lydia, a devout woman, who, in the previous translation we were told worked in the expensive ‘purple dye and linen trade’. This was quite a noble task. Purple dye was expensive because of the way in which it was made, involving collecting thousands of snails, which were then boiled (causing one heck of stink), eventually becoming transformed into the valuable purple dye, used to adorn regal robes – you’ll remember that Christ was mockingly given a purple robe. Lydia was obviously an intelligent and astute businesswoman. She and her whole household are baptized, and then she insists that Paul and his companions stay with her throughout their visits. And after one of his stays in prison Paul stayed with Lydia again. She is now venerated as a Saint, and her prayer references her purple dye and cloth trade: O Holy Eternal Fire grant to us, as You did for Thy child St. Lydia, the gift of conversion and transformation that our ears and our hearts may be opened to hearing and understanding Thy words of life so that we, too, may better serve Thee as a community through our gifts and talents so as to bring Hope to those who are in need of You through us. We ask Thee, O blessed Mother and Queen, for Thy holy intercession that you may weave within us, and those whom we are called to serve, all the graces necessary for the Will of God to be accomplished in us so that a royal tapestry of Faith and good works may be offered and made pleasing to our God. We ask in the name of Jesus Christ, our Redeemer and King. Amen. Rather a lovely prayer, don’t you think? Alas, the new translation makes no reference to any of this and just tells us that Lydia was ‘a seller of purple goods’, which I guess could be anything – aubergines, iPad covers, who knows…? Incidentally, did you hear about the hopeful farmer who loved purple? He had great eggplantations. I’ll get my coat. And my umbrella – it looks like [purple rain](https://youtu.be/TvnYmWpD_T8?si=8s4YrRk5VQPdUZJV)…  
+
+**Seventh Sunday of Easter**  
+Please note that as I am on Pilgrimage this week, the usually First Week events are cancelled this month. Normal service will resume in July!  
 
 **Please pray for those whom Requiems and Funeral Services we will be celebrating over the next few weeks:**  
-Pat Kay May 29th at SJ’s at 12noon;  
 Clare Tattersall June 2nd at SJ’s at 11am;  
 Vincent Lutas June 10th at SJ’s at 10am;  
 Eileen Whalley June 20th at Lytham Crematorium at 12:15pm;  
@@ -24,13 +25,20 @@ Reception of the BeneMerenti for Service to the Diocese as Editor of the Catholi
 **Celebration Vespers (For Edwina)**  
 Sunday 1st June at 4pm at St. Joseph’s, followed by Sherry in the Presbytery All Welcome.  
 
-**Deanery Celebration** of First Holy Communion for the First Holy Communion Children of the five Junior Schools in our Deanery Friday 13th of June at 11am at SJ’s. All Welcome.  
+**Mothers Prayer Group:**  
+Prayers By and For Mothers, and anyone else who wants to come along. This Wednesday 4th June at 6-7pm in St. Joseph’s Church, and every First Wednesday of the Month. All Welcome.  
 
-**Catholic Voice**  
-latest copy can be found [here](https://issuu.com/cathcom/docs/lancaster_voice_may_2025).
+**Deanery Celebration of First Holy Communion**  
+For the First Holy Communion Children of the five Junior Schools in our Deanery. Friday 13th of June at 11am at SJ’s. All Welcome.  
 
-**SJSP's mini Pilgrimage to Lourdes this Summer.**  
-Four nights 3rd-7th June, £650 sharing, £749 single. Forms available from FrP and Deacon D now if anyone would like to come along! If you have a form, please return deposits and forms to FrP or Deacon D. Our Lady of Lourdes, Pray for us.  
+**Lourdes Petitions:**  
+Next Week I will be in Lourdes on a very mini Pilgrimage. If you would like me to take a prayer petition to place in the grotto, just fill in one of the petition papers at the back of Church and place it in the basket- needs to be done this weekend, as I leave after Mass on Tuesday. Papers and pens are at the back of Church.  
+
+**The Syrian Refugees and the Displaced Lebanese:**  
+Thank the Parish of St. Peter in Lytham for donating £635.00 and St. Joseph’s in Ansdell for donating £1410:00 in support of the project in Zahleh, Lebanon. This project involves feeding 1500 refugees each weekday as well as offering comfort and companionship and especially to the Sick and the Elderly infirm. Aid to the Church in Need helps with this endeavour. The total raised is £9,100.20. Thank you. Fr. Philip will offer 3 Masses for the intentions & wellbeing of all benefactors. Fr. Philip Newbold (And bravo to our friend Fr Phil for his successful Lenten challenge! FrP)  
+
+**Wedding Anniversary Mass:**  
+Sat 12 July, 12.15pm Lancaster Cathedral. Bishop Paul invites all couples in the Diocese celebrating milestone wedding anniversaries this year - to a Mass of celebration and blessing. All are welcome to attend. For those couples wishing to be included for their Catholic marriage please email the Cathedral at [clergy@lancastercathedral.org.uk](mailto:clergy@lancastercathedral.org.uk)  
 
 **Dates for the Diary, Upcoming SJSP Social Events:**  
 *Saturday June 28th*: Lytham Club Day
@@ -38,15 +46,11 @@ Four nights 3rd-7th June, £650 sharing, £749 single. Forms available from FrP 
 Watch this Space for More Details!
 
 **Diocesan Pilgrimages for the Holy Year:**  
-*Lindisfarne*: 21-23 May Email: [info@christ-the-good-shepherd.co.uk](mailto:info@christ-the-good-shepherd.co.uk)  
 *Lourdes*: 'With Mary, Pilgrims of Hope.' 23rd – 30th July. Details and booking forms at: [(https://joewalshtours.co.uk)](https://joewalshtours.co.uk)  
 *Walsingham*: 20-24 October 2025 £475.00-£550.00. For booking details contact Deacon Charlie Conner - email [charlie.conner@lrdc.org.uk](mailto:charlie.conner@lrdc.org.uk)  
 
 **Email Address:**  
 The Diocese is changing all email addresses. The one email for our two parishes is now [sjsp.lsa@lrcd.org.uk](mailto:sjsp.lsa@lrcd.org.uk). Please do whatever you have to do to use this email from now on. Cheers.  
-
-**SJSP 2025 Calendars:**  
-SJSP 2025 Calendars still available at just £5.  
 
 **Hospital:**  
 Please remember to let us know if you or one of your family is being admitted to hospital.

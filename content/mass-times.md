@@ -6,34 +6,32 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week  
 
-**Weekend Sixth Sunday of Easter**  
-**Saturday 24th**  
-6pm St. Joseph’s  Mass Maria Henzi  
-**Sunday 25th**  
-9:15am St. Joseph’s Mass Greta Nickson  
-10:30am St. Peter’s Mass People of the Parishes  
-
-**Monday 26th**  
-9am St. Peter's Mass Fr. Francis Jaconelli followed by Expositions and Confessions till 10am
-
-**Tuesday 27th**  
-10am St. Joseph’s Mass Ron Rawstron preceded by Exposition and Confessions till 9:55am
-
-**Wednesday 28th**  
-9am St. Peter's Mass Robert Birrell  
-7pm St. Joseph’s Mass Eileen Wall  
-
-**Thursday 29th**  
-9pm St. Peter’s Mass Pauline Worsley  
-10am St. Joseph’s Mass William and Mary Murray  
-12noon St. Joseph’s Requiem Mass for Pat Kay  
-
 **Weekend Seventh Sunday of Easter**  
 **Saturday 31st**  
 6pm St. Joseph’s Mass Isobel Quinn  
 **Sunday 1st**  
-9:15am St. Joseph’s Mass People of the Parishes  
-10:30am St. Peter’s Mass Pat Kay  
+9:15am St. Joseph’s Mass Pat Kay  
+10:30am St. Peter’s Mass People of the Parishes  
+
+**Monday 2nd**  
+9am St. Peter's Mass Special Intentions (Anne Marie) followed by Expositions and Confessions till 10am  
+11am St. Joseph’s Requiem Mass for Clare Tattersall  
+
+**Tuesday 3rd**  
+9am St. Joseph’s Mass Eileen Sheehan  
+
+**Wednesday 4th**  
+9am St. Peter's Mass Harry and Emily Illingworth  
+
+**Thursday 5th**  
+10am St. Joseph’s Mass John Halliwell  
+
+**Weekend Pentecost Sunday**  
+**Saturday 7th**  
+6pm St. Joseph’s Mass Edwina Gillett  
+**Sunday 8th**  
+9:15am St. Joseph’s Mass John Hallion  
+10:30am St. Peter’s Mass People of the Parishes  
 
 **Sacrament of Reconciliation with Exposition**  
 Monday 9:30-10am at [St. Peter's](https://www.stpeterslytham.co.uk/)  
@@ -43,7 +41,7 @@ with Fr. Peter. Tel. 737037
 
 ## Normal Mass Times
 
-As of January 2014, St Joseph's Ansdell and St Peter's in Lytham became linked Parishes. As such **Mass times are shared between the two Churches**. You can find out more details about St Peter's [here](https://www.stpeterslytham.co.uk/). Normal Mass times for both Churches are displayed below.
+As of January 2014, St Joseph's Ansdell and St Peter's in Lytham became linked Parishes. As such **Mass times are shared between the two Churches**. You can find out more details about St Peter's [on their website](https://www.stpeterslytham.co.uk/). Normal Mass times for both Churches are displayed below.
 
 Individual Feasts and Intentions, along with any ad hoc Mass time changes, can be found above.
 
