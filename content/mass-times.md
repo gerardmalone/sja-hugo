@@ -6,32 +6,34 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week  
 
-**Weekend Seventh Sunday of Easter**  
-**Saturday 31st**  
-6pm St. Joseph’s Mass Isobel Quinn  
-**Sunday 1st**  
-9:15am St. Joseph’s Mass Pat Kay  
-10:30am St. Peter’s Mass People of the Parishes  
-
-**Monday 2nd**  
-9am St. Peter's Mass Special Intentions (Anne Marie) followed by Expositions and Confessions till 10am  
-11am St. Joseph’s Requiem Mass for Clare Tattersall  
-
-**Tuesday 3rd**  
-9am St. Joseph’s Mass Eileen Sheehan  
-
-**Wednesday 4th**  
-9am St. Peter's Mass Harry and Emily Illingworth  
-
-**Thursday 5th**  
-10am St. Joseph’s Mass John Halliwell  
-
-**Weekend Pentecost Sunday**  
+**Weekend Pentecost**  
 **Saturday 7th**  
-6pm St. Joseph’s Mass Edwina Gillett  
+6pm St. Joseph’s Mass Intentions of Edwina Gillett  
 **Sunday 8th**  
 9:15am St. Joseph’s Mass John Hallion  
 10:30am St. Peter’s Mass People of the Parishes  
+
+**Monday 9th**  
+9am St. Peter's Mass Frank Holland followed by Expositions and Confessions till 10am  
+
+**Tuesday 10th**  
+10am St. Joseph’s Requiem Mass for Vincent Lutas  
+
+**Wednesday 11th**  
+9am St. Peter's Mass For a Successful Operation  
+
+**Thursday 12th**  
+10am St. Joseph’s Mass Fr. Hibbert Birthday Intentions  
+
+**Friday 13th**  
+11am St. Joseph’s Deanery Mass for the First Holy Communion Children Joy Warwick  
+
+**Weekend The Most Holy Trinity**  
+**Saturday 14th**  
+6pm St. Joseph’s Mass People of the Parishes  
+**Sunday 15th**  
+9:15am St. Joseph’s Mass John Morrison  
+10:30am St. Peter’s Mass Robin Upton  
 
 **Sacrament of Reconciliation with Exposition**  
 Monday 9:30-10am at [St. Peter's](https://www.stpeterslytham.co.uk/)  
