@@ -2,34 +2,40 @@
 title: "News"
 draft: false
 ---
-## 8th June 2025
+## 22nd June 2025
 
 **Catholic Voice**  
 latest copy can be found [by clicking this link](https://issuu.com/cathcom/docs/lancaster_voice_june_2025).
 
 **Message from Father Peter:**  
-As is traditional on the great Feast of Pentecost, fifty days after Easter as we celebrate the coming of the Holy Spirit upon the Apostles, we have, in the Liturgy of the Word, after the second reading and before the Gospel greeting, a ‘sequence’. Originally Sequences were liturgical poems, which followed on directly form the final note of the Alleluia, and were used for many different liturgical occasions – in fact there were over 5000, apparently. The Church Council of Trent in 1545 abolished most of them, until, after Vatican II we were left with just four, two of which are optional: for Corpus Christi (Lauda Sion) and Our Lady of Sorrows (the Stabat Mater – the text of which is possibly more familiar to us, as it is still used as one of the traditional hymns for the Stations of the Cross); and two remain obligatory: the Easter Sequence (Victimae Paschali Laudes) which is said on Easter Sunday and throughout Easter Week and the Pentecost Sequence (Veni, Sancte Spiritus) which we hear in today’s Mass – now moved to before the Alleluia. This is one of the most beautiful of the sequences (I really don’t like the Easter Week one, at least not in the present English translation), forming a beautiful prayer, begging the Holy Spirit to come among us and change our lives, and change the world, comforting us in all our struggles, and bring us the seven-fold gifts of the Spirit, to be with us throughout the whole of lives until the Spirit eventually ‘gives us comfort when we die’. In essence, the sequence is calling us to take seriously our Confirmation, when we received the fullness of God’s Holy Spirit. It’s a beautiful prayer, and also a beautiful expounding of the Theology of the Holy Spirit. Let’s make it a heartful prayer as we conclude our joyful season of Eastertide on this Feast of Pentecost. Incidentally, do you want to hear my latest joke about the Fibonacci Sequence? It's as good as my previous two Fibonacci sequence jokes put together! I’ll get my coat. And google ‘Fibonacci Sequence’…  
+This Friday we celebrate the Lancaster Diocesan Celebration of the Memorial of Our Lady of Fernyhalgh at Ladyewell, just North of Preston, off the A6 at Broughton – our Southern Diocesan Shrine to Our Blessed Mother Mary (the Northernmost one being Cleator in West Cumbria, my home Parish). Fernyhalgh has been a place of devotion to Mary for Centuries – records going right back to the 11th Century, indeed the name ‘Fernyhalgh’ has been taken to mean ‘Ancient Shrine’ by some historians, although there other somewhat more prosaic explanations for the name, and prayer has been offered their continually, right up to events that take place their now, even during times of persecution. The name ‘Ladyewell’ seems to have been given to the place from the mid 1600’s, when the present house there was built, with the well developed by nuns living there at the beginning of the twentieth century – there is a legend of an Irish Sailor being directed in a dream to the well and to build a chapel after surviving a storm at sea. As well as a place of devotion to Mary, the site now houses a chapel which recalls all the names of the Diocesan Martyrs, reminding us of the great faith that has persisted through thick and thin in this part of Northen England. There are many events and personal pilgrimages throughout the year – with other Christian denominations praying there too. Almighty God, the legend of the well has carried over the centuries devotion to our Lady of Fernyhalgh, even when to be faithful was a call to martyrdom. May we today confront the most subtle challenges of the world to our faith as we renew our prayer for your protection, through the intercession of Mary, Mother of your Son, Jesus Christ our Lord, who lives and reigns with your and the Holy Spirit, one God, for ever and veer. Amen. If you haven’t been, do pop in if you are able, or checkout their website – and perhaps we might think about our own Parishes Pilgrimage over there ourselves? It’s a lot nearer than Guadalupe!  
 
-**Please pray**  
-For those whom Requiems and Funeral Services we will be celebrating over the next few weeks; Vincent Lutas June 10th at SJ’s at 10am; Eileen Whalley June 20th at Lytham Crematorium at 12:15pm; and Mary Veronica McLaughlin July 2nd at SP’s at 1pm Requiescat in pace.
+**Bishop Paul:**  
+Bishop Paul thoroughly enjoyed his time here last week, and has promised to write a letter thanking everyone for their welcome and hospitality on his unannounced visit! Watch this space.  
 
-**First Holy Communion:**  
-Deanery Celebration of First Holy Communion for the First Holy Communion Children of the five Junior Schools in our Deanery This Friday 13th of June at 11am at SJ’s. All Welcome.  
+**Masses with our Young People:**  
+Over the past couple of weeks we celebrated two wonderful Masses with our young people – a celebration of First Communion with all the Year Fours from our five deanery schools, and a Mass led by St. Bede’s last Tuesday. Many thanks to everyone who helped organise these celebrations, and all who work so hard to pass on the faith to our young people. Here’s to many more such celebrations!
 
-**From Edwina Gillett:**  
-A big thank you to all who joined me in Lancaster for the Bene Merenti presentation on Saturday 31 May and to all those who came along to St Joseph's for Vespers and Benediction followed by a sherry reception on the following Sunday. I have been quite overwhelmed by all the messages of support, cards, mass offerings, prayers, flowers and even an afternoon tea, quite amazing! Thank you all, Fr Peter will offer a Mass for both parishes in thanksgiving in due course. E.Gillett.  
+**Please pray:**  
+Please pray for those whom Requiems and Funeral Services we will be celebrating over the next few weeks; Chris Hall June 24th at SP’s at 11am; and Mary Veronica McLaughlin July 2nd at SP’s at 1pm, and Sr. Margaret Brown July 8th at Stella Matutina at 11:30am. Requiescat in pace.
+
+**Congratulations:**  
+Congratulations to Jenny and Dan who were married at SP’s last Monday, and the Father of the Bride, Deacon David, who married them – his first wedding as celebrant!
+
+**Wedding Anniversary Mass:**  
+Sat 12 July, 12.15pm Lancaster Cathedral. Bishop Paul invites all couples in the Diocese celebrating milestone wedding anniversaries this year - to a Mass of celebration and blessing. All are welcome to attend. For those couples wishing a blessing for their Catholic marriage please email the Cathedral at [clergy@lancastercathedral.org.uk](mailto:clergy@lancastercathedral.org.uk)
+
+**Castlerigg Manor:**  
+Castlerigg Manor is opening its doors to family groups and social groups this August. There are single rooms, twin rooms, and large family rooms at very cheap rates. Guests have access to the grounds, chapel, games room, and lounges, with Keswick and the Lake only a short walk away. For more info [director@castleriggmanor.co.uk](mailto:director@castleriggmanor.co.uk) or [castleriggmanor.com/open](https://castleriggmanor.com/open)
+
+**Diocesan Pilgrimages:**  
+Places for Diocesan Pilgraimages still available: Lourdes Pilgrimage 2025: ‘With Mary, Pilgrims of Hope.’ 23rd – 30th July. Details [joewalshtours.co.uk](https://joewalshtours.co.uk) Diocesan Walsingham: 20-24 Oct All-inclusive cost is £475-£550 details Deacon Charlie Conner at [charlie.conner@lrdc.org.uk](mailto:charlie.conner@lrdc.org.uk)
 
 **The Syrian Refugees and the Displaced Lebanese**  
 thank the Parish of St. Peter in Lytham for donating £635.00 and St. Joseph’s in Ansdell for donating £1410:00 in support of the project in Zahleh, Lebanon. This project involves feeding 1500 refugees each weekday as well as offering comfort and companionship and especially to the Sick and the Elderly infirm. Aid to the Church in Need helps with this endeavour. The total raised is £9,100.20. Thank you. Fr. Philip will offer 3 Masses for the intentions & wellbeing of all benefactors. Fr. Philip Newbold (And bravo to our friend Fr Phil for his successful Lenten challenge! FrP)
 
 **Wedding Anniversary Mass:**  
 Sat 12 July, 12.15pm Lancaster Cathedral. Bishop Paul invites all couples in the Diocese celebrating milestone wedding anniversaries this year - to a Mass of celebration and blessing. All are welcome to attend. For those couples wishing a blessing for their Catholic marriage please email the Cathedral at [clergy@lancastercathedral.org.uk](clergy@lancastercathedral.org.uk)  
-
-**Diocesan Pilgrimages:**  
-Lourdes Pilgrimage 2025: ‘With Mary, Pilgrims of Hope.’ 23rd – 30th July. Details and booking forms at: [https://joewalshtours.co.uk](https://joewalshtours.co.uk)  Walsingham: 20-24 Oct All-inclusive cost is £475-£550 (dependent on accommodation type) Info & booking details Deacon Charlie Conner at [harlie.conner@lrdc.org.uk] (mailto:charlie.conner@lrdc.org.uk)  
-
-**Wedding Anniversary Mass:**  
-Sat 12 July, 12.15pm Lancaster Cathedral. Bishop Paul invites all couples in the Diocese celebrating milestone wedding anniversaries this year - to a Mass of celebration and blessing. All are welcome to attend. For those couples wishing to be included for their Catholic marriage please email the Cathedral at [clergy@lancastercathedral.org.uk](mailto:clergy@lancastercathedral.org.uk)  
 
 **Dates for the Diary, Upcoming SJSP Social Events:**  
 *Saturday June 28th*: Lytham Club Day
