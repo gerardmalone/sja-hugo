@@ -11,16 +11,16 @@ slug: "feasts-intentions"
 6pm St. Joseph's Mass People of the Parishes.  
 **Sunday 29th**  
 9:15am St. Joseph's Mass Tony Crean  
-10:30am St. Peter's Mass Pete and Ellen Rickards Golden Wedding Anniversary. 
+10:30am St. Peter's Mass Pete and Ellen Rickards Golden Wedding Anniversary.  
 
 **Monday 30th**  
 9am St. Peter's Mass Pauline & Francis Williamson  
 
 **Tuesday 1st**  
-10am St. Joseph's Mass Greta Nickson preceded by Exposition and Confessions till 9:55am. 
+10am St. Joseph's Mass Greta Nickson preceded by Exposition and Confessions till 9:55am.  
 
 **Wednesday 2nd**  
-10am Saltcotes Cemetery Chapel Mass Deceased of the O'Dea Family. 
+10am Saltcotes Cemetery Chapel Mass Deceased of the O'Dea Family.  
 1pm St. Peter's Requiem Mass for Mary Veronica McLaughlin  
 
 **Thursday 3rd**  
