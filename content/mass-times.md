@@ -6,36 +6,39 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week  
 
-**Weekend The Most Holy Body and Blood of Christ**.  
-**Saturday 21st**  
-6pm St. Joseph’s Mass For Cancer Treatment.  
-**Sunday 22nd**  
-9:15am St. Joseph’s Mass Andrew Quinn  
-10:30am St. Peter’s Mass People of the Parishes.  
-
-**Monday 23rd**  
-9am St. Peter's Mass Linda Rowe followed by Expositions and Confessions till 10am.  
-
-**Tuesday 24th**  
-10am St. Joseph’s Mass Int’s of Edwina Gillett preceded by Exposition and Confessions till 9:55am.  
-11am St Peter’s Requiem Mass for Chris Hall.  
-
-**Wednesday 25th**  
-9am St. Peter's Mass In Memory of Vera McLaughlin.  
-
-**Thursday 26th**  
-10am St. Joseph’s Mass Joseph Nickson.  
-
-**Weekend The Feast of Saint Peter and Saint Paul.**  
+**Weekend Saint Peter and Saint Paul.**  
 **Saturday 28th**  
-6pm St. Joseph’s Mass People of the Parishes.  
+6pm St. Joseph's Mass People of the Parishes.  
 **Sunday 29th**  
-9:15am St. Joseph’s Mass Tony Crean  
-10:30am St. Peter’s Mass Pete and Ellen Rickards Golden Wedding Anniversary.  
+9:15am St. Joseph's Mass Tony Crean  
+10:30am St. Peter's Mass Pete and Ellen Rickards Golden Wedding Anniversary. 
+
+**Monday 30th**  
+9am St. Peter's Mass Pauline & Francis Williamson  
+
+**Tuesday 1st**  
+10am St. Joseph's Mass Greta Nickson preceded by Exposition and Confessions till 9:55am. 
+
+**Wednesday 2nd**  
+10am Saltcotes Cemetery Chapel Mass Deceased of the O'Dea Family. 
+1pm St. Peter's Requiem Mass for Mary Veronica McLaughlin  
+
+**Thursday 3rd**  
+10am St. Joseph's Mass William and Mary Murray.  
+
+**Friday 4th**  
+2pm St. Joseph's Mass and Anointing of the Sick Fr. Sabatino Tedechi.  
+
+**Weekend Fourteenth Sunday in Ordinary Time.**  
+**Saturday 5th**  
+6pm St. Joseph's Mass People of the Parish  
+**Sunday 6th**  
+9:15am St. Joseph's Mass Norah Eardley  
+10:30am St. Peter's Mass Thanksgiving  
 
 **Sacrament of Reconciliation with Exposition**  
 Monday 9:30-10am at [St. Peter's](https://www.stpeterslytham.co.uk/)  
-Tuesday 10:30-11am at St. Joseph's,  
+Tuesday 9:30-9.55am at St. Joseph's,  
 Confessions also available by arrangement  
 with Fr. Peter. Tel. 737037
 

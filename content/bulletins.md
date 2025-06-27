@@ -13,6 +13,9 @@ Please note that if you send information for the weekly bulletin via e-mail ([sj
 
 All bulletin queries should be directed to **Fr. Peter**. If there is a limited amount of space, notices may have to be abbreviated. Wherever possible a notice will be published in full. Notices can only be included up to a maximum of **3 weeks**.
 
+**Saint Peter and Saint Paul**  
+[29th June 2025](/bulletins/Bulletin290625.pdf)  
+
 **The Most Holy Body and Blood of Christ**  
 [22nd June 2025](/bulletins/Bulletin220625.pdf)  
 
@@ -24,6 +27,3 @@ All bulletin queries should be directed to **Fr. Peter**. If there is a limited 
 
 **Sixth Sunday of Easter**  
 [25th May 2025](/bulletins/Bulletin250525.pdf)  
-
-**Fifth Sunday of Easter**  
-[18th May 2025](/bulletins/Bulletin180525.pdf)  
