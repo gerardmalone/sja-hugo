@@ -13,7 +13,7 @@ Please note that if you send information for the weekly bulletin via e-mail ([sj
 
 All bulletin queries should be directed to **Fr. Peter**. If there is a limited amount of space, notices may have to be abbreviated. Wherever possible a notice will be published in full. Notices can only be included up to a maximum of **3 weeks**.
 
-**Saint Peter and Saint Paul**  
+**Fourteenth Sunday in Ordinary Time**  
 [6th July 2025](/bulletins/Bulletin060725.pdf)  
 
 **Saint Peter and Saint Paul**  
