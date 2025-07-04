@@ -6,35 +6,35 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week  
 
-**Weekend Saint Peter and Saint Paul.**  
-**Saturday 28th**  
-6pm St. Joseph's Mass People of the Parishes.  
-**Sunday 29th**  
-9:15am St. Joseph's Mass Tony Crean  
-10:30am St. Peter's Mass Pete and Ellen Rickards Golden Wedding Anniversary.  
-
-**Monday 30th**  
-9am St. Peter's Mass Pauline & Francis Williamson  
-
-**Tuesday 1st**  
-10am St. Joseph's Mass Greta Nickson preceded by Exposition and Confessions till 9:55am.  
-
-**Wednesday 2nd**  
-10am Saltcotes Cemetery Chapel Mass Deceased of the O'Dea Family.  
-1pm St. Peter's Requiem Mass for Mary Veronica McLaughlin  
-
-**Thursday 3rd**  
-10am St. Joseph's Mass William and Mary Murray.  
-
-**Friday 4th**  
-2pm St. Joseph's Mass and Anointing of the Sick Fr. Sabatino Tedechi.  
-
 **Weekend Fourteenth Sunday in Ordinary Time.**  
 **Saturday 5th**  
-6pm St. Joseph's Mass People of the Parish  
+6pm St. Joseph’s Mass People of the Parish.  
 **Sunday 6th**  
-9:15am St. Joseph's Mass Norah Eardley  
-10:30am St. Peter's Mass Thanksgiving  
+9:15am St. Joseph’s Mass Norah Eardley.  
+10:30am St. Peter’s Mass Thanksgiving.  
+
+**Monday 7th**  
+9am St. Peter's Mass Chris Hall followed by Expositions and Confessions till 10am.  
+4pm Stella Matutina Vigil reception Mass for Sr. Margaret.  
+7pm St. Joseph’s Vespers and Benediction.  
+
+**Tuesday 8th**  
+10am St. Joseph’s Mass Rosanne and Patrick Scott preceded by Exposition and Confessions till 9:55am.  
+11:30am Stella Matutina Requiem Mass for Sr. Margaret Brown.  
+1:15pm Carleton Crematorium Service for Sr. Margaret.  
+
+**Wednesday 9th**  
+10am St. Peter’s Mass Thomas and Annie Ainsworth.  
+
+**Thursday 10th**  
+10am St. Joseph’s Mass Repose of the soul of Liz Hicks.  
+
+**Weekend Fifteenth Sunday in Ordinary Time.**  
+**Saturday 12th**  
+6pm St. Joseph’s Mass People of the Parish and Ruth Wilson.  
+**Sunday 13th**  
+9:15am St. Joseph’s Mass Ursula Cooper.  
+10:30am St. Peter’s Mass Kathleen Leeming.  
 
 **Sacrament of Reconciliation with Exposition**  
 Monday 9:30-10am at [St. Peter's](https://www.stpeterslytham.co.uk/)  
