@@ -6,41 +6,38 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week  
 
-**Weekend Fourteenth Sunday in Ordinary Time.**  
-**Saturday 5th**  
-6pm St. Joseph’s Mass People of the Parish.  
-**Sunday 6th**  
-9:15am St. Joseph’s Mass Norah Eardley.  
-10:30am St. Peter’s Mass Thanksgiving.  
-
-**Monday 7th**  
-9am St. Peter's Mass Chris Hall followed by Expositions and Confessions till 10am.  
-4pm Stella Matutina Vigil reception Mass for Sr. Margaret.  
-7pm St. Joseph’s Vespers and Benediction.  
-
-**Tuesday 8th**  
-10am St. Joseph’s Mass Rosanne and Patrick Scott preceded by Exposition and Confessions till 9:55am.  
-11:30am Stella Matutina Requiem Mass for Sr. Margaret Brown.  
-1:15pm Carleton Crematorium Service for Sr. Margaret.  
-
-**Wednesday 9th**  
-10am St. Peter’s Mass Thomas and Annie Ainsworth.  
-
-**Thursday 10th**  
-10am St. Joseph’s Mass Repose of the soul of Liz Hicks.  
-
-**Weekend Fifteenth Sunday in Ordinary Time.**  
+**Weekend Fifteenth Sunday in Ordinary Time**  
 **Saturday 12th**  
-6pm St. Joseph’s Mass People of the Parish and Ruth Wilson.  
+6pm St. Joseph’s Mass People of the Parish and Ruth Wilson  
 **Sunday 13th**  
-9:15am St. Joseph’s Mass Ursula Cooper.  
-10:30am St. Peter’s Mass Kathleen Leeming.  
+9:15am St. Joseph’s Mass Ursula Cooper  
+10:30am St. Peter’s Mass Kathleen Leeming  
 
-**Sacrament of Reconciliation with Exposition**  
-Monday 9:30-10am at [St. Peter's](https://www.stpeterslytham.co.uk/)  
-Tuesday 9:30-9.55am at St. Joseph's,  
-Confessions also available by arrangement  
-with Fr. Peter. Tel. 737037
+**Monday 14th**  
+9am St. Peter's Mass Special Int. (P.H) followed by Expositions and Confessions till 10am.  
+11am St. Peter’s Funeral Service for Jennifer Rhodes.  
+
+**Tuesday 15th**  
+10am St. Joseph’s Mass Stephen Warwick preceded by Exposition and Confessions till 9:55am.  
+6:30pm St. Peter’s Holy Hour with Rosary and Benediction  
+
+**Wednesday 16th**  
+9am St. Peter’s Mass Repose of the Soul of Jamie O’Neill  
+12:30pm St. Joseph’s Funeral Service for Yvonne Battersby  
+
+**Thursday 17th**  
+10am St. Joseph’s Mass David Frederick Sharman  
+
+**Weekend Sixteenth Sunday in Ordinary Time**  
+**Saturday 19th**  
+6pm St. Joseph’s Mass Norah and Jack Shortt  
+**Sunday 20th**  
+9:15am St. Joseph’s Mass People of the Parish  
+10:30am St. Peter’s Mass Joe Ainsworth  
+
+**Sacrament of Reconciliation with Exposition this week.**  
+Monday 9:30-9:55am at St. Peter’s and Tuesday 9:30-9:50am at St. Joseph’s
+Confession is also available by arrangement with Fr. Peter. Tel. 737037
 
 ## Normal Mass Times
 
