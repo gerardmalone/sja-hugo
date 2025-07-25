@@ -6,34 +6,34 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week  
 
-**Weekend Fifteenth Sunday in Ordinary Time**  
-**Saturday 12th**  
-6pm St. Joseph’s Mass People of the Parish and Ruth Wilson  
-**Sunday 13th**  
-9:15am St. Joseph’s Mass Ursula Cooper  
-10:30am St. Peter’s Mass Kathleen Leeming  
+**Weekend Seventeenth Sunday in Ordinary Time.**  
+**Saturday 26th**  
+6pm St. Joseph’s Mass A Special Intention.  
+**Sunday 27th**  
+9:15am St. Joseph’s Mass Thomas and Norah Jackson  
+10:30am St. Peter’s Mass People of the Parish.  
 
-**Monday 14th**  
-9am St. Peter's Mass Special Int. (P.H) followed by Expositions and Confessions till 10am.  
-11am St. Peter’s Funeral Service for Jennifer Rhodes.  
+**Monday 28th**  
+9am St. Peter's Mass For Pauline Successful Operation followed by Expositions and Confessions till 10am.  
 
-**Tuesday 15th**  
-10am St. Joseph’s Mass Stephen Warwick preceded by Exposition and Confessions till 9:55am.  
-6:30pm St. Peter’s Holy Hour with Rosary and Benediction  
+**Tuesday 29th**  
+10am St. Joseph’s Mass Intentions of Clare Nolan preceded by Exposition and Confessions till 9:55am.  
 
-**Wednesday 16th**  
-9am St. Peter’s Mass Repose of the Soul of Jamie O’Neill  
-12:30pm St. Joseph’s Funeral Service for Yvonne Battersby  
+**Wednesday 30th**  
+9am St. Peter’s Mass Diane Successful Cancer Treatment.  
 
-**Thursday 17th**  
-10am St. Joseph’s Mass David Frederick Sharman  
+**Thursday 31st**  
+10am St. Joseph’s Mass Brian and Susan Southern.  
 
-**Weekend Sixteenth Sunday in Ordinary Time**  
-**Saturday 19th**  
-6pm St. Joseph’s Mass Norah and Jack Shortt  
-**Sunday 20th**  
+**Friday 1st**  
+2pm St. Joseph’s Mass and Sacrament of the Sick Deceased of O’Dea Family  
+  
+**Weekend Eighteenth Sunday in Ordinary Time.**  
+**Saturday 2nd**  
+6pm St. Joseph’s Mass Joy Warwick.  
+**Sunday 3rd**  
 9:15am St. Joseph’s Mass People of the Parish  
-10:30am St. Peter’s Mass Joe Ainsworth  
+10:30amSt. Peter’s Mass Gabriella Spedding Hobbs.  
 
 **Sacrament of Reconciliation with Exposition this week.**  
 Monday 9:30-9:55am at St. Peter’s and Tuesday 9:30-9:50am at St. Joseph’s
