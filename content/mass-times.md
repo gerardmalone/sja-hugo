@@ -6,34 +6,34 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week  
 
-**Weekend Seventeenth Sunday in Ordinary Time.**  
-**Saturday 26th**  
-6pm St. Joseph’s Mass A Special Intention.  
-**Sunday 27th**  
-9:15am St. Joseph’s Mass Thomas and Norah Jackson  
-10:30am St. Peter’s Mass People of the Parish.  
-
-**Monday 28th**  
-9am St. Peter's Mass For Pauline Successful Operation followed by Expositions and Confessions till 10am.  
-
-**Tuesday 29th**  
-10am St. Joseph’s Mass Intentions of Clare Nolan preceded by Exposition and Confessions till 9:55am.  
-
-**Wednesday 30th**  
-9am St. Peter’s Mass Diane Successful Cancer Treatment.  
-
-**Thursday 31st**  
-10am St. Joseph’s Mass Brian and Susan Southern.  
-
-**Friday 1st**  
-2pm St. Joseph’s Mass and Sacrament of the Sick Deceased of O’Dea Family  
-  
 **Weekend Eighteenth Sunday in Ordinary Time.**  
 **Saturday 2nd**  
-6pm St. Joseph’s Mass Joy Warwick.  
+6pm St. Joseph’s Mass Joy Warwick  
 **Sunday 3rd**  
 9:15am St. Joseph’s Mass People of the Parish  
-10:30amSt. Peter’s Mass Gabriella Spedding Hobbs.  
+10:30am St. Peter’s Mass Gabriella Spedding Hobbs  
+
+**Monday 4th**  
+9am St. Peter's Mass John Nolan followed by Expositions and Confessions till 10am  
+11:45am Lytham Crematorium Service for Jeanette Hartley  
+7pm St. Peter’s Vespers and Benediction  
+
+**Tuesday 5th**  
+10am St. Joseph’s Mass William and Mary Murray preceded by Exposition and Confessions till 9:55am  
+
+**Wednesday 6th**  
+10am Saltcotes Cemetery Mass Don O’Toole  
+12:45pm St. Joseph’s Requiem Mass for Baby Annie  
+
+**Thursday 7th**  
+10am St. Joseph’s Mass Chris Hall  
+
+**Weekend Nineteenth Sunday in Ordinary Time**  
+**Saturday 9th**  
+6pm St. Joseph’s Mass Alan Hesketh  
+**Sunday 10th**  
+9:15am St. Joseph’s Mass Intentions of Michael and Anne Wormleighton Golden Wedding Anniversary  
+10:30am St. Peter’s Mass People of the Parish  
 
 **Sacrament of Reconciliation with Exposition this week.**  
 Monday 9:30-9:55am at St. Peter’s and Tuesday 9:30-9:50am at St. Joseph’s
