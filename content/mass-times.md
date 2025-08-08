@@ -27,8 +27,8 @@ slug: "feasts-intentions"
 7pm (Vigil) St. Joseph’s Mass Special Intentions  
 
 **Friday 15th Feast of the Assumption of the Blessed Virgin Mary**  
-9am St. Peter’s Mass Jennifer Rhodes
-10am St. Joseph’s Mass Harry Whitehead
+9am St. Peter’s Mass Jennifer Rhodes  
+10am St. Joseph’s Mass Harry Whitehead  
 1:30pm St. Peter’s Funeral Service for Christopher Shaw
 
 **Weekend August Twentieth Sunday in Ordinary Time**  
