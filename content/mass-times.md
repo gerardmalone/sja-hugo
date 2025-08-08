@@ -6,28 +6,6 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week  
 
-**Weekend Eighteenth Sunday in Ordinary Time.**  
-**Saturday 2nd**  
-6pm St. Joseph’s Mass Joy Warwick  
-**Sunday 3rd**  
-9:15am St. Joseph’s Mass People of the Parish  
-10:30am St. Peter’s Mass Gabriella Spedding Hobbs  
-
-**Monday 4th**  
-9am St. Peter's Mass John Nolan followed by Expositions and Confessions till 10am  
-11:45am Lytham Crematorium Service for Jeanette Hartley  
-7pm St. Peter’s Vespers and Benediction  
-
-**Tuesday 5th**  
-10am St. Joseph’s Mass William and Mary Murray preceded by Exposition and Confessions till 9:55am  
-
-**Wednesday 6th**  
-10am Saltcotes Cemetery Mass Don O’Toole  
-12:45pm St. Joseph’s Requiem Mass for Baby Annie  
-
-**Thursday 7th**  
-10am St. Joseph’s Mass Chris Hall  
-
 **Weekend Nineteenth Sunday in Ordinary Time**  
 **Saturday 9th**  
 6pm St. Joseph’s Mass Alan Hesketh  
@@ -35,8 +13,33 @@ slug: "feasts-intentions"
 9:15am St. Joseph’s Mass Intentions of Michael and Anne Wormleighton Golden Wedding Anniversary  
 10:30am St. Peter’s Mass People of the Parish  
 
+**Monday 11th**  
+9am St. Peter's Mass Catherine King followed by Expositions and Confessions till 10am  
+
+**Tuesday 12th**  
+10am St. Joseph’s Mass Vincent Lutas preceded by Exposition and Confessions till 9:55am  
+
+**Wednesday 13th**  
+9am St Peter’s Mass Mary and Arthur Horton  
+
+**Thursday 14th**  
+10am St. Joseph’s Mass For a Successful Operation  
+7pm (Vigil) St. Joseph’s Mass Special Intentions  
+
+**Friday 15th Feast of the Assumption of the Blessed Virgin Mary**  
+9am St. Peter’s Mass Jennifer Rhodes
+10am St. Joseph’s Mass Harry Whitehead
+1:30pm St. Peter’s Funeral Service for Christopher Shaw
+
+**Weekend August Twentieth Sunday in Ordinary Time**  
+**Saturday 16th**  
+6pm St. Joseph’s Mass Patricia Mary Rawlings  
+**Sunday 17th**  
+9:15am St. Joseph’s Mass 100th Birthday Remembrance of Joseph Zammit  
+10:30am St. Peter’s Mass People of the Parish; Joan and Ray’s Sixtieth Wedding Anniversary  
+
 **Sacrament of Reconciliation with Exposition this week.**  
-Monday 9:30-9:55am at St. Peter’s and Tuesday 9:30-9:50am at St. Joseph’s
+Monday 9:30-9:55am at St. Peter’s and Tuesday 9:30-9:50am at St. Joseph’s  
 Confession is also available by arrangement with Fr. Peter. Tel. 737037
 
 ## Normal Mass Times
