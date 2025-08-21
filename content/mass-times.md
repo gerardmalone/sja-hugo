@@ -6,35 +6,35 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week  
 
-**Weekend Twentieth Sunday in Ordinary Time**  
-**Saturday 16th**  
-6pm St. Joseph’s Mass Patricia Mary Rawlings  
-**Sunday 17th**  
-9:15am St. Joseph’s Mass 100th Birthday Remembrance of Joseph Zammit  
-10:30am St. Peter’s Mass People of the Parish  
-
-**Monday 18th**  
-9am St. Peter's Mass Eddie Hewitt, 95th Birthday Intentions followed by Expositions and Confessions till 10am  
-
-**Tuesday 19th**  
-10am St. Joseph’s Mass Christopher Hill preceded by Exposition and Confessions till 9:55am  
-6:30pm St. Joseph’s Holy Hour with Rosary and Benediction  
-
-**Wednesday 20th**  
-9am St. Peter’s Mass Bernadette Whiteside, Speedy Recovery  
-
-**Thursday 21st**  
-10am St. Joseph’s Mass In Memory of Bobby Kelly  
-
 **Weekend Twenty First Sunday in Ordinary Time**  
 **Saturday 23rd**  
-6pm St. Joseph’s Mass Barbara Delaney  
+6pm St. Joseph's Mass Barbara Delaney  
 **Sunday 24th**  
-9:15am St. Joseph’s Mass For Tom Dockerty  
-10:30am St. Peter’s Mass People of the Parish  
+9:15am St. Joseph's Mass Tom Dockerty  
+10:30am St. Peter's Mass People of the Parishes  
+
+**Monday 25th**  
+9am St. Peter's Mass In memory of Vera McLaughlin followed by Expositions and Confessions till 10am  
+
+**Tuesday 26th**  
+10am St. Joseph's Mass Joan Berry preceded by Exposition and Confessions till 9:55am  
+
+**Wednesday 27th**  
+9am St Peter's Mass Special Intention  
+
+**Thursday 28th**  
+10am St. Joseph's Mass Ben Aitken, Speedy Recovery  
+
+**Weekend Twenty Second Sunday in Ordinary Time**  
+**Saturday 30th**  
+1:30pm St. Joseph's Wedding Service for Daniel and Laura  
+6pm St. Joseph's Mass John Scally  
+**Sunday 31st**  
+9:15am St. Joseph's Mass Liam Herron; Tony Crean  
+10:30am St. Peter's Mass People of the Parish  
 
 **Sacrament of Reconciliation with Exposition this week.**  
-Monday 9:30-9:55am at St. Peter’s and Tuesday 9:30-9:50am at St. Joseph’s  
+Monday 9:30-9:55am at St. Peter's and Tuesday 9:30-9:50am at St. Joseph's  
 Confession is also available by arrangement with Fr. Peter. Tel. 737037  
 
 ## Normal Mass Times
