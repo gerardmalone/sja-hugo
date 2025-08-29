@@ -37,7 +37,7 @@ Blessing of BackPacks for the New School Year, next Sunday at Masses. All welcom
 Sat 18th October at 11.30am. Each church has been allocated 2 tickets. If you would like to go please sign up, in pairs, on the sheet at the back of each Church. If necessary I will draw names out of a biretta, in a couple of weeks’ time.
 
 **School Stuff:**  
-Huge thanks for the response for Stationary for a School Children, and please be assured that all donations will go to those most in need. Many thanks and blessings to you all. 
+Huge thanks for the response for Stationary for a School Children, and please be assured that all donations will go to those most in need. Many thanks and blessings to you all.  
 
 **Burkina Faso:**  
 Thank you for the generous donations of £980.76 so far. The appeal remains open for one more month. Envelopes for donations are available at the back of church which can be returned via the offertory collection. E.Gillett
