@@ -2,7 +2,7 @@
 title: "News"
 draft: false
 ---
-## 24th August 2025
+## 31st August 2025
 
 **Catholic Voice**  
 latest copy (Septenmber) can be found [by clicking this link](https://issuu.com/cathcom/docs/lancaster_sept_2025).
