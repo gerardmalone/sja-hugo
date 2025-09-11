@@ -2,54 +2,34 @@
 title: "News"
 draft: false
 ---
-## 31st August 2025
+## 14th September 2025
 
 **Catholic Voice**  
 latest copy (Septenmber) can be found [by clicking this link](https://issuu.com/cathcom/docs/lancaster_sept_2025).
 
 **Message from Father Peter:**  
-And so the long Summer Holiday draws to a close, and our schools reopen this week for the new Acadamic Year. As we wish them well and say a prayer for them all, it might be nice to look at a few of the Patron saints appropriate to this time of year, for which there are several:  
-Firstly we have St. John Bosco, who, during the nineteenth century in Italy, especially Turin, he dedicated his life to helping disadvantaged young people, seeking to teach with love and hope, rather than punishment. When he was canonized in 1929 he was given the title ‘Father and Teacher of Youth’.  
-St. Gemma Galgani is also Patron of Students, an Italian Mystic of the twentieth century, who was an excellent student at school, but suffered with much illness throughout her life, and when she was orphaned at the age of nineteen, looked after and educated her younger brothers and sisters. She was a mystic who received the stigmata of Our Lord, and was canonized in 1940.  
-St. Elizabeth Ann Seton is Patron Saint of Catholic Schools and Teachers; at the beginning of the eighteenth century she founded the first Catholic Girls’ School in America - and was the first American to be Canonized.  
-And for those off to University, let’s mention their Patron Saint, the great Thomas Aquinas, the amazing Theologian and poet, whose theology on the Eucharist is so important to us – as well as his great Eucharistic hymns we which still sing today.  
-God Our Father, as we begin this new Academic Year, we place into your hands all who work in our Schools, our Teachers, our Staff, and our Students. May everything they do be infused with a spirit of your love, that, together we may all grow in knowledge and love of all you have created, and in knowledge and love of you and your Son Jesus, who, united with the Holy Spirit, are one God, living and true, for ever and ever. Amen  
+If you peruse the Arts pages of the newspapers (or the Arts pages of the Newspapers on the Internet, as I do), you’ll know there has been a new production of ‘Evita’ at the Palladium in London (which a parishioner at SP’s attended last week - huge thanks for the mug to add to my collection!). The ‘Opera’ (as it calls itself) begins with a setting of the Salve Regina (sung at the Requiem of Eva Peron), otherwise known in English as the ‘Hail, Holy Queen’, one of the four Marian Hymns which we sing at the end of Compline, the Night Prayer of the Church - we also traditionally recite it towards the end of the Rosary. The Prayer was composed during the Middle Ages and spread throughout Europe via various Monasteries and religious communities, and by the nineteenth century was a common prayer of the Church. The Prayer addresses Mary as a model of humanity, to whom we can identify, as ‘children of Eve’, and acknowledges that while there are difficulties and sorrows in this world, bringing forth tears and sighs - our own and those of others for whom we pray - we ask Mary to lead us in our fallen humanity to the fruit of her womb, Jesus our Saviour. The Month of September is traditionally dedicated to Mary, Mother of Sorrows, and with so many sorrows in this world, not least the anti-Catholic attack on children at Mass just two weeks ago, the prayer is more appropriate - and perhaps more necessary - than ever. Hail Holy Queen, Mother of mercy, Our life, our sweetness, and our hope. To thee do we cry, poor banished children of Eve. To thee do we send up our sighs, mourning and weeping in this valley of tears. Turn then, most gracious advocate, thine eyes of mercy toward us. And after this, our exile, show unto us the blessed fruit of thy womb, Jesus. O clement O loving O sweet Virgin Mary.  
 
-**First Week of the Month at SJSP’s**  
-Please join us for these wonderful liturgies!  
-Monday 1st September: Evening Prayer and Benediction at St. Joseph’s at 7pm  
-Wednesday 3rd September: Mass at Saltcotes Cemetery at 10am.  
-Wednesday 3rd September: 6pm in SJ’s  
+**Third Tuesday of the Month at SJSP’s.** 
+This Tuesday 16th September: Holy Hour with Rosary & Benediction, St. Peter’s at 6:30pm.  
 
-**Mothers Prayers**  
-A peaceful and welcoming space to pray for our children, families, schools, and wider community. You don’t have to be a mother to come – everyone is welcome, whether you're a parent, grandparent, carer, teacher, or simply someone who wants to pray for others. Come as you are, bring your intentions, and take a moment to rest in God’s presence with others.  
+**Mass of the Schools’ Centenary Icon.**  
+With school representatives from our Fylde School Community. This Thursday 18th at 10am at St. Joseph’s.  
 
-**Friday 5th September:**  
-First Friday Mass & Anointing of the Sick at St. Joseph’s at 2pm, followed by Refreshments in the Parish Hall.
-
-**St. Bede’s Year 7 Mass:**  
-we welcome our new students to Mass at 2pm at St. Peter’s This Tuesday 2nd September. All Welcome.
-
-**Blessing of BackPacks:**  
-Blessing of BackPacks for the New School Year, next Sunday at Masses. All welcome to have their school stuff blessed for the New Academic Year.
+**Deanery Mass for the Centenary of the Diocese:**  
+Saturday 27th September at 11am at St. Joseph’s, Ansdell, for all the Parishes of the Kirkham Deanery, celebrated by Bishop Paul. Followed by a picnic in the grounds, with Refreshments available from the Hall.  
 
 **Lancaster Cathedral Mass for the Centenary of the Diocese:**  
-Sat 18th October at 11.30am. Each church has been allocated 2 tickets. If you would like to go please sign up, in pairs, on the sheet at the back of each Church. If necessary I will draw names out of a biretta, in a couple of weeks’ time.
-
-**School Stuff:**  
-Huge thanks for the response for Stationary for a School Children, and please be assured that all donations will go to those most in need. Many thanks and blessings to you all.  
+Sat 18th October at 11.30am. Each church has been allocated 2 tickets. If you would like to go please sign up, in pairs, on the sheet at the back of each Church. If necessary I will draw names out of a biretta.  
 
 **Burkina Faso:**  
-Thank you for the generous donations of £980.76 so far. The appeal remains open for one more month. Envelopes for donations are available at the back of church which can be returned via the offertory collection. E.Gillett
+Please return any last envelopes envelope via the offertory collection next weekend. A final total will be available by the end of September. E.Gillett.  
 
-**Diocesan Pilgrimages:**  
-The annual pilgrimage to the Shrine of Our Lady of Lourdes at St Mary’s Church, Cleator, takes place on Sunday, 7th September at 3.00pm. The annual pilgrimage to the Shrine at Ladyewell takes place on Saturday, 20th September,with Holy Mass at St Mary’s Church, Fernyhalgh at 11.00am. All Welcome.
+**Red Mission Boxes:**  
+The Autumn collection from the boxes commences this week. Please would you bring your box to church and leave in the sacristy [make sure your name is on the box] The boxes will be returned to the sacristy after emptying. If you would like a box, please contact David Warwick.  
 
-**Deanery Mass:**  
-Deanery Mass for the Centenery of the Diocese, Saturday 27th September at 11am at St. Joseph’s, Ansdell, for all the Parishes of the Kirkham Deanery, Celebrated by Bishop Paul. Followed by a picnic in the grounds, with Refreshments available from the Hall.
-
-**SJSP Back to Skool Nite!**  
-With A Quiz, a School Dinner, a Bar, & Assembly Bangers for us all to sing. Saturday 13th Sep. 7pm in SJ’s Hall.  Tickets on sale after Masses £6 adults, £4 children.
+**The Church Grounds:**  
+Fr. Peter has asked me to organise a group of willing volunteers to take care of the planted borders at St. Joseph’s. The lawns and hedging are looked after privately. If you are willing and able to help out for an hour or two each month - probably less over winter after an initial tidy up, then please email me at [pat52benning@gmail.com](pat52benning@gmail.com) As ever, the more people who can commit, the less onerous the workload. Once I have names and mobile numbers, I’ll organise a get together. We have a beautiful church, let’s keep the gardens beautiful too. Thank you in anticipation. Pat. (And thanks from FrP too).  
 
 **Email Address:**  
 The Diocese is changing all email addresses. The one email for our two parishes is now [sjsp.lsa@lrcd.org.uk](mailto:sjsp.lsa@lrcd.org.uk). Please do whatever you have to do to use this email from now on. Cheers.  
