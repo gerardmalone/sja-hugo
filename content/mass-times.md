@@ -36,43 +36,6 @@ slug: "feasts-intentions"
 
 **Sacrament of Reconciliation with Exposition this week.**  
 Monday 9:30-9:55am at St. Peter’s and Tuesday 9:30-9:50am at St. Joseph’s
-Confession is also available by arrangement with Fr. Peter. Tel. 737037
-
-**Weekend Twenty Second Sunday in Ordinary Time**  
-**Saturday 30th**  
-1:30pm St. Joseph’s Wedding Service for Daniel and Laura  
-6pm St. Joseph’s Mass John Scally  
-**Sunday 31st**  
-9:15am St. Joseph’s Mass Liam Herron; Tony Crean  
-10:30am St. Peter’s Mass People of the Parish  
-
-**Monday 1st**  
-9am St. Peter's Mass Mary Josephine Buckley followed by Expositions and Confessions till 10am  
-7pm St. Joseph’s Vespers and Benediction  
-
-**Tuesday 2nd**  
-10am St. Joseph’s Mass Deceased of O’Dea Family preceded by Exposition and Confessions till 9:55am  
-2pm St. Peter’s Mass with St. Bede’s Year 7 for a Blessed School Year  
-
-**Wednesday 3rd**  
-10am Salcotes Cemetery Mass Sister Mary Parkinson  
-
-**Thursday 4th**  
-10am St. Joseph’s Mass For a very sick person  
-
-**Friday 5th**  
-11am St. Joseph’s Requiem Mass for Mary Patricia Reed  
-2pm St Joseph’s Mass and Sacrament of the Sick Robert Lo  
-
-**Weekend Twenty Second Sunday in Ordinary Time**  
-**Saturday 6th**  
-6pm St. Joseph’s Mass People of the Parish  
-**Sunday 7th**  
-9:15am St. Joseph’s Mass Peter Page  
-10:30am St. Peter’s Mass Deceased of Worsley Family  
-
-**Sacrament of Reconciliation with Exposition this week.**  
-Monday 9:30-9:55am at St. Peter’s and Tuesday 9:30-9:50am at St. Joseph’s  
 Confession is also available by arrangement with Fr. Peter. Tel. 737037  
 
 ## Normal Mass Times
