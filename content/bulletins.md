@@ -13,6 +13,9 @@ Please note that if you send information for the weekly bulletin via e-mail ([sj
 
 All bulletin queries should be directed to **Fr. Peter**. If there is a limited amount of space, notices may have to be abbreviated. Wherever possible a notice will be published in full. Notices can only be included up to a maximum of **3 weeks**.
 
+**Twentyfifth Sunday in Ordinary Time**  
+[21st September 2025](/bulletins/Bulletin210925.pdf)  
+
 **The Exaltation of the Cross**  
 [14th September 2025](/bulletins/Bulletin140925.pdf)  
 
@@ -24,9 +27,3 @@ All bulletin queries should be directed to **Fr. Peter**. If there is a limited 
 
 **Twentieth Sunday in Ordinary Time**  
 [17th August 2025](/bulletins/Bulletin170825.pdf)  
-
-**Nineteenth Sunday in Ordinary Time**  
-[10th August 2025](/bulletins/Bulletin100825.pdf)  
-
-**Eighteenth Sunday in Ordinary Time**  
-[3rd August 2025](/bulletins/Bulletin030825.pdf)  

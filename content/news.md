@@ -2,34 +2,44 @@
 title: "News"
 draft: false
 ---
-## 14th September 2025
+## 21st September 2025
 
 **Catholic Voice**  
-latest copy (Septenmber) can be found [by clicking this link](https://issuu.com/cathcom/docs/lancaster_sept_2025).
+latest copy (October) can be found [by clicking this link](https://issuu.com/cathcom/docs/lancaster_oct_2025).
 
 **Message from Father Peter:**  
-If you peruse the Arts pages of the newspapers (or the Arts pages of the Newspapers on the Internet, as I do), you’ll know there has been a new production of ‘Evita’ at the Palladium in London (which a parishioner at SP’s attended last week - huge thanks for the mug to add to my collection!). The ‘Opera’ (as it calls itself) begins with a setting of the Salve Regina (sung at the Requiem of Eva Peron), otherwise known in English as the ‘Hail, Holy Queen’, one of the four Marian Hymns which we sing at the end of Compline, the Night Prayer of the Church - we also traditionally recite it towards the end of the Rosary. The Prayer was composed during the Middle Ages and spread throughout Europe via various Monasteries and religious communities, and by the nineteenth century was a common prayer of the Church. The Prayer addresses Mary as a model of humanity, to whom we can identify, as ‘children of Eve’, and acknowledges that while there are difficulties and sorrows in this world, bringing forth tears and sighs - our own and those of others for whom we pray - we ask Mary to lead us in our fallen humanity to the fruit of her womb, Jesus our Saviour. The Month of September is traditionally dedicated to Mary, Mother of Sorrows, and with so many sorrows in this world, not least the anti-Catholic attack on children at Mass just two weeks ago, the prayer is more appropriate - and perhaps more necessary - than ever. Hail Holy Queen, Mother of mercy, Our life, our sweetness, and our hope. To thee do we cry, poor banished children of Eve. To thee do we send up our sighs, mourning and weeping in this valley of tears. Turn then, most gracious advocate, thine eyes of mercy toward us. And after this, our exile, show unto us the blessed fruit of thy womb, Jesus. O clement O loving O sweet Virgin Mary.  
-
-**Third Tuesday of the Month at SJSP’s.**  
-This Tuesday 16th September: Holy Hour with Rosary & Benediction, St. Peter’s at 6:30pm.  
-
-**Mass of the Schools’ Centenary Icon.**  
-With school representatives from our Fylde School Community. This Thursday 18th at 10am at St. Joseph’s.  
+Well it has been a lovely start to the Academic Year, and SJSP’s has played a great part in ensuring our children’s school year is firmly in the hands of our Blessed Lord, and his Mother, Mary. At SP’s we celebrated a Mass with Year 7 of St. Bede’s in the First Week at their new school, and the following week the whole of Our own School St. Peter’s, came into SP’s for a mass to celebrate the New Year. Last Thursday at SJ’s every Catholic school in the Fylde was represented at a special Mass celebrating the Jubilee Year, the Centenary of the Diocese, and to finally place the Statue of Our lady, which has been travelling round the diocese, into it’s final destination in one of our Schools. A couple of hundred children sang beautiful hymns to Our Lady, and I talked about the importance of looking up at these beautiful images we have in our Churches of the Saints and of our Blessed Mother, to help us on our journeys to Her Son. There is so much evangelization needed in the world, and in our own Diocese and Parishes, and our Schools play a huge part in that evangelization, but also as places, and conduits for us to share our faith and pass it on to our children. As well as thanking all who work in our schools, as well as our young people, and their parents, and our indefatigable Children’s Liturgy and sacrament teams, we should especially also give thanks to those who enable our children’s celebrations, in front and behind the scenes, those who prepare the sacristies and corral our Altar Servers, and provide music, as well as organizing these services in the first place – often at incredibly short notice, and coping with the unexpected. And huge thanks to everyone who personally supports me in this mission – especially when I cannot give them a clue as to what is actually going to happen! The mission to our children and their families, especially when we do not see them regularly at Church is vital, not only for the future of the Church, but as a significant response to the call of Christ to us and from us all. Let us make our Churches welcoming spaces – but also go out to where those children are, just as Christ went to the people wherever they were, and rejoicing in our God given gift to pass on the faith, which we have been graced to receive ourselves. Dear Lord, together we pray for our children. May they experience the joy of faith, the hope of the ‘Good News’ of Jesus and the love that comes from knowing the Lord’s great love for each one of us. May they grow in faith so that we all walk together as Your children, in peace and love. Help us to be better missionaries to them through our prayers, our work, and our example. Through Christ our Lord.  
 
 **Deanery Mass for the Centenary of the Diocese:**  
-Saturday 27th September at 11am at St. Joseph’s, Ansdell, for all the Parishes of the Kirkham Deanery, celebrated by Bishop Paul. Followed by a picnic in the grounds, with Refreshments available from the Hall.  
+This Saturday 27th September at 11am at St. Joseph’s, Ansdell, for all the Parishes of the Kirkham Deanery, celebrated by Bishop Paul.  Followed by a picnic in the grounds, with Refreshments available from the Hall.  
 
 **Lancaster Cathedral Mass for the Centenary of the Diocese:**  
-Sat 18th October at 11.30am. Each church has been allocated 2 tickets. If you would like to go please sign up, in pairs, on the sheet at the back of each Church. If necessary I will draw names out of a biretta.  
+Sat 18th October at 11.30am. Each church has been allocated 2 tickets. If you would like to go please sign up, in pairs, on the sheet at the back of each Church. If necessary, I will draw names out of a biretta.  
 
 **Burkina Faso:**  
-Please return any last envelopes envelope via the offertory collection next weekend. A final total will be available by the end of September. E.Gillett.  
+The 2025 appeal is now closed. Thank you to all who have contributed. A final total will be available soon.  
 
 **Red Mission Boxes:**  
-The Autumn collection from the boxes commences this week. Please would you bring your box to church and leave in the sacristy [make sure your name is on the box] The boxes will be returned to the sacristy after emptying. If you would like a box, please contact David Warwick.  
+The Autumn collection from the boxes commences this week. Please would you bring your box to church and leave in the sacristy [make sure your name is on the box] The boxes will be returned to the sacristy after emptying. If you would like a box, please contact David Warwick on the number in this weeks [bulletin]([https://st-josephsansdell.net/bulletins).  
 
 **The Church Grounds:**  
-Fr. Peter has asked me to organise a group of willing volunteers to take care of the planted borders at St. Joseph’s. The lawns and hedging are looked after privately. If you are willing and able to help out for an hour or two each month - probably less over winter after an initial tidy up, then please email me at [pat52benning@gmail.com](pat52benning@gmail.com) As ever, the more people who can commit, the less onerous the workload. Once I have names and mobile numbers, I’ll organise a get together. We have a beautiful church, let’s keep the gardens beautiful too. Thank you in anticipation. Pat. (And thanks from FrP too).  
+Fr. Peter has asked me to organise a group of willing volunteers to take care of the planted borders at St. Joseph’s. The lawns and hedging are looked after privately. If you are willing and able to help out for an hour or two each month - probably less over winter after an initial tidy up, then please email me at [pat52benning@gmail.com](mailto:pat52benning@gmail.com).  As ever, the more people who can commit, the less onerous the workload. Once I have names and mobile numbers, I’ll organise a get together. We have a beautiful church, let’s keep the gardens beautiful too. Thank you in anticipation. Pat. (And thanks from FrP., too)  
+
+**First Week of the Month at SJSP’s**  
+Please join us for these wonderful liturgies!  
+Wednesday 1st October  
+    Mass at Saltcotes Cemetery at 10am  
+    Mothers Prayers 6pm in SJ’s  
+Friday 3rd October  
+    First Friday Mass & Anointing of the Sick at St. Joseph’s at 2pm, followed by refreshments in the Parish Hall  
+ Monday 6th October  
+    Evening Prayer and Benediction at St. Peter’s at 7pm  
+
+**Thinking of Becoming a Priest?**  
+Come to the day of recollection and discernment! The day is for single men 16 years or over who are considering priesthood: Saturday 22 November 10am – 4pm at the Cathedral in Lancaster. The day will include Mass, adoration, guided prayer, talks to assist discernment, lunch. To book email Heather: [Heather.Watts@lrcd.org.uk](mailto:Heather.Watts@lrcd.org.uk) or Tel: 01524 841190. There is no charge.  
+
+**Have you heard of Mothers Prayers?**  
+The “Mothers Prayers” movement started in England in November 1995 and has spread rapidly throughout the world with contacts in over 100 Countries and has the approval, support and blessing of Christian leaders of all denominations. There are now thousands of groups around the world. For many years there has been an active Mothers Prayers group at Our Lady Star of the Sea and recently a new group started up in St Peter’s and St Joseph’s.  We always follow a simple but meaningful format, and the prayer time usually lasts between 30 and 45 minutes. Both groups meet on the first Wednesday of the month.  Please come to St. Joseph’s altar of Our Lady at 6.00pm or Our Lady Star of the Sea parish centre at 7.00pm. Additionally when not meeting in person there are weekly prayer sessions at 7.00pm on a Wednesday “online” using  Zoom. If you would like to know more about this comforting, supportive and joyful group, come and pray with us or talk to Emma Cox, Pauline Elston or Wanda Kruszynska. And if any fathers would like to pray together, there is a ‘Fathers Prayers’ movement too so perhaps you may wish to start one in Lytham St. Annes. Wanda Kruszynska  
 
 **Email Address:**  
 The Diocese is changing all email addresses. The one email for our two parishes is now [sjsp.lsa@lrcd.org.uk](mailto:sjsp.lsa@lrcd.org.uk). Please do whatever you have to do to use this email from now on. Cheers.  

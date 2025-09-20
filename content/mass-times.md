@@ -6,27 +6,6 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week  
 
-**Weekend The Exaltation of the Cross**  
-**Saturday 13th**  
-6pm St. Joseph’s Mass Jasna Dajic  
-**Sunday 14th**  
-9:15am St. Joseph’s Mass People of the Parish  
-10:30am St. Peter’s Mass Kathryn Pope  
-
-**Monday 15th**  
-9am St. Peter's Mass Deceased of the Worsley Family followed by Expositions and Confessions till 10am  
-
-**Tuesday 16th**  
-10am St. Joseph’s Mass 90th B’day Ints. of Patricia McHale preceded by Exposition and Confessions till 9:55am  
-6:30pm St. Peter’s Rosary and Benediction  
-
-**Wednesday 17th**  
-9am St. Peter’s Mass Mary Chesworth  
-11am St. Peter’s Funeral Service for Barbara Sanderson  
-
-**Thursday 18th**  
-10am St. Joseph’s Mass of the Diocesan School’s Icon Deceased of Kruszynski Family  
-
 **Weekend 25th Sunday of the Year**  
 **Saturday 21st**  
 6pm St. Joseph’s Mass People of the Parish  
@@ -34,8 +13,30 @@ slug: "feasts-intentions"
 9:15am St. Joseph’s Mass Cathleen Sanders  
 10:30am St. Peter’s Mass Helen and Victor Hayes  
 
+**Monday 22nd**  
+9am St. Peter's Mass Chris Hall followed by Expositions and Confessions till 10am  
+
+**Tuesday 23rd**  
+10am St. Joseph’s Mass William and Mary Murray preceded by Exposition and Confessions till 9:55am
+
+**Wednesday 24th**  
+11am St. Peter’s Requiem Mass for Tony Bolton  
+
+**Thursday 25th**  
+10am St. Joseph’s Mass For a Just Peace  
+
+**Friday 26th**  
+2:45pm Lytham Crematorium Service for Jack Dempsey Pickles  
+
+**Weekend 26th Sunday of the Year**  
+**Saturday 27th**  
+6pm St. Joseph’s Mass Alan Hesketh Birthday Remembrance  
+**Sunday 28th**  
+9:15am St. Joseph’s Mass People of the Parish  
+10:30am St. Peter’s Mass Mr and Mrs. J Matthews  
+
 **Sacrament of Reconciliation with Exposition this week.**  
-Monday 9:30-9:55am at St. Peter’s and Tuesday 9:30-9:50am at St. Joseph’s
+Monday 9:30-9:55am at St. Peter’s and Tuesday 9:30-9:50am at St. Joseph’s  
 Confession is also available by arrangement with Fr. Peter. Tel. 737037  
 
 ## Normal Mass Times
