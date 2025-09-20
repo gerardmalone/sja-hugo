@@ -7,7 +7,7 @@ slug: "feasts-intentions"
 ## Feasts and Intentions this week  
 
 **Weekend 25th Sunday of the Year**  
-**Saturday 21st**  
+**Saturday 20th**  
 6pm St. Joseph’s Mass People of the Parish  
 **Sunday 21st**  
 9:15am St. Joseph’s Mass Cathleen Sanders  
