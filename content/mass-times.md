@@ -6,40 +6,37 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week  
 
-**Weekend 26th Sunday of the Year**  
-**Saturday 27th**  
-6pm St. Joseph's Mass Alan Hesketh Birthday Remembrance  
-**Sunday 28th**  
-9:15am St. Joseph's Mass People of the Parish  
-10:30am St. Peter's Mass Mr and Mrs. J Matthews  
-
-**Monday 29th**  
-9am St. Peter's Mass Pauline Whitlow followed by Expositions and Confessions till 10am  
-
-**Tuesday 30th**  
-10am St. Joseph's Mass Michael Wren Hilton preceded by Exposition and Confessions till 9:55am  
-
-**Wednesday 1st**  
-10am Saltcotes Cemetery Mass Sr. Philomena Power  
-6pm St. Joseph's Mothers Prayers  
-
-**Thursday 2nd**  
-10am St. Joseph's Mass Chris Thompson  
-
-**Friday 3rd**  
-2pm St. Joseph's Mass and Sacrament of the Sick Mary Chesworth  
-
-**Weekend 27th Sunday of the Year**  
+**Weekend 27th Sunday of the Year.**  
 **Saturday 4th**  
-12 noon St. Peter's Wedding Service for Dorothy and Sean  
-6pm St. Joseph's Mass People of the Parish  
+12noon St. Peter’s Wedding Service for Dorothy and Sean  
+6pm St. Joseph’s Mass People of the Parish  
 **Sunday 5th**  
-9:15am St. Joseph's Mass Ron Rawstron  
-10:30am St. Peter's Mass Harrison Bretherton  
+9:15am St. Joseph’s Mass Ron Rawstron  
+10:30am St. Peter’s Mass Harrison Bretherton  
+
+**Monday 6th**  
+9am St. Peter's Mass Mrs. Patricia O’Brien followed by Expositions and Confessions till 10am  
+7pm St. Peter’s Evening Prayer and Benediction  
+
+**Tuesday 7th**  
+10am St. Joseph’s Mass For Mary Chesworth in thanksgiving preceded by Exposition and Confessions till 9:55am  
+
+**Wednesday 8th**  
+9am St Peter’s Mass Deceased Of O’Dea Family  
+
+**Thursday 9th**  
+10am St. Joseph’s Mass Marie and Ted Gillett  
+
+**Weekend 28th Sunday of the Year**  
+**Saturday 11th**  
+6pm St. Joseph’s Mass People of the Parish  
+**Sunday 12th**  
+9:15am St. Joseph’s Mass Deceased Parents Ken and Margaret Hammond  
+10:30am St. Peter’s Mass John Nolan  
 
 **Sacrament of Reconciliation with Exposition this week.**  
-Monday 9:30-9:55am at St. Peter's and Tuesday 9:30-9:50am at St. Joseph's  
-Confession is also available by arrangement with Fr. Peter. Tel. 737037  
+Monday 9:30-9:55am at St. Peter’s and Tuesday 9:30-9:50am at St. Joseph’s
+Confession is also available by arrangement with Fr. Peter. Tel. 737037.  
 
 ## Normal Mass Times
 
