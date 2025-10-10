@@ -6,37 +6,35 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week  
 
-**Weekend 27th Sunday of the Year.**  
-**Saturday 4th**  
-12noon St. Peter’s Wedding Service for Dorothy and Sean  
-6pm St. Joseph’s Mass People of the Parish  
-**Sunday 5th**  
-9:15am St. Joseph’s Mass Ron Rawstron  
-10:30am St. Peter’s Mass Harrison Bretherton  
-
-**Monday 6th**  
-9am St. Peter's Mass Mrs. Patricia O’Brien followed by Expositions and Confessions till 10am  
-7pm St. Peter’s Evening Prayer and Benediction  
-
-**Tuesday 7th**  
-10am St. Joseph’s Mass For Mary Chesworth in thanksgiving preceded by Exposition and Confessions till 9:55am  
-
-**Wednesday 8th**  
-9am St Peter’s Mass Deceased Of O’Dea Family  
-
-**Thursday 9th**  
-10am St. Joseph’s Mass Marie and Ted Gillett  
-
 **Weekend 28th Sunday of the Year**  
 **Saturday 11th**  
 6pm St. Joseph’s Mass People of the Parish  
 **Sunday 12th**  
-9:15am St. Joseph’s Mass Deceased Parents Ken and Margaret Hammond  
+9:15am St. Joseph’s Mass Deceased parents Ken and Margaret Hammond  
 10:30am St. Peter’s Mass John Nolan  
+
+**Monday 13th**  
+9am St. Peter's Mass Intentions of Teresa Flanagan followed by Expositions and Confessions till 10am  
+
+**Tuesday 14th**  
+10am St. Joseph’s Mass William and Mary Murray preceded by Exposition and Confessions till 9:55am  
+
+**Wednesday 15th**  
+9am St Peter’s Mass Intentions of Terry Thompson and Family  
+
+**Thursday 16th**  
+10am St. Joseph’s Mass Peter Preston  
+
+**Weekend 29th Sunday of the Year**  
+**Saturday 18th**  
+6pm St. Joseph’s Mass People of the Parish  
+**Sunday 19th**  
+9:15am St. Joseph’s Mass Joe Pisacane  
+10:30am St. Peter’s Mass Private Intention (G.B)  
 
 **Sacrament of Reconciliation with Exposition this week.**  
 Monday 9:30-9:55am at St. Peter’s and Tuesday 9:30-9:50am at St. Joseph’s
-Confession is also available by arrangement with Fr. Peter. Tel. 737037.  
+Confession is also available by arrangement with Fr. Peter. Tel. 737037
 
 ## Normal Mass Times
 
