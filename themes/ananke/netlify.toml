@@ -16,6 +16,7 @@ command = "hugo --gc --minify"
 HUGO_VERSION = "0.139.4"
 HUGO_ENV = "production"
 GO_VERSION = "1.23"
+  NODE_VERSION = "20"
 
 [build.processing]
 
