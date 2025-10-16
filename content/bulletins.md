@@ -13,17 +13,17 @@ Please note that if you send information for the weekly bulletin via e-mail ([sj
 
 All bulletin queries should be directed to **Fr. Peter**. If there is a limited amount of space, notices may have to be abbreviated. Wherever possible a notice will be published in full. Notices can only be included up to a maximum of **3 weeks**.
 
-**Twentyninth Sunday in Ordinary Time**
-[19th October 2025](/bulletins/Bulletin191025.pdf)
+**Twentyninth Sunday in Ordinary Time**  
+[19th October 2025](/bulletins/Bulletin191025.pdf)  
 
-**Twentyeight Sunday in Ordinary Time**
-[12th October 2025](/bulletins/Bulletin121025.pdf)
+**Twentyeight Sunday in Ordinary Time**  
+[12th October 2025](/bulletins/Bulletin121025.pdf)  
 
-**Twentyseventh Sunday in Ordinary Time**
-[5th October 2025](/bulletins/Bulletin051025.pdf)
+**Twentyseventh Sunday in Ordinary Time**  
+[5th October 2025](/bulletins/Bulletin051025.pdf)  
 
-**Twentysixth Sunday in Ordinary Time**
-[28th September 2025](/bulletins/Bulletin280925.pdf)
+**Twentysixth Sunday in Ordinary Time**  
+[28th September 2025](/bulletins/Bulletin280925.pdf)  
 
-**Twentyfifth Sunday in Ordinary Time**
-[21st September 2025](/bulletins/Bulletin210925.pdf)
+**Twentyfifth Sunday in Ordinary Time**  
+[21st September 2025](/bulletins/Bulletin210925.pdf)  
