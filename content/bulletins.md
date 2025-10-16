@@ -11,7 +11,7 @@ The last five bulletins are available below. Please click on the link for the bu
 
 Please note that if you send information for the weekly bulletin via e-mail ([sjsp.lsa@lrcd.org.uk](mailto:sjsp.lsa@lrcd.org.uk)), kindly ensure that it arrives by **Wednesday night** for inclusion in the bulletin which will be distributed at Holy Mass on **Saturday and Sunday**.
 
-All bulletin queries should be directed to **Fr. Peter**. If there is a limited amount of space, notices may have to be abbreviated. Wherever possible a notice will be published in full. Notices can only be included up to a maximum of **3 weeks**. Testing2
+All bulletin queries should be directed to **Fr. Peter**. If there is a limited amount of space, notices may have to be abbreviated. Wherever possible a notice will be published in full. Notices can only be included up to a maximum of **3 weeks**. Testing3
 
 **Twentyeight Sunday in Ordinary Time**  
 [12th October 2025](/bulletins/Bulletin121025.pdf)  
