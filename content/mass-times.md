@@ -6,26 +6,6 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week
 
-**Weekend 29th Sunday of the Year**  
-**Saturday 18th**  
-6pm St. Joseph’s Mass People of the Parish  
-**Sunday 19th**  
-9:15am St. Joseph’s Mass Joe Pisacane  
-10:30am St. Peter’s Mass Private Intention (G B)  
-
-**Monday 21st**  
-No Mass  
-
-**Tuesday 22nd**  
-No Morning Mass  
-6:30pm St. Joseph’s Holy Hour with Rosary and Benediction  
-
-**Wednesday 22nd**  
-9am St Peter’s Mass Mary Chesworth  
-
-**Thursday 23rd**  
-10am St. Joseph’s Mass Carol Poe  
-
 **Weekend 30th Sunday of the Year**  
 **Saturday 25th**  
 6pm St. Joseph’s Mass Jo Tomlinson  
@@ -33,7 +13,29 @@ No Morning Mass
 9:15am St. Joseph’s Mass Ursula Cooper  
 10:30am St. Peter’s Mass People of the Parish  
 
-**No Sacrament of Reconciliation with Exposition this week.**  
+**Monday 27th**  
+9am St. Peter’s  Mass Mr and Mrs W. Holland followed by Expositions and Confessions till 10am  
+
+**Tuesday 28th**  
+10am St. Joseph’s Mass Ray Cross preceded by Exposition and Confessions till 9:55am  
+
+**Wednesday 29th**  
+11am St Peter’s Requiem Mass for Judith Cross  
+
+**Thursday 30th**  
+10am St. Joseph’s Mass Thomas and Annie Ainsworth  
+
+**Weekend All Saints**  
+**Saturday 1st**  
+10pm Saltcotes Cemetery Mass for the Holy Souls  
+6pm St. Joseph’s Mass Tony Gleeson  
+**Sunday 2nd**  
+9:15am St. Joseph’s Mass Deceased of the O’ Dea Family  
+10:30am St. Peter’s Mass People of the Parish  
+
+**Sacrament of Reconciliation with Exposition this week.**  
+Monday 9:30-9:55am at St. Peter’s and Tuesday 9:30-9:50am at St. Joseph’s  
+Confession is also available by arrangement with Fr. Peter. Tel. 737037  
 
 ## Normal Mass Times  
 
