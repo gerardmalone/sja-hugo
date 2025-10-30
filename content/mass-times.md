@@ -6,32 +6,39 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week
 
-**Weekend 30th Sunday of the Year**  
-**Saturday 25th**  
-6pm St. Joseph’s Mass Jo Tomlinson  
-**Sunday 26th**  
-9:15am St. Joseph’s Mass Ursula Cooper  
-10:30am St. Peter’s Mass People of the Parish  
-
-**Monday 27th**  
-9am St. Peter’s  Mass Mr and Mrs W. Holland followed by Expositions and Confessions till 10am  
-
-**Tuesday 28th**  
-10am St. Joseph’s Mass Ray Cross preceded by Exposition and Confessions till 9:55am  
-
-**Wednesday 29th**  
-11am St Peter’s Requiem Mass for Judith Cross  
-
-**Thursday 30th**  
-10am St. Joseph’s Mass Thomas and Annie Ainsworth  
-
 **Weekend All Saints**  
 **Saturday 1st**  
-10pm Saltcotes Cemetery Mass for the Holy Souls  
+10pm Saltcotes Cemetery Mass for the Holy Souls.  
 6pm St. Joseph’s Mass Tony Gleeson  
 **Sunday 2nd**  
 9:15am St. Joseph’s Mass Deceased of the O’ Dea Family  
 10:30am St. Peter’s Mass People of the Parish  
+
+**Monday 3rd**  
+9am St. Peter’s Mass Mary Josephine Buckley followed by Expositions and Confessions till 10am  
+11am Lytham Crematorium Service for Veronica Holloway  
+7pm St. Joseph’s Evening Prayer and Benediction.  
+
+**Tuesday 4th**  
+10am St. Joseph’s Mass Moira Roberts preceded by Exposition and Confessions till 9:55am  
+
+**Wednesday 5th**  
+10am Saltcotes Mass Roseanne and Phillip Scott  
+
+**Thursday 6th**  
+10am St. Joseph’s Mass Elizabeth Whitehead  
+2pm Lytham Crematorium Service for Terence Smith  
+
+**Friday 7th**  
+2pm St. Joseph’s Mass and Sacrament of the Sick Kieran Egan  
+
+**Weekend Dedication of the Lateran Basilica**  
+**Saturday 8th**  
+6pm St. Joseph’s Mass People of the Parish  
+**Sunday 9th**  
+9:15am St. Joseph’s Mass Graham Chandler  
+10:30amSt. Peter’s Mass Geoff Stappard.  
+rish  
 
 **Sacrament of Reconciliation with Exposition this week.**  
 Monday 9:30-9:55am at St. Peter’s and Tuesday 9:30-9:50am at St. Joseph’s  
