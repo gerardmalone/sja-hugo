@@ -6,35 +6,36 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week
 
-**Weekend Thirty Third Sunday of the Year**  
-**Saturday 15th**  
-6pm St. Joseph’s Mass Staff at the Victoria Hospital A&E Department.  
-**Sunday 16th**  
-9:15am St. Joseph’s Mass People of the Parish  
-10:30am St. Peter’s Mass John Vine  
-
-**Monday 17th**  
-9am St. Peter’s Mass Intentions of Kate Windlemeese followed by Expositions and Confessions till 10am  
-
-**Tuesday 18th**  
-10am St. Joseph’s Mass Samantha Rawstron  
-6:30pm St. Peter’s Holy Hour with Rosary and Benediction  
-
-**Wednesday 19th**  
-9am St. Peter’s Mass Henry John Whelan  
-
-**Thursday 20th**  
-10am St. Joseph’s Mass William and Mary Murray  
-
 **Weekend Our Lord Jesus Christ, King of the Universe**  
-Saturday 22nd  
-**6pm St. Joseph’s Mass John McGuirk**  
-Sunday 23rd  
+**Saturday 22nd**  
+6pm St. Joseph’s Mass John McGuirk  
+**Sunday 23rd**  
 9:15am St. Joseph’s Mass People of the Parish  
 10:30am St. Peter’s Mass Niamh Kate Garnett  
 
+**Monday 24th**  
+9am St. Peter’s Mass Judith Cross followed by Expositions and Confessions till 10am  
+4am Stella Mattutina Vigil Reception Mass for Jo  
+
+**Tuesday 25th**  
+10am St. Joseph’s Mass John Cookson preceded by Exposition and Confessions till 9:55am  
+11:30am St. Peter’s Requiem Mass for Jo Tomlinson  
+
+**Wednesday 26th**  
+9am St. Peter’s Mass Pat Smith  
+
+**Thursday 27th**  
+No Mass Today  
+
+**Weekend The First Sunday of Advent Year A**  
+**Saturday 29th**  
+6pm St. Joseph’s Mass Deceased of the Burke Family  
+**Sunday 30th**  
+9:15am St. Joseph’s Mass Brian Walmsley  
+10:30am St. Peter’s Mass People of the Parish  
+
 **Sacrament of Reconciliation with Exposition this week.**  
-Monday 9:30-9:55am at St. Peter’s; no devotions at St. Joseph’s this week  
+Monday 9:30-9:55am at St. Peter’s and Tuesday 9:30-9:50am at St. Joseph’s  
 Confession is also available by arrangement with Fr. Peter. Tel. 737037  
 
 ## Normal Mass Times  

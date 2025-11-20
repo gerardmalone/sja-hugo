@@ -2,37 +2,34 @@
 title: "News"
 draft: false
 ---
-## 16th November 2025
+## 23rd November 2025
 
 **Catholic Voice**  
 latest copy (November) can be found [by clicking this link](https://issuu.com/cathcom/docs/lancaster_november_2025).  
 
 **Message from Father Peter:**  
-When I was in Lourdes earlier this year I saw a statue the like of which I had never seen before. Regrettably I didn’t buy it, but when I was telling a |Parishioner about it they very kindly sourced one and presented it to me (many thanks and blessing to you!). The Statue is of the hand of Jesus, bearing the wound of one of the nails of crucifixion. On the top of the thumb is a figure of the child Jesus, followed, on each finger, by images of Joseph, Mary, and then Mary’s Parents, Jesus’ earthly Grand-parents, Joachim and Anne, with angels at the bottom carrying the instruments of the Crucifixion. The Statue is a popular devotion from Mexico, apparently, and is known as ‘La Mano Poderosa’, the Powerful Hand, or ‘las Cinco Personas’, the Five Persons. Prayers to be recited in front of the Powerful Hand often focus on the Hand of God being able to wisely influence our own actions, and those of events around us, especially in tempestuous times. However, the Statue appeals to me especially because it is an extension of the Holy Family which we celebrate at Christmas, with the inclusion of Joachim and Ann. It makes me think about how they must have pondered the events of the birth of Jesus, perhaps with the confusion of Joseph or the immediate willingness of Mary. I’ll place the Statue on the Lady Altar at SP’s this week, and SJ’s next week, and perhaps you might take the time to say this wonderful prayer of Benedict XVI for our Grandparents. It’s rather good. *Lord Jesus, born of the Virgin Mary, daughter of Saints Joachim and Anne, look with love on grandparents the world over. Protect and support them! As they grow older, may they continue to be for their families strong pillars of Gospel faith, guardians of noble ideals, living treasuries of sound religious traditions. Lord Jesus, help families and society to value the presence and roles of grandparents. Mary, Mother of all the living, keep grandparents constantly in your care, accompany them on their earthly pilgrimage, and by your prayers, grant that all families may one day be reunited in our heavenly homeland, where you await all humanity for the great embrace of life without end. Amen!*.  
+We are blessed at SJSP’s to have beautiful music at our weekend services, and other services throughout the work too (especial thanks to all our singers and musicians), which enable us to sing many and varied hymns from the vast and great (and sometimes not-so-great) Hymnology of the Church. Surely one of our greatest and joyful hymns is the Anthem of today’s Feast, ‘Hail Redeemer King Divine’. As you know the Sundays of the Year run on a three year cycle and the verses of this hymn make reference to this, speaking of the Kingship of Christ in its different ways: in Year A we think of the whole of Creation bowing before the King at the Last Judgement; Year B focuses on the King whose Kingdom is not of this world; whilst Year C, of which this is the last Sunday, sees the Kingdom, Paradise, being offered to even the most unlikely, who put their trust in him. The Hymn also speaks of the Kingdom of Christ as a Shepherd guides his flock, and even makes reference to Him guiding the Youth, a salutary reminder to us all about the future of the Church – and also that this is ‘Youth Sunday’ in England and Wales. There are so many facets to this final Sunday of the Church’s Year, just as there are of the title ‘Christ the King’. However we wish to celebrate this Feast lets make sure that we echo in our prayers and in our lives the chorus of this great hymn, and make it a fitting end to our Liturgical Year, as we look forward to beginning another Year with the First Sunday of Advent next week and make our preparations for the celebration of the birth of this King: *‘Angels, Saints and Nations sing: ‘Praise be Jesus Christ our King; Lord of life, earth, sky and sea, King of love on Calvary!’*  
 
-**Annual Deanery Mass for Deceased Clergy:**  
-This Tuesday 18th at 10am at SJ’s we celebrate the Annual Deanery Mass for Deceased Clergy. All Welcome.  
-
-**Fr. Peter / Star of the Sea:**  
-Please note that I’m still covering the 5pm Mass at Star of the Sea, so not around to welcome for the 6pm! Please pray for Fr. Peter that he continues to make an excellent recovery.  
-
-**The Food Bank:**  
-during the weeks leading up to Christmas, if it is possible to boost any Food Bank offerings, perhaps with some children’s Christmas type goodies, it would be much appreciated. On Monday 9am Mass at St. Peter’s Pupils from St. Bede’s will bringing some of their Food Bank Donations to the SVP, with blessings and thanks to them for their kindness.  
+**Fr Peter Hart:**  
+Please note I’m still covering SoS at 5pm On Saturdays. Please pray for Fr. Peter Hart that he continues to make an excellent recovery.  
 
 **Ansdell Christmas Lights Switch On:**  
-Saturday 29th November: Everyone is welcome to walk from outside St. Joseph’s at 4pm, singing some Carols, up to the Institute for a Prayer and the Switch On. Dressing up and carrying Lanterns is optional but encouraged! Please note that on this Saturday Woodlands Road will be closed from 2pm-7pm so bear this in mind if you are driving to 6pm Mass.  
+This coming Saturday 29th November: Everyone is welcome to walk from outside St. Joseph’s at 4pm, singing some Carols, up to the Institute for a Prayer and the Switch On. Dressing up and carrying Lanterns is optional but encouraged! Please note that on this Saturday Woodlands Road will be closed from 2pm-7pm so bear this in mind if you are driving to 6pm Mass. And bravissimi to our SJSP Choirs and Ukulele Orchestra for their fine singing and playing at Lytham Light Switch on last week.  
 
-**Burkina Faso:**  
-The £1,276.76 raised by our 2025 appeal will probably go towards repairing a boundary wall and thus improving the security of Bernardine Community. In the last 5 years jihadis are roaming more and more freely so good security is essential. A further update and photographs will be available on their return. E. Gillett  
+**SJSP Confirmation 2026.**  
+The Bishop will be coming to SJSP’s to confer the Sacrament of Confirmation on Tuesday 10th February at SP’s at 6:30pm. Candidates in Year 6 or above are welcome to get an application form from Fr. Peter after Weekend Masses.  
 
-**The Advent Posada:**  
-As Advent approaches the opportunity to be an Inn Keeper, and house for an evening the Statue of the Travelling Holy Family on the journey to Bethlehem, is again open to all members of the Parish.. Please add your name to the list at the back of church.  
+**The Food Bank:**  
+During the weeks leading up to Christmas, if it is possible to boost any Food Bank offerings, perhaps with some children’s Christmas type goodies, it would be much appreciated.  
+
+**Christmas Cards:**  
+If you are sending cards, please make them religious ones! There is a section in the Repository at the back of Church.  
 
 **SJ’s Christmas Breakfast:**  
 SJ’s Christmas Breakfast after 9:15am Mass on Sunday 14th December. Please sign up on the sheet at the back of Church.  
 
-**SJSP Ukulele Orchestra:**  
-still strumming away at St. Peter’s on Monday evenings, and everyone welcome. News about the fund-raising Christas Album next week!  
+**It's here:**  
+The SJSP Ukulele Orchestra (along with children from the parishes) Christmas Album. Only £5 - a perfect stocking filler! All proceeds shared between Brian House Children's Hospice and the StreetLife Trust in Blackpool. CDs available at the back of church at the end of Mass and for downloads, email [ann@zammits.me.uk](mailto:ann@zammits.me.uk). With huge thanks to Mark Brocklesby for his recording and producing expertise. SJSP Ukulele Orchestra: still strumming away, this week in the Presbytery at SJ’s on Tuesday at 7pm.  
 
 **Dates of the Diary**  
 Sunday 7th December:  
