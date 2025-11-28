@@ -6,7 +6,7 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week
 
-**Weekend Our Lord Jesus Christ, King of the Universe**  
+**Weekend First Sunday of Advent**  
 **Saturday 29th**  
 6pm St. Joseph’s Mass Deceased of the Burke Family  
 **Sunday 30th**  
@@ -29,7 +29,7 @@ slug: "feasts-intentions"
 **Friday 5th**  
 2pm St. Joseph’s Mass and Sacrament of the Sick Roseanne and Patrick Scott  
 
-**Weekend First Sunday of Advent**  
+**Weekend Second Sunday of Advent**  
 **Saturday 6th**  
 6pm St. Joseph’s Mass Special Intentions  
 **Sunday 7th**  
