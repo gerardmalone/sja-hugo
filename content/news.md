@@ -2,34 +2,41 @@
 title: "News"
 draft: false
 ---
-## 23rd November 2025
+## 30th November 2025
 
 **Catholic Voice**  
-latest copy (November) can be found [by clicking this link](https://issuu.com/cathcom/docs/lancaster_november_2025).  
+latest copy (December) can be found [by clicking this link](https://issuu.com/cathcom/docs/lancaster_voice_decemeber_2025).  
 
-**Message from Father Peter:**  
-We are blessed at SJSP’s to have beautiful music at our weekend services, and other services throughout the work too (especial thanks to all our singers and musicians), which enable us to sing many and varied hymns from the vast and great (and sometimes not-so-great) Hymnology of the Church. Surely one of our greatest and joyful hymns is the Anthem of today’s Feast, ‘Hail Redeemer King Divine’. As you know the Sundays of the Year run on a three year cycle and the verses of this hymn make reference to this, speaking of the Kingship of Christ in its different ways: in Year A we think of the whole of Creation bowing before the King at the Last Judgement; Year B focuses on the King whose Kingdom is not of this world; whilst Year C, of which this is the last Sunday, sees the Kingdom, Paradise, being offered to even the most unlikely, who put their trust in him. The Hymn also speaks of the Kingdom of Christ as a Shepherd guides his flock, and even makes reference to Him guiding the Youth, a salutary reminder to us all about the future of the Church – and also that this is ‘Youth Sunday’ in England and Wales. There are so many facets to this final Sunday of the Church’s Year, just as there are of the title ‘Christ the King’. However we wish to celebrate this Feast lets make sure that we echo in our prayers and in our lives the chorus of this great hymn, and make it a fitting end to our Liturgical Year, as we look forward to beginning another Year with the First Sunday of Advent next week and make our preparations for the celebration of the birth of this King: *‘Angels, Saints and Nations sing: ‘Praise be Jesus Christ our King; Lord of life, earth, sky and sea, King of love on Calvary!’*  
+**Message from Fr. Peter:**  
+And a very Happy New Year to you all as we begin a new Year in the life of the Church. Today we begin the beautiful season of Advent – my favourite Season in the Year of the Church, yet one which is somewhat sadly always rushed, and one of the busiest, as we all run around preparing for Christmas, not always taking the time to pause and reflect about what we are truly preparing for. The readings for this season, both on Sundays and Weekdays really do draw us into the beauty of the four weeks, as we try to get into the spirit of the people of old awaiting the expected arrival of the Messiah. In this Year of Matthew, the Sunday Gospels will speak about the coming of the Son of Man, and his heralding by John the Baptist. For the first few weekdays we take on the spirit of the prophets who waited and longed for the Messiah, who would free them from evil and deliver them from their enemies. Then, in the middle of next week we look to the person of John the Baptist and his call to ‘Prepare ye the way of the Lord’, not least Christ’s own words about his elder cousin, until, finally, from December 17th we really begin the Christmas story delving into the heart and mind of our Blessed Mother Mary, as she looked forward to the birth of her Son, along with the other protagonists in the infancy narratives of Jesus. With such beautiful readings to help us at our Masses, along with our celebrations on Mondays of Evening Prayer, as well as our school carol services, and our own Children’s Nativity, let’s make this Season of Advent a real spiritual time of preparation – alongside our material preparations – so that in every way possible we are truly ready to celebrate the birth of Jesus. Here is a beautiful Advent Prayer by Henri Nouwen. *Lord Jesus, Master of both the light and the darkness, send your Holy Spirit upon our preparations for Christmas. We who have so much to do seek quiet spaces to hear your voice each day. We who are anxious over many things look forward to your coming among us. We who are blessed in so many ways long for the complete joy of your kingdom. We whose hearts are heavy seek the joy of your presence. We are your people, walking in darkness, yet seeking the light. To you we say, ‘Come Lord Jesus!’*
 
-**Fr Peter Hart:**  
-Please note I’m still covering SoS at 5pm On Saturdays. Please pray for Fr. Peter Hart that he continues to make an excellent recovery.  
+**Fr. Peter Hart:**  
+Please note that while Fr. Peter Hart is recovering from his operation, I’m on 5pm at SoS. Please pray for Fr. Hart as he continues his recuperation.  
 
-**Ansdell Christmas Lights Switch On:**  
-This coming Saturday 29th November: Everyone is welcome to walk from outside St. Joseph’s at 4pm, singing some Carols, up to the Institute for a Prayer and the Switch On. Dressing up and carrying Lanterns is optional but encouraged! Please note that on this Saturday Woodlands Road will be closed from 2pm-7pm so bear this in mind if you are driving to 6pm Mass. And bravissimi to our SJSP Choirs and Ukulele Orchestra for their fine singing and playing at Lytham Light Switch on last week.  
+**Advent and Christmas Leaflet:**  
+Please take one of the leaflets and join us for the many gatherings throughout this beautiful season. Perhaps you could take a leaflet for a friend and invite them to SJSP for Christmas? Evening Prayer and Benediction Every Monday during Advent: see Newsletter and Advent Leaflet for details of venue.  
+
+**First Week of Advent at SJSP’s**  
+Please join us for these wonderful liturgies!  
+  Monday 1st December: Evening Prayer and Benediction at St. Peter’s at 7pm.  
+  Wednesday 3rd December: Mass at Saltcotes Cemetery at 10am.  
+  Wednesday 3rd September: Mothers Prayers at 6pm in SJ’s.  
+  Friday 5th December: First Friday Mass & Anointing of the Sick at St. Joseph’s at 2pm, followed by Refreshments in the Parish Hall.  
 
 **SJSP Confirmation 2026.**  
 The Bishop will be coming to SJSP’s to confer the Sacrament of Confirmation on Tuesday 10th February at SP’s at 6:30pm. Candidates in Year 6 or above are welcome to get an application form from Fr. Peter after Weekend Masses.  
 
+**National Grief Awareness Week:**  
+Chris McIndoe is holding a Grief Support Café in Lytham Library on Wednesday 3rd December 11am-12noon. All welcome for support, or to find out what support is available.  
+
 **The Food Bank:**  
-During the weeks leading up to Christmas, if it is possible to boost any Food Bank offerings, perhaps with some children’s Christmas type goodies, it would be much appreciated.  
+during the weeks leading up to Christmas, if it is possible to boost any Food Bank offerings, perhaps with some children’s Christmas type goodies, it would be much appreciated.  
 
-**Christmas Cards:**  
-If you are sending cards, please make them religious ones! There is a section in the Repository at the back of Church.  
+**Advent events at Fairhaven Methodist Church:**  
+Music for Christmas, Saturday 13 December at 7:30 pm and a Nativity Festival (free entry) from Saturday 29 Nov - Saturday 6 December. See posters in the church porch for more details.  
 
-**SJ’s Christmas Breakfast:**  
-SJ’s Christmas Breakfast after 9:15am Mass on Sunday 14th December. Please sign up on the sheet at the back of Church.  
-
-**It's here:**  
-The SJSP Ukulele Orchestra (along with children from the parishes) Christmas Album. Only £5 - a perfect stocking filler! All proceeds shared between Brian House Children's Hospice and the StreetLife Trust in Blackpool. CDs available at the back of church at the end of Mass and for downloads, email [ann@zammits.me.uk](mailto:ann@zammits.me.uk). With huge thanks to Mark Brocklesby for his recording and producing expertise. SJSP Ukulele Orchestra: still strumming away, this week in the Presbytery at SJ’s on Tuesday at 7pm.  
+**The SJSP Ukulele Orchestra (along with children from the parishes) Christmas Album.**  
+Only £5 - a perfect stocking filler! All proceeds shared between Brian House Children's Hospice and the StreetLife Trust in Blackpool. CDs available at the back of church at the end of Mass and for downloads, email [ann@zammits.me.uk](mailto:ann@zammits.me.uk). With huge thanks to Mark Brocklesby for his recording and producing expertise. SJSP Ukulele Orchestra: still strumming away, this week in the Presbytery at SJ’s on Tuesday at 7pm.
 
 **Dates of the Diary**  
 Sunday 7th December:  
