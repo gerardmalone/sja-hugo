@@ -2,45 +2,49 @@
 title: "News"
 draft: false
 ---
-## 30th November 2025
+## 7th December 2025
 
 **Catholic Voice**  
 latest copy (December) can be found [by clicking this link](https://issuu.com/cathcom/docs/lancaster_voice_decemeber_2025).  
 
 **Message from Fr. Peter:**  
-And a very Happy New Year to you all as we begin a new Year in the life of the Church. Today we begin the beautiful season of Advent – my favourite Season in the Year of the Church, yet one which is somewhat sadly always rushed, and one of the busiest, as we all run around preparing for Christmas, not always taking the time to pause and reflect about what we are truly preparing for. The readings for this season, both on Sundays and Weekdays really do draw us into the beauty of the four weeks, as we try to get into the spirit of the people of old awaiting the expected arrival of the Messiah. In this Year of Matthew, the Sunday Gospels will speak about the coming of the Son of Man, and his heralding by John the Baptist. For the first few weekdays we take on the spirit of the prophets who waited and longed for the Messiah, who would free them from evil and deliver them from their enemies. Then, in the middle of next week we look to the person of John the Baptist and his call to ‘Prepare ye the way of the Lord’, not least Christ’s own words about his elder cousin, until, finally, from December 17th we really begin the Christmas story delving into the heart and mind of our Blessed Mother Mary, as she looked forward to the birth of her Son, along with the other protagonists in the infancy narratives of Jesus. With such beautiful readings to help us at our Masses, along with our celebrations on Mondays of Evening Prayer, as well as our school carol services, and our own Children’s Nativity, let’s make this Season of Advent a real spiritual time of preparation – alongside our material preparations – so that in every way possible we are truly ready to celebrate the birth of Jesus. Here is a beautiful Advent Prayer by Henri Nouwen. *Lord Jesus, Master of both the light and the darkness, send your Holy Spirit upon our preparations for Christmas. We who have so much to do seek quiet spaces to hear your voice each day. We who are anxious over many things look forward to your coming among us. We who are blessed in so many ways long for the complete joy of your kingdom. We whose hearts are heavy seek the joy of your presence. We are your people, walking in darkness, yet seeking the light. To you we say, ‘Come Lord Jesus!’*
+So as we begin celebrating this New Year in the life of the Church, so we begin, this Monday, celebrating the life of Our Lady, Feasts of whom joyfully take us through the year, right up to her Glorious Assumption and Crowning as Queen of Heaven. And we begin celebrating the life of our Lady indeed from it’s very beginning with the Solemnity of the Immaculate Conception, the doctrine, promulgated only in 1854 by Pope Pius IX, though spoken of from earliest times, and theologically widely discussed in the Middle Ages, and possibly even referenced by the Angel Gabriel who greeted Mary as 'Full of Grace', that Mary was conceived without the stain of Original Sin. This was granted to Mary through the grace her Son won for us on the cross, and is known as 'prevenient grace' as it was given to Mary before the event of the crucifixion in time, an incredibly honour for Mary, and demonstrating to us how much our salvation is always at the heart of God's plan for us. The whole of Advent is about the beginnings of our Salvation, from the prophecies of Isaiah about the coming Messiah who was prepared to be a Suffering Servant on the cross for us, to the moment of the Annunciation when Mary consented to being the Servant of the Lord, through to the birth of Jesus itself, the life that would change our lives. Mary's Immaculate Conception shows to us how God can supernaturally make everything perfect for the birth of His Son, this assuring our salvation. How wonderful for us, and for Mary on this great feast. Mass for the Feast on Monday is at SP's at 9am, and we have Vespers of the Feast at SJ's on Monday evening. This is the opening prayer for Mass on Monday, which beautifully explains to us in the form of prayer this beautiful teaching. O God, who by the Immaculate Conception of the Blessed Virgin prepared a worthy dwelling for your Son, grant, we pray, that, as you preserved her from every stain by virtue of the Death of your Son, which you foresaw, so, through her intercession, we, too, may be cleansed and admitted to your presence. Through our Lord Jesus Christ, your Son, who lives and reigns with you in the unity of the Holy Spirit, God, for ever and ever.  
 
 **Fr. Peter Hart:**  
 Please note that while Fr. Peter Hart is recovering from his operation, I’m on 5pm at SoS. Please pray for Fr. Hart as he continues his recuperation.  
 
 **Advent and Christmas Leaflet:**  
-Please take one of the leaflets and join us for the many gatherings throughout this beautiful season. Perhaps you could take a leaflet for a friend and invite them to SJSP for Christmas? Evening Prayer and Benediction Every Monday during Advent: see Newsletter and Advent Leaflet for details of venue.  
+Please take one of the leaflets and join us for the many gatherings throughout this beautiful season. Perhaps you could take a leaflet for a friend and invite them to SJSP for Christmas? Evening Prayer and Benediction Every Monday during Advent: see Newsletter and Advent Leaflet for details.  
 
-**First Week of Advent at SJSP’s**  
+**Advent at SJSP’s**  
 Please join us for these wonderful liturgies!  
-  Monday 1st December: Evening Prayer and Benediction at St. Peter’s at 7pm.  
-  Wednesday 3rd December: Mass at Saltcotes Cemetery at 10am.  
-  Wednesday 3rd September: Mothers Prayers at 6pm in SJ’s.  
-  Friday 5th December: First Friday Mass & Anointing of the Sick at St. Joseph’s at 2pm, followed by Refreshments in the Parish Hall.  
+Monday 8th December: Evening Prayer and Benediction at St. Joseph’s at 7pm  
+
+**Next Sunday at 3pm at SJ’s:**  
+All our SJSP Children’s Liturgy Children are invited to Church for Fr. Peter’s Storybook Nativity followed by cakes, and a special visitor, in the Presbytery!  
+
+**Saturday 20th:**  
+Saturday 20th after Evening Mass everyone is welcome to the Presbyetry for a glass of mulled wine, a mince pie and some jolly Carol Singing.  
 
 **SJSP Confirmation 2026.**  
 The Bishop will be coming to SJSP’s to confer the Sacrament of Confirmation on Tuesday 10th February at SP’s at 6:30pm. Candidates in Year 6 or above are welcome to get an application form from Fr. Peter after Weekend Masses.  
 
-**National Grief Awareness Week:**  
-Chris McIndoe is holding a Grief Support Café in Lytham Library on Wednesday 3rd December 11am-12noon. All welcome for support, or to find out what support is available.  
-
 **The Food Bank:**  
-during the weeks leading up to Christmas, if it is possible to boost any Food Bank offerings, perhaps with some children’s Christmas type goodies, it would be much appreciated.  
+During the weeks leading up to Christmas, if it is possible to boost any Food Bank offerings, perhaps with some children’s Christmas type goodies, it would be much appreciated.  
 
-**Advent events at Fairhaven Methodist Church:**  
-Music for Christmas, Saturday 13 December at 7:30 pm and a Nativity Festival (free entry) from Saturday 29 Nov - Saturday 6 December. See posters in the church porch for more details.  
+**Advent at Fairhaven Methodist Church:**  
+Music for Christmas, Saturday 13th December at 7:30 pm.  
 
-**The SJSP Ukulele Orchestra (along with children from the parishes) Christmas Album.**  
-Only £5 - a perfect stocking filler! All proceeds shared between Brian House Children's Hospice and the StreetLife Trust in Blackpool. CDs available at the back of church at the end of Mass and for downloads, email [ann@zammits.me.uk](mailto:ann@zammits.me.uk). With huge thanks to Mark Brocklesby for his recording and producing expertise. SJSP Ukulele Orchestra: still strumming away, this week in the Presbytery at SJ’s on Tuesday at 7pm.
+**The Posada:**  
+The Posada, the statue of the Holy Family has begun it’s journey to Bethlehem, starting at St. Bede’s high School. They were warmly welcomed by the School Chaplain and a group of pupils in the school chapel. In a time of reflection we were encouraged to clear away the clutter of everyday life and instead to make room for the hope, love and peace of Christmas.  
+
+**SJSP Late Late Christmas Party:**  
+And after Christmas we can look forward to the SJSP Late Late Christmas Party on Saturday 17th January at 7pm after Evening Mass, with food, songs and games. Tickets available soon.  
+
+**The SJSP Ukulele Orchestra (along with children from the parishes) Christmas Album:**  
+Only £5 - a perfect stocking filler! All proceeds shared between Brian House Children's Hospice and the StreetLife Trust in Blackpool. CDs available at the back of church at the end of Mass and for downloads, email [ann@zammits.me.uk](mailto:ann@zammits.me.uk). With huge thanks to Mark Brocklesby for his recording and producing expertise.  
 
 **Dates of the Diary**  
-Sunday 7th December:  
-    Crib Blessing and Christmas Fayre and Lots of Fun after 10:30am Mass at St. Peter’s  
 Sunday 14th December at 3pm at SJ’s:  
     FrP’s Storybook Nativity for all our Children’s Liturgy Children, followed by Cakes in the Presbytery and a very Special Visitor (not the Bishop… although he is a Bishop.)  
 Saturday 13th December in the Presbytery after Mass:  

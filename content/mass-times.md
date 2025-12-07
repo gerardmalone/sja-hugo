@@ -6,29 +6,6 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week
 
-**Weekend First Sunday of Advent**  
-**Saturday 29th**  
-6pm St. Joseph’s Mass Deceased of the Burke Family  
-**Sunday 30th**  
-9:15am St. Joseph’s Mass People of the Parish  
-10:30am St. Peter’s Mass Brian Walmsley  
-
-**Monday 1st**  
-9am St. Peter’s Mass In memory of Alan Bealey followed by Expositions and Confessions till 10am  
-7pm St. Peter’s Evening Prayer and Benediction  
-
-**Tuesday 2nd**  
-10am St. Joseph’s Mass Ben Cawthorn preceded by Exposition and Confessions till 9:55am  
-
-**Wednesday 3rd**  
-10am Saltcotes Mass Vera McLaughlin  
-
-**Thursday 4th**  
-10am St. Joseph’s Mass Helena McClurg  
-
-**Friday 5th**  
-2pm St. Joseph’s Mass and Sacrament of the Sick Roseanne and Patrick Scott  
-
 **Weekend Second Sunday of Advent**  
 **Saturday 6th**  
 6pm St. Joseph’s Mass Special Intentions  
@@ -36,9 +13,34 @@ slug: "feasts-intentions"
 9:15am St. Joseph’s Mass People of the Parish  
 10:30am St. Peter’s Mass John Nolan  
 
+**Monday 8th**  
+9am St. Peter’s Mass Judith Cross followed by Expositions and Confessions till 10am  
+12:15pm Lytham Crematorium Funeral Service for Madeleine Wright  
+7pm St. Joseph’s Vespers and Benediction for the Immaculate Conception  
+
+**Tuesday 9th**  
+10am St. Joseph’s Mass Chris Cedly preceded by Exposition and Confessions till 9:55am  
+
+**Wednesday 10th**  
+9am St. Peter’s Mass For the Holy souls  
+
+**Thursday 11th**  
+10am St. Joseph’s Mass Julie Denny  
+
+**Friday 12th**  
+2:45pm Lytham Crematorium Funeral Service for Arthur Campbell  
+
+**Weekend Third Sunday of Advent**  
+**Saturday 13th**  
+6pm St. Joseph’s Mass Paula Dunn  
+**Sunday 14th**  
+9:15am St. Joseph’s Mass Zosia Koch Nowakowska  
+10:30am St. Peter’s Mass People of the Parish  
+3pm St. Joseph’s Children’s Liturgy Story Book Nativity  
+
 **Sacrament of Reconciliation with Exposition this week.**  
 Monday 9:30-9:55am at St. Peter’s and Tuesday 9:30-9:50am at St. Joseph’s
-Confession is also available by arrangement with Fr. Peter. Tel. 737037
+Confession is also available by arrangement with Fr. Peter. Tel. 737037.  
 
 ## Normal Mass Times  
 
