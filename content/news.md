@@ -2,44 +2,45 @@
 title: "News"
 draft: false
 ---
-## 7th December 2025
+## 14th December 2025
 
 **Catholic Voice**  
 latest copy (December) can be found [by clicking this link](https://issuu.com/cathcom/docs/lancaster_voice_decemeber_2025).  
 
-**Message from Fr. Peter:**  
-So as we begin celebrating this New Year in the life of the Church, so we begin, this Monday, celebrating the life of Our Lady, Feasts of whom joyfully take us through the year, right up to her Glorious Assumption and Crowning as Queen of Heaven. And we begin celebrating the life of our Lady indeed from it’s very beginning with the Solemnity of the Immaculate Conception, the doctrine, promulgated only in 1854 by Pope Pius IX, though spoken of from earliest times, and theologically widely discussed in the Middle Ages, and possibly even referenced by the Angel Gabriel who greeted Mary as 'Full of Grace', that Mary was conceived without the stain of Original Sin. This was granted to Mary through the grace her Son won for us on the cross, and is known as 'prevenient grace' as it was given to Mary before the event of the crucifixion in time, an incredibly honour for Mary, and demonstrating to us how much our salvation is always at the heart of God's plan for us. The whole of Advent is about the beginnings of our Salvation, from the prophecies of Isaiah about the coming Messiah who was prepared to be a Suffering Servant on the cross for us, to the moment of the Annunciation when Mary consented to being the Servant of the Lord, through to the birth of Jesus itself, the life that would change our lives. Mary's Immaculate Conception shows to us how God can supernaturally make everything perfect for the birth of His Son, this assuring our salvation. How wonderful for us, and for Mary on this great feast. Mass for the Feast on Monday is at SP's at 9am, and we have Vespers of the Feast at SJ's on Monday evening. This is the opening prayer for Mass on Monday, which beautifully explains to us in the form of prayer this beautiful teaching. O God, who by the Immaculate Conception of the Blessed Virgin prepared a worthy dwelling for your Son, grant, we pray, that, as you preserved her from every stain by virtue of the Death of your Son, which you foresaw, so, through her intercession, we, too, may be cleansed and admitted to your presence. Through our Lord Jesus Christ, your Son, who lives and reigns with you in the unity of the Holy Spirit, God, for ever and ever.  
+**Everyone welcome to join us for Christmas at St. Joseph’s and St. Peter’s**  
+
+***Wednesday 24th December: Christmas Eve***  
+St. Joseph’s 6pm Children’s Mass of Christmas  
+All children (and any adults for that matter) are asked to come dressed as a character from the Christmas Story:  
+Mary, Joseph, an Angel, a Shepherd, a King, or an Ox, Donkey, or Sheep, to create a ‘living crib’.  
+St. Peter’s 8pm CandleLit Mass of Christmas with Carols and Readings from 7:30pm  
+***Thursday 25th December: Christmas Day:***  
+St. Joseph’s 9:15am  
+St. Peter’s 10:30am  
+
+**Children’s Storybook Nativity:**  
+This Sunday at 3pm at SJ’s all our SJSP Children’s Liturgy Children are invited to Church for Fr. Peter’s Storybook Nativity followed by cakes, and a special visitor, in the Presbytery!  
+
+**Advent at SJSP’s:**  
+Monday 15th December: Vespers and Benediction at St. Peter’s at 7pm  
 
 **Fr. Peter Hart:**  
 Please note that while Fr. Peter Hart is recovering from his operation, I’m on 5pm at SoS. Please pray for Fr. Hart as he continues his recuperation.  
 
-**Advent and Christmas Leaflet:**  
-Please take one of the leaflets and join us for the many gatherings throughout this beautiful season. Perhaps you could take a leaflet for a friend and invite them to SJSP for Christmas? Evening Prayer and Benediction Every Monday during Advent: see Newsletter and Advent Leaflet for details.  
+**Christmas Get-Together:**  
+Next Saturday 20th after Evening Mass everyone is welcome to the Presbytery for a glass of mulled wine, a mince pie and some jolly Carol Singing.  
 
-**Advent at SJSP’s**  
-Please join us for these wonderful liturgies!  
-Monday 8th December: Evening Prayer and Benediction at St. Joseph’s at 7pm  
-
-**Next Sunday at 3pm at SJ’s:**  
-All our SJSP Children’s Liturgy Children are invited to Church for Fr. Peter’s Storybook Nativity followed by cakes, and a special visitor, in the Presbytery!  
-
-**Saturday 20th:**  
-Saturday 20th after Evening Mass everyone is welcome to the Presbyetry for a glass of mulled wine, a mince pie and some jolly Carol Singing.  
-
-**SJSP Confirmation 2026.**  
-The Bishop will be coming to SJSP’s to confer the Sacrament of Confirmation on Tuesday 10th February at SP’s at 6:30pm. Candidates in Year 6 or above are welcome to get an application form from Fr. Peter after Weekend Masses.  
+**SJSP Confirmation 2026:**  
+The Bishop will be coming to SJSP’s to confer the Sacrament of Confirmation on Tuesday 10th February at SP’s at 6:30pm. Candidates in Year 6 or above are welcome to get an application form from Fr. Peter after Weekend Masses.
 
 **The Food Bank:**  
 During the weeks leading up to Christmas, if it is possible to boost any Food Bank offerings, perhaps with some children’s Christmas type goodies, it would be much appreciated.  
 
-**Advent at Fairhaven Methodist Church:**  
-Music for Christmas, Saturday 13th December at 7:30 pm.  
+**Late Late Christmas Party:**  
+After Christmas we can look forward to the SJSP Late Late Christmas Party on Saturday 17th January at 7pm after Evening Mass, with food, songs and games. Tickets available soon.  
 
-**The Posada:**  
-The Posada, the statue of the Holy Family has begun it’s journey to Bethlehem, starting at St. Bede’s high School. They were warmly welcomed by the School Chaplain and a group of pupils in the school chapel. In a time of reflection we were encouraged to clear away the clutter of everyday life and instead to make room for the hope, love and peace of Christmas.  
-
-**SJSP Late Late Christmas Party:**  
-And after Christmas we can look forward to the SJSP Late Late Christmas Party on Saturday 17th January at 7pm after Evening Mass, with food, songs and games. Tickets available soon.  
+**2026 Lancaster Diocesan Directories:**  
+2026 Lancaster Diocesan Directories are available at the back of Church, priced £6:50. See where all your favourite priests have been moved to!
 
 **The SJSP Ukulele Orchestra (along with children from the parishes) Christmas Album:**  
 Only £5 - a perfect stocking filler! All proceeds shared between Brian House Children's Hospice and the StreetLife Trust in Blackpool. CDs available at the back of church at the end of Mass and for downloads, email [ann@zammits.me.uk](mailto:ann@zammits.me.uk). With huge thanks to Mark Brocklesby for his recording and producing expertise.  
