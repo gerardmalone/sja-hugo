@@ -13,6 +13,9 @@ Please note that if you send information for the weekly bulletin via e-mail ([sj
 
 All bulletin queries should be directed to **Fr. Peter**. If there is a limited amount of space, notices may have to be abbreviated. Wherever possible a notice will be published in full. Notices can only be included up to a maximum of **3 weeks**.
 
+**Fourth Sunday of Advent**  
+[21st December 2025](/bulletins/Bulletin211225.pdf)  
+
 **Third Sunday of Advent**  
 [14th December 2025](/bulletins/Bulletin141225.pdf)  
 
@@ -24,6 +27,3 @@ All bulletin queries should be directed to **Fr. Peter**. If there is a limited 
 
 **Our Lord Jesus Christ, King of the Universe**  
 [23rd November 2025](/bulletins/Bulletin231125.pdf)  
-
-**Thirty Third Sunday in Ordinary Time**  
-[16th November 2025](/bulletins/Bulletin161125.pdf)  
