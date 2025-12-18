@@ -2,7 +2,7 @@
 title: "News"
 draft: false
 ---
-## 14th December 2025
+## 21st December 2025
 
 **Catholic Voice**  
 latest copy (December) can be found [by clicking this link](https://issuu.com/cathcom/docs/lancaster_voice_decemeber_2025).  
