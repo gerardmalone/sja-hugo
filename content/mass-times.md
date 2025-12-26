@@ -6,32 +6,7 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week
 
-**Weekend Fourth Sunday of Advent**  
-**Saturday 20th**  
-6pm St. Joseph’s Mass People of the Parish  
-**Sunday 21st**  
-9:15am St. Joseph’s Mass Robert Cookson  
-10:30am St. Peter’s Mass Lottie Woods  
-
-**Monday 22nd**  
-9am St. Peter’s Mass Maria Carlotta D’ Cruz followed by Expositions and Confessions till 10am  
-2:45pm Lytham Crematorium Service for Cecelia Duckworth  
-
-**Tuesday 23rd**  
-10am St. Joseph’s Mass Dec’d of Conroy & Morgan Families preceded by Exposition and Confessions till 9:55am  
-
-**Wednesday 24th**  
-9am St. Peter’s Mass Donor’s Intentions  
-The Nativity of Our Lord  
-6pm St. Joseph’s Mass Kate Golightly  
-8pm St Peter’s Mass In loving Memory of Joan and Harold Thornton  
-
-**Thursday 25th The Nativity of Our Lord**  
-9.15am St. Joseph’s Mass Special Intentions  
-10.30am St. Peter’s Mass John Worsley  
-12noon Stella Matutina People of the Parishes  
-
-**Weekend December The Feast of the Holy Family**  
+**Weekend The Feast of the Holy Family**  
 **Saturday 27th**  
 6pm St. Joseph’s Mass James (Jimmy) Cullen  
 **Sunday 28th**  
@@ -39,24 +14,29 @@ The Nativity of Our Lord
 10:30am St. Peter’s Mass People of the Parish  
 
 **Monday 29th**  
-9am St. Peter’s Mass  
+9am St. Peter’s Mass Levi (Sick Child)  
 
 **Tuesday 30th**  
-10am St. Joseph’s Mass  
+10am St. Joseph’s Mass Gwen and Bayne Spedding  
 
 **Wednesday 31st**  
-9am St. Peter’s Mass  
+9am St. Peter’s Mass Joan and David Holt  
 
 **Thursday 1st**  
-10am St. Joseph’s Mass  
+10am St. Joseph’s Mass John Nolan  
 
 **Friday 2nd**  
-10am St. Joseph’s Requiem for Laura  
-2pm St. Joseph’s Mass and Anointing  
+10am St. Joseph’s Requiem Mass for Laura Cecelia Szulc  
+2pm St. Joseph’s Mass and Sacrament of the Sick Roseanne and Patrick Scott  
 
-**Sacrament of Reconciliation with Exposition this week.**  
-Monday 9:30-9:55am at St. Peter’s and Tuesday 9:30-9:50am at St. Joseph’s
-Confession is also available by arrangement with Fr. Peter. Tel. 737037  
+**Weekend Second Sunday after Nativity**  
+**Saturday 3rd**  
+6pm St. Joseph’s Mass Michael Wren Hilton  
+**Sunday 4th**  
+9:15am St. Joseph’s Mass People of the Parish  
+10:30am St. Peter’s Mass Mary Johnson  
+
+**No Sacrament of Reconciliation with Exposition this week.**  
 
 ## Normal Mass Times  
 
