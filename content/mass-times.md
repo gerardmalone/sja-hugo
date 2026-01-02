@@ -6,37 +6,39 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week
 
-**Weekend The Feast of the Holy Family**  
-**Saturday 27th**  
-6pm St. Joseph’s Mass James (Jimmy) Cullen  
-**Sunday 28th**  
-9:15am St. Joseph’s Mass Alan Hesketh  
-10:30am St. Peter’s Mass People of the Parish  
-
-**Monday 29th**  
-9am St. Peter’s Mass Levi (Sick Child)  
-
-**Tuesday 30th**  
-10am St. Joseph’s Mass Gwen and Bayne Spedding  
-
-**Wednesday 31st**  
-9am St. Peter’s Mass Joan and David Holt  
-
-**Thursday 1st**  
-10am St. Joseph’s Mass John Nolan  
-
-**Friday 2nd**  
-10am St. Joseph’s Requiem Mass for Laura Cecelia Szulc  
-2pm St. Joseph’s Mass and Sacrament of the Sick Roseanne and Patrick Scott  
-
-**Weekend Second Sunday after Nativity**  
+**Weekend Second Sunday after the Nativity**  
 **Saturday 3rd**  
 6pm St. Joseph’s Mass Michael Wren Hilton  
 **Sunday 4th**  
-9:15am St. Joseph’s Mass People of the Parish  
+9:15am St. Joseph’s Mass People of the Parishes  
 10:30am St. Peter’s Mass Mary Johnson  
 
-**No Sacrament of Reconciliation with Exposition this week.**  
+**Monday 5th**  
+9am St. Peter’s Mass Eileen Illingworth followed by Expositions and Confessions till 10am  
+**The Feast of the Epiphany**  
+7pm St. Joseph’s Mass For the Caulfield and Edwards Families  
+
+**Tuesday 6th The Feast of the Epiphany**  
+9am St. Peter’s Mass Joe Ainsworth  
+10am St. Joseph’s Mass Intentions of Terry Thompson and Family  
+
+**Wednesday 7th**  
+9am St. Peter’s Mass Arthur, Mary and Kathleen Horton  
+
+**Thursday 8th**  
+10am St. Joseph’s Mass Mark William Pollard  
+2:45pm Carlton Crematorium Service for Doreen Boyes  
+
+**Weekend The Baptism of the Lord**  
+**Saturday 10th**  
+6pm St. Joseph’s Mass People of the Parishes  
+**Sunday 11th**  
+9:15am St. Joseph’s Mass Mrs Howard  
+10:30am St. Peter’s Mass Elizabeth Whelan Contoni  
+
+**Sacrament of Reconciliation with Exposition this week.**  
+Monday 9:30-9:55am at St. Peter’s.  
+Confession is also available by arrangement with Fr. Peter. Tel. 737037  
 
 ## Normal Mass Times  
 

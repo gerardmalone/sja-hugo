@@ -2,28 +2,29 @@
 title: "News"
 draft: false
 ---
-## 26th December 2025
+## 4th January 2026
 
 **Catholic Voice**  
 latest copy (December) can be found [by clicking this link](https://issuu.com/cathcom/docs/lancaster_voice_decemeber_2025).  
 
-**Message from Fr. Peter:**  
-Well what a wonderful Advent and Christmas it has been, with beautiful liturgies leading us into the new Year. And the Liturgical Calendar doesn’t stop, indeed the first weeks of Christmastide are some of the busiest in the year. Today we celebrate the Feast of the Holy Family – which is always celebrated on the Sunday during the Octave, the eight days, of Christmas. Monday is the Feast of St. Thomas Becket, the Patron of Clergy in Parishes in England and Wales. He was famously ‘murdered in the Cathedral’ – and the film of TS Eliot’s play about Thomas is well worth watching. Thomas was born in London in 1118. He was Chancellor of England and in 1162 became Archbishop of Canterbury. He defended the position of the Church against King Henry II, and was exiled to France for six years. He had further trials when he returned and was murdered in 1170 in Canterbury Cathedral by the King's men. On Thursday 1st we celebrate the wonderful Feast of Mary. Mother of God, and place our whole Calednar year under her Patronage. And on Friday 2nd we celebrate Saints Basil the Great and Gregory Nazianzen, two great saints of the early Church. Basil was born in 330 and at forty became the Bishop of Caesarea, after spending a number of years as a hermit. He wrote much of value, especially the monastic rules, many of which are still followed by the monks of the Eastern Church. He was outstanding in helping the poor. Gregory was born in the same year and joined Basil in undertaking a life of solitude. In 381 he became Bishop of Constantinople. He was a man of great wisdom and eloquence. And that takes us to the weekend, the Epiphany on Tuesday 6th, the Baptism of the Lord the following Sunday. The wonderful liturgical Pageant continues in our Happy new Year!  
+**Message from Father Peter:**  
+I mentioned in my Christmas Sermon that I always listen to Handel’s ‘Messiah’ around Christmas. Well around Epiphany I always listen to ‘Amahl and the Night Visitors’, Gian Carlo Menotti’s children’s opera, based on Italian folk tales of the Nativity and Epiphany, which is a retelling of the story of the Three Wise Men from the point of view of a young disabled boy named Amahl, who lives in poverty with his widowed mother near Bethlehem. He sees a bright star in the sky one night and tells his mother to go and look, but she brushes him off, as he is always making up stories, and she is more concerned over their poverty, and whether they are going to be able to support themselves in the coming year. That night, to Amahl’s mother’s amazement, three kings come across their falling down hut and seek shelter, having travelled for hundreds of miles, following the star, which Amahl’s mother had not believed in. They bring with them gifts to give to ‘the Child’ who has just been born and who will reign over all. Amahl’s mother, in her desperation tries to steal just a bit of the treasure, thinking of what it could do for her disabled son, but is caught red-handed. The three Kings are understanding of the Mother’s temptation, and tell her she can keep the gold because ‘The child we seek doesn’t need our gold. On love, on love alone he will build his kingdom. His pierced hand will hold no sceptre. His haloed head will wear no crown. He will bring us new life, and receive our death, and the keys to his city belong to the poor. The Mother realises that this is the kind of King that she and the whole world are waiting for, and she hands back the gold. Amahl decides that he wants to give the new born a gift, so offers the only thing he has, his crutch. And he as he hands it over to the Kings to give to the child, he is miraculously cured. ‘He walks! It is a sign from the holy child. We must give praise to the newborn king. This is a sign from God. Truly he can dance, he can jump, he can run! Amahl’s mother allows him to go with the Kings to present the crutch himself, and as Amahl and the three night visitors set out across the darkened land, they hear the sounds of shepherds singing, ‘All the stars have left the sky. Sweet dawn - oh dawn of peace. Because peace and healing has indeed truly dawned. Lovely story, and a lovely little opera for this week’s feast. (You can catch the whole thing on the YouTube). May God bless us with the gifts of faith and perseverance this Epiphany and throughout the whole of the New Year.  
 
-**First Week of the Month at SJSP’s:**  
-Friday 2nd January: First Friday Mass & Anointing of the Sick at St. Joseph’s at 2pm, followed by Refreshments in the Parish Hall.  
+**The Feast of the Epiphany:**  
+This Tuesday 6th January is The Feast of the Epiphany, a HolyDay of Obligation.  Masses are at HolyDay times of 7pm Vigil on Monday at SJ’s, and Tuesday 6th 9am at SP’s and 10am at SJ’s
+Mass on Wednesday Morning will be at St. Peter’s at 9am at which we will be joined by the school to celebrate an Epiphany mass all together. (So no Saltcotes mass this month).  
 
-**Huge Thanks to All involved in our Christmas Services:**  
-The Altar Teams and Sacristans, the Musicians and Choir and Bell Ringers, the Readers, Eucharistic Ministers, Collectors, Offertory Processors, the Flower People, crib putter-uppers and decorators, rota preparers, Cleaners, everybody who does their jobs in and around the Sacristies, the Churches, the House, the Office, and the grounds, the refreshment and social people, all those who work with the children – our Amazing Children’s Liturgists, the Catechists, the Teachers, everyone at St. Peter’s School, and St. Bede’s School the Parents, and all the children, our great Deacons Michael and David, and Everyone who helped to make Christmas 2025 such a wonderful religious celebration, and continues to make SJSP such a wonderful Catholic Community every day of every year!  May the Lord give us many Blessings.  Let us continue to celebrate together throughout the whole of 2026!  
+**Continued Huge Thanks to All involved in our Christmas Services:**  
+The Altar Teams and Sacristans, the Musicians and Choir and Bell Ringers, the Readers, Eucharistic Ministers, Collectors, Offertory Processors, the Flower People, crib putter-uppers and decorators, rota preparers, Cleaners, everybody who does their jobs in and around the Sacristies, the Churches, the House, the Office, and the grounds, the refreshment and social people, all those who work with the children – our Amazing Children’s Liturgists, the Catechists, the Teachers, everyone at St. Peter’s School, and St. Bede’s School the Parents, and all the children, our great Deacons Michael and David, and Everyone who helped to make Christmas 2025 such a wonderful religious celebration, And continues to make SJSP such a wonderful Catholic Community every day of every year! May the Lord give us many Blessings. Let us continue to celebrate together throughout the whole of 2026!  
+
+**Personal Thanks from Father Peter**  
+For all the kind Cards, Gifts, and Offerings over the Christmas season. Mass will be said in thanksgiving for all your intentions. God bless you. And Feline Thanks from Tobias, the Presbytery Cat, for all the kind treats and toys received over the Christmas season.  
+
+**SJSP Confirmation 2026:**  
+The Bishop will be coming to SJSP’s to confer the Sacrament of Confirmation on Tuesday 10th February at SP’s at 6:30pm. Candidates in Year 6 or above are welcome to get an application form from the sacristy. Forms should be returned NEXT WEEKEND at the latest.  
 
 **2026 Lancaster Diocesan Directories:**  
 are available at the back of Church, priced £6:50. See where all your favourite priests have been moved to!  
-
-**SJSP Confirmation 2026:**  
-The Bishop will be coming to SJSP’s to confer the Sacrament of Confirmation on Tuesday 10th February at SP’s at 6:30pm. Candidates in Year 6 or above are welcome to get an application form from the sacristy.  
-
-**Feast of the Epiphany:**  
-Next Tuesday 6th January is the Feast of the Epiphany, a HolyDay of Obligation. Masses are at usual HolyDay times of 7pm Vigil on Monday at SJ’s, and Tuesday 6th 9am at SPs’ and 10am at SJ’s  
 
 **Late Late Christmas Party:**  
 After Christmas we can look forward to the SJSP Late Late Christmas Party on Saturday 17th January at 7pm after Evening Mass, with food, songs and games. Tickets available soon.  
