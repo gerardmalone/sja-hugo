@@ -6,39 +6,33 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week
 
-**Weekend Second Sunday after the Nativity**  
-**Saturday 3rd**  
-6pm St. Joseph’s Mass Michael Wren Hilton  
-**Sunday 4th**  
-9:15am St. Joseph’s Mass People of the Parishes  
-10:30am St. Peter’s Mass Mary Johnson  
-
-**Monday 5th**  
-9am St. Peter’s Mass Eileen Illingworth followed by Expositions and Confessions till 10am  
-**The Feast of the Epiphany**  
-7pm St. Joseph’s Mass For the Caulfield and Edwards Families  
-
-**Tuesday 6th The Feast of the Epiphany**  
-9am St. Peter’s Mass Joe Ainsworth  
-10am St. Joseph’s Mass Intentions of Terry Thompson and Family  
-
-**Wednesday 7th**  
-9am St. Peter’s Mass Arthur, Mary and Kathleen Horton  
-
-**Thursday 8th**  
-10am St. Joseph’s Mass Mark William Pollard  
-2:45pm Carlton Crematorium Service for Doreen Boyes  
-
 **Weekend The Baptism of the Lord**  
 **Saturday 10th**  
-6pm St. Joseph’s Mass People of the Parishes  
+6pm St. Joseph’s Mass The People of the Parishes  
 **Sunday 11th**  
 9:15am St. Joseph’s Mass Mrs Howard  
-10:30am St. Peter’s Mass Elizabeth Whelan Contoni  
+10:30am St. Peter’s Mass Elizabeth Whelan Cantoni  
 
-**Sacrament of Reconciliation with Exposition this week.**  
-Monday 9:30-9:55am at St. Peter’s.  
-Confession is also available by arrangement with Fr. Peter. Tel. 737037  
+**Monday 12th**  
+9am St. Peter’s No Mass today  
+
+**Tuesday 13th**  
+10am St. Joseph’s No Mass today  
+
+**Wednesday 14th**  
+9am St. Peter’s Mass Frank and Darren Holland  
+
+**Thursday 15th**  
+10am St. Joseph’s Mass In Thanksgiving for Special Lourdes Friends  
+
+**Weekend Second Sunday in Ordinary Time ‘A’**  
+**Saturday 17th**  
+6pm St. Joseph’s Mass The People of the Parishes  
+**Sunday 18th**  
+9:15am St. Joseph’s Mass Birthday Remembrance Samantha Rawstron  
+10:30am St. Peter’s Mass Dennis O’Brien  
+
+**No Sacrament of Reconciliation with Exposition this week**.  
 
 ## Normal Mass Times  
 
