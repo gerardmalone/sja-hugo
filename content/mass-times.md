@@ -6,25 +6,6 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week
 
-**Weekend The Baptism of the Lord**  
-**Saturday 10th**  
-6pm St. Joseph’s Mass The People of the Parishes  
-**Sunday 11th**  
-9:15am St. Joseph’s Mass Mrs Howard  
-10:30am St. Peter’s Mass Elizabeth Whelan Cantoni  
-
-**Monday 12th**  
-9am St. Peter’s No Mass today  
-
-**Tuesday 13th**  
-10am St. Joseph’s No Mass today  
-
-**Wednesday 14th**  
-9am St. Peter’s Mass Frank and Darren Holland  
-
-**Thursday 15th**  
-10am St. Joseph’s Mass In Thanksgiving for Special Lourdes Friends  
-
 **Weekend Second Sunday in Ordinary Time ‘A’**  
 **Saturday 17th**  
 6pm St. Joseph’s Mass The People of the Parishes  
@@ -32,7 +13,29 @@ slug: "feasts-intentions"
 9:15am St. Joseph’s Mass Birthday Remembrance Samantha Rawstron  
 10:30am St. Peter’s Mass Dennis O’Brien  
 
-**No Sacrament of Reconciliation with Exposition this week**.  
+**Monday 19th**  
+9am St. Peter’s Mass Frances O’Connor followed by Exposition and Confessions till 10am  
+
+**Tuesday 20th**  
+10am St. Joseph’s Mass William & Mary Murray preceded by Exposition and Confessions till 9:55am  
+6:30pm St. Peter’s Holy Hour with Rosary and Benediction  
+
+**Wednesday 21st**  
+9am St. Peter’s Mass Louise Illingworth  
+
+**Thursday 22nd**  
+10am St. Joseph’s Mass Richard Smith  
+
+**Weekend Third Sunday in Ordinary Time ‘A’**  
+**Saturday 24th**  
+6pm St. Joseph’s Mass Christians in The Holy Land  
+**Sunday 25th**  
+9:15am St. Joseph’s Mass Michael Cookson  
+10:30am St. Peter’s Mass People of the Parishes  
+
+**Sacrament of Reconciliation with Exposition this week.**  
+Monday 9:30-9:55am at St. Peter’s and Tuesday 9:30-9:50am at St. Joseph’s  
+Confession is also available by arrangement with Fr. Peter. Tel. 737037  
 
 ## Normal Mass Times  
 
