@@ -6,7 +6,7 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week
 
-**Weekend Fourth Sunday in Ordinary Time ‘A’**  
+**Weekend Fourth Sunday in Ordinary Time**  
 **Saturday 31st**  
 6pm St. Joseph’s Mass People of the Parishes  
 **Sunday 1st**  
@@ -35,7 +35,7 @@ slug: "feasts-intentions"
 **Saturday 7th**  
 9:30am St. Bernadette’s Requiem Mass for Paul Huson  
 
-**Weekend Fifth Sunday in Ordinary Time ‘A’**  
+**Weekend Fifth Sunday in Ordinary Time**  
 **Saturday 7th**  
 6pm St. Joseph’s Mass Repose of the soul of David and Barbara Cookson  
 **Sunday 8th**  
