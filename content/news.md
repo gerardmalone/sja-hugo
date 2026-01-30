@@ -2,34 +2,49 @@
 title: "News"
 draft: false
 ---
-## 25th January 2026
+## 1st February 2026
 
 **Catholic Voice**  
 latest copy (February) can be found [by clicking this link](https://issuu.com/cathcom/docs/lancaster_february_2026).  
 
 **Message from Father Peter:**  
-As you know the weekday readings of the Church run on a two year cycle – this being year 2, as it is an even numbered year, but the Sunday readings run over a three year cycle, each one corresponding to the Gospels of Matthew, Mark and Luke (we read the Gospel of St. John scattered throughout the year, though especially right after Christmas and during Eastertide). This being year A, today we embark on the Gospel of St. Matthew. Matthew was a tax collector, and being a rejected Jew he had a good knowledge of the workings and the thought patterns of Judaism. His call to follow Christ was controversial; the very evening of his calling people were ready to criticise Jesus for associating with tax collectors and sinners. Matthew’s call was also very sudden - Jesus called him and he followed, almost as if he was waiting to leave a life he knew to be wrong. All these aspects of his life come through throughout his Gospel, written sometime around 74 – 80 AD. Matthew wanted to show that Christianity, and the life and teaching of Christ was quite in line with Jewish teaching and the prophecies of the Old Testament – many of which Matthew quotes in his Gospel (more than any other Evangelist) and also uses various Jewish storytelling techniques in the Gospel. But Matthew was writing for the Christian communities and is keen to point out that the Word for God is for everyone in the world, and the Church has a worldwide mission to this effect. For Matthew, this is what the Kingdom of Heaven is to be, which Jesus brings, and to which we are all called, and to which we are called to bring others, through our life, our preaching and our prayers. And so as throughout this year we listen to the Gospel of Matthew and celebrate the life and teaching of the Son of God our personal Saviour, let us always have before us the mission of Christ, and his call to each one of us and the world. And let’s be grateful to Saint Matthew for sharing the Word of God with us in such an invigorating and truly life enhancing Gospel. And let us act upon it to do our part in bringing about the Kingdom of God in our lives and our world today.  
+Tomorrow we celebrate the lovely Feast of The Presentation of the Lord, a Feast of the Holy Family of Nazareth, otherwise known as ‘Candlemas,’ and the traditional conclusion of our Christmas celebrations. It commemorates the presentation of Jesus in the Temple eight days after his birth, an occasion when offerings were made and the mother was ritually purified. Simeon’s prophecy referred to Jesus as ‘a light to enlighten the pagans,’ summing up the Christmas theme of light coming into the darkness, but also points towards the paschal mystery, for ‘he was destined to be a sign that is rejected,’ neatly moving us from Christmas through to Passiontide and Eastertide. The Gospel Luke 2:22-40 tells us of the Presentation of Jesus, with Simeon praying what has become known as the ‘Nunc Dimmitus’, used in the Night Prayer of the Church; ‘Now master, you can let your servant go in peace, Just as you promised; Because my eyes have seen the salvation Which you prepared for all the nations to see, A light to enlighten the pagans, And the glory of your people Israel.’ We also meet the prophetess Anna who ‘spoke of the child to all who looked forward to the deliverance of Israel.’ The Gospel concludes with the Holy Family returning to Nazareth; ‘Meanwhile the child grew to maturity and was filled with wisdom; and God’s favour was with him.’ Traditionally we bless candles on this Feast Day, to be used throughout the liturgical year, and this is one of the beautiful blessings with which we are provided: O God, true light who create light eternal, Spreading it far and wide, Pour, we pray, into the hearts of the faithful, The brilliance of perpetual light, So that all who are brightened in your holy temple By the splendour of these candles May happily reach the light of your glory. Through Christ our Lord. Amen. A lovely Feast. Time to put away the Christmas cribs and look forward to, in just a couple of weeks’ time, beginning our Lenten journey.  
 
-**Fr. Peter Foulkes:**  
-Dear Fr. Peter’s Requiem will be celebrated on Monday February 16th at 11am at St. Bernadette’s Lancaster. Mass will be celebrated at St. Peter’s at 9am for Fr. Peter.  
+**First Week of the Month at SJSP’s.**  
+Please join us for these wonderful liturgies!  
+Monday 2nd February: Evening Prayer and Benediction at St. Peter’s at 7pm.  
+Wednesday 4th February: Mass at Saltcotes Cemetery Chapel at 10am.  
+Friday 6th February: First Friday Mass & Anointing of the Sick at St. Joseph’s at 2pm, followed by Refreshments in the Parish Hall.  
 
 **SJSP Confirmation 2026.**  
-The Bishop is coming to SJSP’s to confer the Sacrament of Confirmation on Tuesday 10th February at SP’s at 6:30pm. Please pray for our fourteen Candidates as they make this important step on their faith journey.  
+The Bishop will be coming to SJSP’s to confer the Sacrament of Confirmation on Tuesday 10th February at SP’s at 6:30pm. Please pray for the Candidates as they make this important step on their faith journey.  
 
-**Forthcoming Requiem Masses in Church:**  
-Requiem Mass for Sue Brockbank at St. Peter’s on Wednesday 28th January at 12noon. Requiem Mass for Ann Hayes at St. Peter’s on Friday 30th January at 11am.Requiem Mass for Vincent Moss at St. Joseph’s on Tuesday 3rd February at 11:30am. Requiem Mass for Colin Brindle at St. Joseph’s on Tuesday 10th February at 11am. May they rest in the Peace of Christ.  
+**First Holy Communion 2026:**  
+our course will begin after half term for children in Year 4 and above. Application forms are available from Fr. Peter after Masses.  
 
-**The Advent Posada:**  
-It is many years since Mary and Joseph journeyed to Bethlehem and found shelter in a stable where Our Lord Jesus was born. They had travelled many miles and through many places of shelter along the way. This year in Lytham then Ansdell and St. Annes they covered just 28 miles as they moved from place to place from St Bede’s to Saltcotes Place to Kielder Court then Commonside to Broadwood Way, Bannister Street to Bellingham Rd, Forest Drive, the Boulevard, Sandringham Road, Balmoral Road, Grand Manor drive, Faulkner Crescent, Elmhurst Road, Arnside Avenue, Hilton Avenue, Lansdowne Road, Arundel Road, Eden Avenue, Windsor Avenue, then St. Bede’s, Elms Avenue, Cartmell Road and finally resting in St. Joseph’s church on the altar. They were received with joy and missed as they left and journeyed on.  
+Forthcoming Requiem Masses and Funeral Services:  
+Funeral Service for Gwen Quinn at Lytham Crematorium on Monday 2nd at 2pm; Requiem Mass for Vincent Moss at St. Joseph’s on Tuesday 3rd at 11:30am; Funeral Service for Adrian Connor at Lytham Crematorium on Thursday 5th at 1:15pm; Requiem Mass for Michael Mahon at St. Joseph’s on Friday 6th at 9am; Requiem Mass for Paul Huson at St. Bernadette’s at 9:30pm on Saturday 7th February; Requiem Mass for Colin Brindle at St. Joseph’s on Tuesday 10th at 11am. May they rest in the Peace of Christ.  
+
+**Trinity Hospice:**  
+Following the success of our joint fundraising appeal for Trinity Hospice and Brian House Children’s Hospice in 2025, we plan to launch a similar Appeal in both Parishes, to run during the month of February 2026, featuring a ‘Just Giving’ page and will be supplemented with Trinity Hospice bucket collections, at the end of masses in both parishes for two weekends 7/8 and 14/15 February. More information to be provided next week. If you have any questions, please contact Dennis on [the number in this weeks bulletin](/bulletins).  
+
+**Friday March 6th World Day of Prayer:**  
+This year, Our Lady Star of the Sea Parish is hosting the 2026 World Day of Prayer event, which is from Nigeria entitled “I will give you rest, come”. The service will be held at 2pm in Our Lady Star of the Sea Parish Centre at 63 St Alban’s Road. If you are interested in knowing more or taking part, there will be a brief meeting in the Parish Centre on Friday 20th February 2pm. All welcome.  
+
+**Forty days and Forty Nights:**  
+Lent begins on February 18th, with Ash Wednesday. Stations of the Cross in both of our Churches will begin the following week. Please pray for our candidates seeking reception into the Church at this time.  
+
+**SJSP Ukulele Orchestra:**  
+back strumming away every Monday night in St. Peter’s at 7pm. Newcomers always welcome!  
+
+**Message from Simon Cox who has taken Over the St Annes Juniors U14 Platinums team, and is in need of a few more players:**  
+a fun and friendly football environment guaranteed. If interested please contact Si on [the number in this weeks bulletin](/bulletins).  
 
 **Social Events:**  
 There is a box at the back of Church for any suggestion sfor social and fun raising events for our Parishes. Any suggestions most welcome… A meal out? Afternoon tea? Fr.P performing his one-man version of ‘Cats’?  
 
 **Chaplaincy Role:**  
 Are you interested in providing compassionate, spiritual, emotional and religious support to patients and their families at Blackpool Hospital. If so please contact Ian Baxter (lead Chaplain) for more details about joining the RC Chaplaincy volunteer team. email: [i.baxter@nhs.net](mailto:i.baxter@nhs.net)  
-
-**SJSP Ukulele Orchestra:**  
-back strumming away every Monday night in St. Peter’s at 7pm. Newcomers always welcome!  
 
 **Thinking of Becoming a Priest?**  
 Come to the day of recollection and discernment! The day is for single men 16 years or over who are considering priesthood: Saturday 22 November 10am – 4pm at the Cathedral in Lancaster. The day will include Mass, adoration, guided prayer, talks to assist discernment, lunch. To book email Heather: [Heather.Watts@lrcd.org.uk](mailto:Heather.Watts@lrcd.org.uk) or Tel: 01524 841190. There is no charge.  

@@ -6,37 +6,44 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week
 
-**Weekend Third Sunday in Ordinary Time ‘A’**  
-**Saturday 24th**  
-6pm St. Joseph’s Mass Christians in The Holy Land  
-**Sunday 25th**  
-9:15am St. Joseph’s Mass Michael Cookson  
-10:30am St. Peter’s Mass People of the Parishes  
-
-**Monday 26th**  
-9am St. Peter’s Mass Martin Skinsley followed by Exposition and Confessions till 10am  
-
-**Tuesday 27th**  
-10am St. Joseph’s Mass Intentions of Denison family preceded by Exposition and Confessions till 9:55am  
-
-**Wednesday 28th**  
-12noon St. Peter’s Requiem Mass for Susan Brockbank  
-
-**Thursday 29th**  
-10am St. Joseph’s Mass Joe Nickson  
-
-**Friday 30th**  
-11am St. Peter’s Requiem Mass for Ann Hayes  
-
 **Weekend Fourth Sunday in Ordinary Time ‘A’**  
 **Saturday 31st**  
 6pm St. Joseph’s Mass People of the Parishes  
 **Sunday 1st**  
 9:15am St. Joseph’s Mass In memory of Wilma Bealey  
-10:30am St. Peter’s Mass Deceased of Worsley Family  
+10:30am St. Peter’s Mass Deceased of the Worsley Family  
+
+**Monday 2nd**  
+9am St. Peter’s Mass Tom Charnley followed by Exposition and Confessions till 10am  
+2pm Lytham Crematorium Service for Gwen Quinn  
+7pm St. Peter’s Vespers and Benediction  
+
+**Tuesday 3rd**  
+11:30am St. Joseph’s Requiem Mass for Vincent Moss  
+
+**Wednesday 4th**  
+10am Saltcotes Mass Ken Hargreaves  
+
+**Thursday 5th**  
+10am St. Joseph’s Mass Mr. & Mrs. North and Family  
+1:15pm Lytham Crematorium Service for Adrian Connor  
+
+**Friday 6th**  
+9am St. Joseph’s Requiem Mass for Michael Mahon  
+2pm St. Joseph’s Mass and Anointing of the Sick Collete and Harry Cookson  
+
+**Saturday 7th**  
+9:30am St. Bernadette’s Requiem Mass for Paul Huson  
+
+**Weekend Fifth Sunday in Ordinary Time ‘A’**  
+**Saturday 7th**  
+6pm St. Joseph’s Mass Repose of the soul of David and Barbara Cookson  
+**Sunday 8th**  
+9:15am St. Joseph’s Mass Christopher Hill  
+10:30am St. Peter’s Mass People of the Parishes  
 
 **Sacrament of Reconciliation with Exposition this week.**  
-Monday 9:30-9:55am at St. Peter’s and Tuesday 9:30-9:50am at St. Joseph’s  
+Monday 9:30-9:55am at St. Peter’s  
 Confession is also available by arrangement with Fr. Peter. Tel. 737037  
 
 ## Normal Mass Times  
