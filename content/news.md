@@ -2,64 +2,250 @@
 title: "News"
 draft: false
 ---
-## 1st February 2026
+## 8th February 2026
 
-**Catholic Voice**  
-latest copy (February) can be found [by clicking this link](https://issuu.com/cathcom/docs/lancaster_february_2026).  
+## Catholic Voice
 
-**Message from Father Peter:**  
-Tomorrow we celebrate the lovely Feast of The Presentation of the Lord, a Feast of the Holy Family of Nazareth, otherwise known as ‘Candlemas,’ and the traditional conclusion of our Christmas celebrations. It commemorates the presentation of Jesus in the Temple eight days after his birth, an occasion when offerings were made and the mother was ritually purified. Simeon’s prophecy referred to Jesus as ‘a light to enlighten the pagans,’ summing up the Christmas theme of light coming into the darkness, but also points towards the paschal mystery, for ‘he was destined to be a sign that is rejected,’ neatly moving us from Christmas through to Passiontide and Eastertide. The Gospel Luke 2:22-40 tells us of the Presentation of Jesus, with Simeon praying what has become known as the ‘Nunc Dimmitus’, used in the Night Prayer of the Church; ‘Now master, you can let your servant go in peace, Just as you promised; Because my eyes have seen the salvation Which you prepared for all the nations to see, A light to enlighten the pagans, And the glory of your people Israel.’ We also meet the prophetess Anna who ‘spoke of the child to all who looked forward to the deliverance of Israel.’ The Gospel concludes with the Holy Family returning to Nazareth; ‘Meanwhile the child grew to maturity and was filled with wisdom; and God’s favour was with him.’ Traditionally we bless candles on this Feast Day, to be used throughout the liturgical year, and this is one of the beautiful blessings with which we are provided: O God, true light who create light eternal, Spreading it far and wide, Pour, we pray, into the hearts of the faithful, The brilliance of perpetual light, So that all who are brightened in your holy temple By the splendour of these candles May happily reach the light of your glory. Through Christ our Lord. Amen. A lovely Feast. Time to put away the Christmas cribs and look forward to, in just a couple of weeks’ time, beginning our Lenten journey.  
+Latest copy (February) can be found [by clicking this link](https://issuu.com/cathcom/docs/lancaster_february_2026).
 
-**First Week of the Month at SJSP’s.**  
-Please join us for these wonderful liturgies!  
-Monday 2nd February: Evening Prayer and Benediction at St. Peter’s at 7pm.  
-Wednesday 4th February: Mass at Saltcotes Cemetery Chapel at 10am.  
-Friday 6th February: First Friday Mass & Anointing of the Sick at St. Joseph’s at 2pm, followed by Refreshments in the Parish Hall.  
+## Message from Father Peter
 
-**SJSP Confirmation 2026.**  
-The Bishop will be coming to SJSP’s to confer the Sacrament of Confirmation on Tuesday 10th February at SP’s at 6:30pm. Please pray for the Candidates as they make this important step on their faith journey.  
+### Feast of Our Lady of Lourdes
 
-**First Holy Communion 2026:**  
-our course will begin after half term for children in Year 4 and above. Application forms are available from Fr. Peter after Masses.  
+This Wednesday we celebrate the Feast of Our Lady of Lourdes, Patroness of our Diocese of Lancaster. Whilst we are all familiar with the story of Bernadette of Lourdes (I hope! If not, YouTube *The Song of Bernadette*; the whole film is there), it’s worth reminding ourselves of the words the Mother of God actually spoke.
 
-Forthcoming Requiem Masses and Funeral Services:  
-Funeral Service for Gwen Quinn at Lytham Crematorium on Monday 2nd at 2pm; Requiem Mass for Vincent Moss at St. Joseph’s on Tuesday 3rd at 11:30am; Funeral Service for Adrian Connor at Lytham Crematorium on Thursday 5th at 1:15pm; Requiem Mass for Michael Mahon at St. Joseph’s on Friday 6th at 9am; Requiem Mass for Paul Huson at St. Bernadette’s at 9:30pm on Saturday 7th February; Requiem Mass for Colin Brindle at St. Joseph’s on Tuesday 10th at 11am. May they rest in the Peace of Christ.  
+In the Scriptures Mary says very little: assenting to the will of God at the Annunciation, making her great Magnificat song when she was greeted by Elizabeth, and expressing her worry when her Son was lost in the Temple at the age of twelve. Other than that, nothing — so the words she spoke to Bernadette must be important.
 
-**Trinity Hospice:**  
-Following the success of our joint fundraising appeal for Trinity Hospice and Brian House Children’s Hospice in 2025, we plan to launch a similar Appeal in both Parishes, to run during the month of February 2026, featuring a ‘Just Giving’ page and will be supplemented with Trinity Hospice bucket collections, at the end of masses in both parishes for two weekends 7/8 and 14/15 February. More information to be provided next week. If you have any questions, please contact Dennis on [the number in this weeks bulletin](/bulletins).  
+Here they are, in full:
 
-**Friday March 6th World Day of Prayer:**  
-This year, Our Lady Star of the Sea Parish is hosting the 2026 World Day of Prayer event, which is from Nigeria entitled “I will give you rest, come”. The service will be held at 2pm in Our Lady Star of the Sea Parish Centre at 63 St Alban’s Road. If you are interested in knowing more or taking part, there will be a brief meeting in the Parish Centre on Friday 20th February 2pm. All welcome.  
+> “It is not necessary.”
+> (On being offered pen and paper by Bernadette and asked to write down what she wanted)
+>
+> “Would you have the graciousness to come here for fifteen days?”
+>
+> “I do not promise you happiness in this world, but in the next.”
+>
+> “Pray for sinners.”
+>
+> “Go drink at the spring and wash yourself in it.”
+>
+> “Penance! Penance! Penance!”
+>
+> Bernadette was also told to eat some leaves from a green herb, and  
+> “Kiss the ground as a penance for sinners.”
+>
+> “You will tell the priests to have a chapel built here.”
+>
+> And finally, and most powerfully:  
+> **“I am the Immaculate Conception.”**
 
-**Forty days and Forty Nights:**  
-Lent begins on February 18th, with Ash Wednesday. Stations of the Cross in both of our Churches will begin the following week. Please pray for our candidates seeking reception into the Church at this time.  
+Oh ever immaculate Virgin, Mother of Mercy, Health of the Sick, Refuge of Sinners, Comforter of the Afflicted, you know my wants, my troubles, my sufferings. Look upon me with mercy. When you appeared in the grotto of Lourdes, you made it a privileged sanctuary where you dispense your favours, and where many sufferers have obtained the cure of their infirmities, both spiritual and corporal.
 
-**SJSP Ukulele Orchestra:**  
-back strumming away every Monday night in St. Peter’s at 7pm. Newcomers always welcome!  
+I come, therefore, with unbounded confidence to implore your maternal intercession. My loving Mother, obtain my request. I will try to imitate your virtues so that I may one day share your company and bless you in eternity. Amen.
 
-**Message from Simon Cox who has taken Over the St Annes Juniors U14 Platinums team, and is in need of a few more players:**  
-a fun and friendly football environment guaranteed. If interested please contact Si on [the number in this weeks bulletin](/bulletins).  
+### Please pray for Bishop Paul and our Diocese on this Patronal Feast
 
-**Social Events:**  
-There is a box at the back of Church for any suggestion sfor social and fun raising events for our Parishes. Any suggestions most welcome… A meal out? Afternoon tea? Fr.P performing his one-man version of ‘Cats’?  
+---
 
-**Chaplaincy Role:**  
-Are you interested in providing compassionate, spiritual, emotional and religious support to patients and their families at Blackpool Hospital. If so please contact Ian Baxter (lead Chaplain) for more details about joining the RC Chaplaincy volunteer team. email: [i.baxter@nhs.net](mailto:i.baxter@nhs.net)  
+## Rest in Peace
 
-**Thinking of Becoming a Priest?**  
-Come to the day of recollection and discernment! The day is for single men 16 years or over who are considering priesthood: Saturday 22 November 10am – 4pm at the Cathedral in Lancaster. The day will include Mass, adoration, guided prayer, talks to assist discernment, lunch. To book email Heather: [Heather.Watts@lrcd.org.uk](mailto:Heather.Watts@lrcd.org.uk) or Tel: 01524 841190. There is no charge.  
+- Fr. Peter Foulkes’ Requiem — Monday 16th Feb, 11am  
+  *St. Bernadette’s, Lancaster*  
+  (Mass celebrated for Fr. Peter at SP’s at 9am that morning)
 
-**Email Address:**  
-The Diocese is changing all email addresses. The one email for our two parishes is now [sjsp.lsa@lrcd.org.uk](mailto:sjsp.lsa@lrcd.org.uk). Please do whatever you have to do to use this email from now on. Cheers.  
+- Moira Taylor’s Requiem — Thursday 19th Feb, 9am  
+  *St. Joseph’s*
 
-**Hospital:**  
-Please remember to let us know if you or one of your family is being admitted to hospital.  
+- Jim McGettican’s Requiem — Monday 23rd Feb, 9am  
+  *St. Peter’s*
 
-**Coffee & Bacon Butties:**  
-Will be available in the church hall after the 9:15am Mass. Why not come and enjoy a chat.  
+- Nigel Ogden’s Requiem — Thursday 26th Feb, 12 noon  
+  *St. Joseph’s*
 
-**St Joseph’s Care:**  
-Do you know of anyone in our community who is in need or might need a little more support? Company or just someone to talk to? Someone who may, at times, need help with things? Please let us know and we can contact them. Or you can give them our St Joseph’s Care phone number so they can contact us: Tel: 07840112265.  
+- William Roger’s Funeral Service — Friday 27th Feb  
+  *Carleton*
 
-**St Joseph’s Facebook Page:**  
-We now have over 300 people regularly following us on [Facebook](https://www.facebook.com/pages/St-Josephs-Roman-Catholic-Church-Ansdell/230000653837017) which is allowing us to reach out to those in the wider community and fulfill our parish commitment to evangelization. In the last couple of months, we have been able to help a number of people who have sought assistance through this medium.  
+Please pray for those who have gone before us marked with the sign of faith.
+
+---
+
+## SJSP Confirmation 2026
+
+The Bishop will be coming to SJSP’s to confer the Sacrament of Confirmation on **Tuesday 10th February at SP’s at 6:30pm**.
+
+All are welcome to join us for Mass.  
+Please pray for the candidates as they make this important step on their faith journey.
+
+---
+
+## SJSP Pancake Evening (Shrove Tuesday)
+
+**Tuesday 17th February — St. Peter’s Hall**  
+Pancakes and fun from **6pm onwards**
+
+Come and join us for a pre-Lent celebration!
+
+---
+
+## Trinity Hospice Fundraising
+
+Our 2026 Appeal for Trinity Hospice and Brian House Children’s Hospice has now been launched. Collections will take place after weekend Masses at both churches this weekend and next.
+
+A JustGiving page has also been set up:
+
+[https://www.justgiving.com/page/dennis-duignan-12](https://www.justgiving.com/page/dennis-duignan-12)
+
+Please donate if you can.
+
+Taxpayers can boost their donation with Gift Aid.  
+(You do not need to contribute to JustGiving Admin — choose *customise amount* and enter **£0.00** so your full donation goes to Trinity and Brian House.)
+
+Questions: Dennis Duignan — [via the number in this weeks bulletin](/bulletins)
+
+---
+
+## First Reconciliation and Holy Communion
+
+Application forms are available from Father Peter after Masses.
+
+Please pray for our candidates as they continue their journeys of faith.
+
+---
+
+## SJSP Ukulele Orchestra
+
+Back strumming away every Monday night at **7pm** in St. Peter’s.  
+Newcomers always welcome!
+
+---
+
+## Fr P’s Lenten Challenge 2026
+
+To make **1000 origami paper cranes** to raise **£300** to send a child to school for a year in Malawi.
+
+More information soon — but don’t be surprised when you see paper cranes around the Church…
+
+---
+
+## Lent 2026 at St. Joseph’s and St. Peter’s
+
+Lent begins Ash Wednesday — 18th February.
+
+Masses:  
+
+- 9am — SP’s  
+- 10am — SJ’s  
+- 7pm — SJ’s  
+
+Ashes will be blessed and distributed at all Masses.
+
+### Prayer before the Blessed Sacrament
+
+Saturdays in Lent — St. Joseph’s  
+**5pm–5:50pm**
+
+### Stations of the Cross and Benediction
+
+- Mondays — SP’s at 7pm  
+- Tuesdays — SJ’s at 7pm
+
+### Extra Confession Times
+
+- During weekday Exposition as usual  
+- Mondays at SP’s from 6:30pm (before Stations)  
+- Saturdays during Exposition at SJ’s
+
+### Deanery Lenten Service of Reconciliation
+
+Wednesday 25th March — 7pm  
+Holy Family Church, Freckleton
+
+## World Day of Prayer — Friday 6 March
+
+Our Lady Star of the Sea Parish is hosting the 2026 World Day of Prayer service, prepared by Nigeria and entitled *“I will give you rest, come.”*
+
+Time: 2pm — Parish Centre, 63 St Alban’s Road.
+
+If you would like to know more or take part, there will be a brief meeting:  
+Friday 20 February, 2pm — Parish Centre.
+
+All welcome.
+
+---
+
+## Social Events
+
+There is a box at the back of church for suggestions for social and fundraising events for our parishes.
+
+All ideas welcome… a meal out? Afternoon tea?  
+Fr P performing his one-man version of *Cats*?
+
+---
+
+## Chaplaincy Volunteer Role
+
+Are you interested in offering compassionate spiritual and emotional support to patients and families at Blackpool Hospital?
+
+For details about joining the RC Chaplaincy volunteer team contact:  
+Ian Baxter (Lead Chaplain)  
+📧 [i.baxter@nhs.net](mailto:i.baxter@nhs.net)
+
+---
+
+## Thinking of Becoming a Priest?
+
+Day of recollection and discernment for single men aged 16+ considering priesthood:
+
+**Saturday 22 November — 10am–4pm**  
+Lancaster Cathedral
+
+Includes Mass, adoration, guided prayer, talks and lunch.
+
+To book:  
+📧 [Heather.Watts@lrcd.org.uk](mailto:Heather.Watts@lrcd.org.uk)  
+☎ 01524 841190
+
+No charge.
+
+---
+
+## Parish Email Address
+
+The Diocese has updated email addresses.
+
+Our shared parish email is now:  
+📧 [sjsp.lsa@lrcd.org.uk](mailto:sjsp.lsa@lrcd.org.uk)
+
+Please use this address going forward.
+
+---
+
+## Hospital Notices
+
+Please let us know if you or a family member is admitted to hospital.
+
+---
+
+## Coffee & Bacon Butties
+
+Available in the church hall after the **9:15am Mass**.  
+Come and enjoy a chat!
+
+---
+
+## St Joseph’s Care
+
+Do you know someone in our community who may need extra support, company or a friendly conversation?
+
+Contact St Joseph’s Care:  
+☎ 07840 112265
+
+You may share this number with anyone who may benefit.
+
+---
+
+## St Joseph’s Facebook Page
+
+Over 300 people now regularly follow our parish Facebook page, helping us reach the wider community and assist those seeking support.
+
+[https://www.facebook.com/pages/St-Josephs-Roman-Catholic-Church-Ansdell/230000653837017](https://www.facebook.com/pages/St-Josephs-Roman-Catholic-Church-Ansdell/230000653837017)

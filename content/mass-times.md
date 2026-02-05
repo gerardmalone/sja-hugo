@@ -6,45 +6,66 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week
 
-**Weekend Fourth Sunday in Ordinary Time**  
-**Saturday 31st**  
-6pm St. Joseph’s Mass People of the Parishes  
-**Sunday 1st**  
-9:15am St. Joseph’s Mass In memory of Wilma Bealey  
-10:30am St. Peter’s Mass Deceased of the Worsley Family  
+### Weekend — Fifth Sunday in Ordinary Time
 
-**Monday 2nd**  
-9am St. Peter’s Mass Tom Charnley followed by Exposition and Confessions till 10am  
-2pm Lytham Crematorium Service for Gwen Quinn  
-7pm St. Peter’s Vespers and Benediction  
+**Saturday 7 February**  
+6pm — St Joseph’s  
+Mass: Repose of the soul of David and Barbara Cookson
 
-**Tuesday 3rd**  
-11:30am St. Joseph’s Requiem Mass for Vincent Moss  
+**Sunday 8 February**  
+9:15am — St Joseph’s  
+Mass: Christopher Hill  
+10:30am — St Peter’s  
+Mass: People of the Parishes
 
-**Wednesday 4th**  
-10am Saltcotes Mass Ken Hargreaves  
+---
 
-**Thursday 5th**  
-10am St. Joseph’s Mass Mr. & Mrs. North and Family  
-1:15pm Lytham Crematorium Service for Adrian Connor  
+**Monday 9 February**  
+9am — St Peter’s  
+Mass: Josephine Fleming  
+Followed by Exposition and Confessions until 10am
 
-**Friday 6th**  
-9am St. Joseph’s Requiem Mass for Michael Mahon  
-2pm St. Joseph’s Mass and Anointing of the Sick Collete and Harry Cookson  
+**Tuesday 10 February**  
+11am — St Joseph’s  
+Requiem Mass for Colin Brindle  
+6:30pm — St Peter’s  
+Confirmation Mass with Bishop Paul  
+Nigel Ogden
 
-**Saturday 7th**  
-9:30am St. Bernadette’s Requiem Mass for Paul Huson  
+**Wednesday 11 February**  
+9am — St Peter’s  
+Mass: Birthday Intentions
 
-**Weekend Fifth Sunday in Ordinary Time**  
-**Saturday 7th**  
-6pm St. Joseph’s Mass Repose of the soul of David and Barbara Cookson  
-**Sunday 8th**  
-9:15am St. Joseph’s Mass Christopher Hill  
-10:30am St. Peter’s Mass People of the Parishes  
+**Thursday 12 February**  
+10am — St Joseph’s  
+Mass: Anna Wilson
 
-**Sacrament of Reconciliation with Exposition this week.**  
-Monday 9:30-9:55am at St. Peter’s  
-Confession is also available by arrangement with Fr. Peter. Tel. 737037  
+---
+
+### Weekend — Sixth Sunday in Ordinary Time
+
+**Saturday 14 February**  
+6pm — St Joseph’s  
+Mass: People of the Parishes
+
+**Sunday 15 February**  
+9:15am — St Joseph’s  
+Mass: Intentions of Mark and Dawn Ghee and Family  
+10:30am — St Peter’s  
+Mass: Frances O’Connor
+
+---
+
+## Sacrament of Reconciliation
+
+With Exposition this week:
+
+**Monday 9:30–9:55am — St Peter’s**
+
+Confession is also available by arrangement with Fr Peter  
+☎ 737037
+
+---
 
 ## Normal Mass Times  
 
