@@ -2,7 +2,7 @@
 title: "News"
 draft: false
 ---
-## 8th February 2026
+## Sixth Sunday in Ordinary Time — Sunday 15th February 2026
 
 ## Catholic Voice
 
@@ -10,97 +10,102 @@ Latest copy (February) can be found [by clicking this link](https://issuu.com/ca
 
 ## Message from Father Peter
 
-### Feast of Our Lady of Lourdes
+And so it is that Lent begins on Wednesday, our six weeks of Prayer, Fasting and Almsgiving, in preparation for our great celebrations of the death and resurrection of Christ in Passion and Eastertide.
 
-This Wednesday we celebrate the Feast of Our Lady of Lourdes, Patroness of our Diocese of Lancaster. Whilst we are all familiar with the story of Bernadette of Lourdes (I hope! If not, YouTube *The Song of Bernadette*; the whole film is there), it’s worth reminding ourselves of the words the Mother of God actually spoke.
+Ash Wednesday is, of course, a day of Fasting and Abstinence from Meat, one of only two in the Church’s calendar, the other being Good Friday. Fasting means a person is permitted to eat one full meal. Two smaller meals may also be taken, but they are not to equal that of a full meal. The norms of fasting are obligatory from age 18 until age 59, and the rule of abstinence from meat is binding upon Catholics aged 14 and onwards.
 
-In the Scriptures Mary says very little: assenting to the will of God at the Annunciation, making her great Magnificat song when she was greeted by Elizabeth, and expressing her worry when her Son was lost in the Temple at the age of twelve. Other than that, nothing — so the words she spoke to Bernadette must be important.
+Fasting and abstinence is a kind of spiritual exercise, to remind ourselves of our need of God above all other things, and how not to rely on the temporal, passing, material things of this world. It is also a great reminder of the fast of Jesus during his time in the desert, the Gospel of which we will hear on the First Sunday of Lent.
 
-Here they are, in full:
+Our ashes on Wednesday are a reminder of our need for repentance, and the forgiveness Christ won for us on the cross on Good Friday. These two symbols are a great beginning of what we should hope to experience and achieve throughout the forty days of this season.
 
-> “It is not necessary.”
-> (On being offered pen and paper by Bernadette and asked to write down what she wanted)
->
-> “Would you have the graciousness to come here for fifteen days?”
->
-> “I do not promise you happiness in this world, but in the next.”
->
-> “Pray for sinners.”
->
-> “Go drink at the spring and wash yourself in it.”
->
-> “Penance! Penance! Penance!”
->
-> Bernadette was also told to eat some leaves from a green herb, and  
-> “Kiss the ground as a penance for sinners.”
->
-> “You will tell the priests to have a chapel built here.”
->
-> And finally, and most powerfully:  
-> **“I am the Immaculate Conception.”**
+Pope Saint John Paul II described Lent as a “commitment to a new life, inspired by Gospel values,” moving away from selfishness and drawing closer to the path of Christ. That path, he said, can be summarised in the words prayer, fasting and almsgiving, with fasting consisting of moderation in food and lifestyle as “a sincere effort to remove from our hearts all that is the result of sin and inclines us to evil.”
 
-Oh ever immaculate Virgin, Mother of Mercy, Health of the Sick, Refuge of Sinners, Comforter of the Afflicted, you know my wants, my troubles, my sufferings. Look upon me with mercy. When you appeared in the grotto of Lourdes, you made it a privileged sanctuary where you dispense your favours, and where many sufferers have obtained the cure of their infirmities, both spiritual and corporal.
+Whatever we do for Lent, let us make a great start this Wednesday.
 
-I come, therefore, with unbounded confidence to implore your maternal intercession. My loving Mother, obtain my request. I will try to imitate your virtues so that I may one day share your company and bless you in eternity. Amen.
-
-### Please pray for Bishop Paul and our Diocese on this Patronal Feast
+Lord, may the ashes we receive be a sign to us that our Lent has begun. Bless us during this time of Lenten preparation. Help us to keep our promises to fast, motivate us to share what we have, and guide us to pray and become closer to you. Strengthen us so that we may grow in faith, hope and love and be transformed ready to celebrate Easter. Amen.
 
 ---
 
 ## Rest in Peace
 
-- Fr. Peter Foulkes’ Requiem — Monday 16th Feb, 11am  
-  *St. Bernadette’s, Lancaster*  
-  (Mass celebrated for Fr. Peter at SP’s at 9am that morning)
-
-- Moira Taylor’s Requiem — Thursday 19th Feb, 9am  
-  *St. Joseph’s*
-
-- Jim McGettican’s Requiem — Monday 23rd Feb, 9am  
-  *St. Peter’s*
-
-- Nigel Ogden’s Requiem — Thursday 26th Feb, 12 noon  
-  *St. Joseph’s*
-
-- William Roger’s Funeral Service — Friday 27th Feb  
-  *Carleton*
-
-Please pray for those who have gone before us marked with the sign of faith.
+Rest in Peace: Fr. Peter’s Foulkes Requiem will take place on Monday 16th Feb at 11am at St, Bernadette’s in Lancaster (Mass will be celebrated for Fr. Peter at SP’s at 9am that morning); Moira Taylor’s Requiem will take place at St. Joseph’s on Thursday 19th Feb at 9am; Jim McGettigan’s Requiem will take place at St. Peter’s at 12noon on Monday 23rd Feb; Nigel Ogden’s Requiem will take place at St. Joseph’s on Thursday 26th Feb. at 12noon; and William Roger’s Funeral Service will take place at Carleton on Friday 27th Feb. at 10am. Please pray for those who have gone before us marked with the sign of faith.
 
 ---
 
-## SJSP Confirmation 2026
+## Lent 2026 at St. Joseph’s and St. Peter’s
 
-The Bishop will be coming to SJSP’s to confer the Sacrament of Confirmation on **Tuesday 10th February at SP’s at 6:30pm**.
+Lent begins this Ash Wednesday, 18th February.
 
-All are welcome to join us for Mass.  
-Please pray for the candidates as they make this important step on their faith journey.
+Masses:  
+
+- 9am — St. Peter’s  
+- 10am — St. Joseph’s  
+- 7pm — St. Joseph’s
+
+Ashes will be blessed and distributed at all Masses.
+
+### Prayer before the Blessed Sacrament
+
+Saturdays in Lent at St. Joseph’s — **5pm to 5:50pm**
+
+### Stations of the Cross and Benediction
+
+- Mondays at St. Peter’s — 7pm
+- Tuesdays at St. Joseph’s — 7pm
+
+### Extra Times for the Sacrament of Confession
+
+During weekday Exposition as usual, and:
+
+- Mondays at St. Peter’s from 6:30pm (before Stations)
+- Saturdays during Exposition at St. Joseph’s from 5:30pm
+
+### Deanery Lenten Service of Reconciliation
+
+Wednesday 25th March, 7pm — Holy Family Church, Freckleton
+
+Please take a Lent leaflet, and perhaps one to pass on to a neighbour or friend to remind them of this holy season.
 
 ---
 
-## SJSP Pancake Evening (Shrove Tuesday)
+## SJSP Pancake Evening on Shrove Tuesday
 
-**Tuesday 17th February — St. Peter’s Hall**  
-Pancakes and fun from **6pm onwards**
+Tuesday 17th February in St. Peter’s Hall  
+Pancakes and fun from 6pm onwards.
 
-Come and join us for a pre-Lent celebration!
+Come and join us for a pre-Lent celebration.
 
 ---
 
-## Trinity Hospice Fundraising
+## Trinity Hospice
 
-Our 2026 Appeal for Trinity Hospice and Brian House Children’s Hospice has now been launched. Collections will take place after weekend Masses at both churches this weekend and next.
+We are delighted to announce that we collected **£865.11** for Trinity Hospice last weekend.
 
-A JustGiving page has also been set up:
+We would like to say a sincere thank you to everyone who has donated to our 2026 Appeal up to this point. We will be collecting again after Masses this weekend and our JustGiving page will continue to accept donations throughout February 2026.
 
-[https://www.justgiving.com/page/dennis-duignan-12](https://www.justgiving.com/page/dennis-duignan-12)
+Up to now, an additional **£350.00** (including Gift Aid) has also been donated.
 
-Please donate if you can.
+You can donate here:  
+[Trinity Hospice Appeal JustGiving Page](https://www.justgiving.com/page/dennis-duignan-12?utm_medium=FR&utm_source=CL)
 
-Taxpayers can boost their donation with Gift Aid.  
-(You do not need to contribute to JustGiving Admin — choose *customise amount* and enter **£0.00** so your full donation goes to Trinity and Brian House.)
+---
 
-Questions: Dennis Duignan — [via the number in this weeks bulletin](/bulletins)
+## St Bede's High School 65th Anniversary Mass
+
+With Bishop Paul Swarbrick.
+
+All past pupils, teachers, parents, employees, governors and anyone else who would like to celebrate Catholic education are invited to attend this celebration Mass:
+
+Tuesday 24th February, 7pm  
+St Joseph’s Church, Ansdell
+
+---
+
+## Confirmation Congratulations
+
+Congratulations to all those who received the Sacrament of Confirmation last Tuesday.
+
+Please continue to pray for them on their spiritual journeys. Huge thanks to our great team of catechists who do so much to share our faith with our children.
 
 ---
 
@@ -126,39 +131,6 @@ To make **1000 origami paper cranes** to raise **£300** to send a child to scho
 More information soon — but don’t be surprised when you see paper cranes around the Church…
 
 ---
-
-## Lent 2026 at St. Joseph’s and St. Peter’s
-
-Lent begins Ash Wednesday — 18th February.
-
-Masses:  
-
-- 9am — SP’s  
-- 10am — SJ’s  
-- 7pm — SJ’s  
-
-Ashes will be blessed and distributed at all Masses.
-
-### Prayer before the Blessed Sacrament
-
-Saturdays in Lent — St. Joseph’s  
-**5pm–5:50pm**
-
-### Stations of the Cross and Benediction
-
-- Mondays — SP’s at 7pm  
-- Tuesdays — SJ’s at 7pm
-
-### Extra Confession Times
-
-- During weekday Exposition as usual  
-- Mondays at SP’s from 6:30pm (before Stations)  
-- Saturdays during Exposition at SJ’s
-
-### Deanery Lenten Service of Reconciliation
-
-Wednesday 25th March — 7pm  
-Holy Family Church, Freckleton
 
 ## World Day of Prayer — Friday 6 March
 

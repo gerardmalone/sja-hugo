@@ -6,53 +6,59 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week
 
-### Weekend — Fifth Sunday in Ordinary Time
+### Weekend: Sixth Sunday in Ordinary Time ‘A’
 
-**Saturday 7 February**  
-6pm — St Joseph’s  
-Mass: Repose of the soul of David and Barbara Cookson
-
-**Sunday 8 February**  
-9:15am — St Joseph’s  
-Mass: Christopher Hill  
-10:30am — St Peter’s  
+**Saturday 14th**  
+6pm — St. Joseph’s  
 Mass: People of the Parishes
 
----
-
-**Monday 9 February**  
-9am — St Peter’s  
-Mass: Josephine Fleming  
-Followed by Exposition and Confessions until 10am
-
-**Tuesday 10 February**  
-11am — St Joseph’s  
-Requiem Mass for Colin Brindle  
-6:30pm — St Peter’s  
-Confirmation Mass with Bishop Paul  
-Nigel Ogden
-
-**Wednesday 11 February**  
-9am — St Peter’s  
-Mass: Birthday Intentions
-
-**Thursday 12 February**  
-10am — St Joseph’s  
-Mass: Anna Wilson
-
----
-
-### Weekend — Sixth Sunday in Ordinary Time
-
-**Saturday 14 February**  
-6pm — St Joseph’s  
-Mass: People of the Parishes
-
-**Sunday 15 February**  
-9:15am — St Joseph’s  
+**Sunday 15th**  
+9:15am — St. Joseph’s  
 Mass: Intentions of Mark and Dawn Ghee and Family  
-10:30am — St Peter’s  
+10:30am — St. Peter’s  
 Mass: Frances O’Connor
+
+---
+
+**Monday 16th**  
+9am — St. Peter’s  
+Mass: Father Peter Foulkes  
+Followed by Exposition and Confessions till 10am
+
+**Tuesday 17th**  
+10am — St. Joseph’s  
+Mass: Mary and Norbert Giliross  
+Preceded by Exposition and Confessions till 9:55am  
+No Holy Hour this evening
+
+**Ash Wednesday**  
+Ashes will be blessed and distributed at all Masses
+
+**Wednesday 18th**  
+9am — St. Peter’s  
+Mass: Deceased of Hindley Family  
+10am — St. Joseph’s  
+Mass: Bernadine Hrabak  
+7pm — St. Joseph’s  
+Mass: Steve Gregson
+
+**Thursday 19th**  
+9am — St. Joseph’s  
+Requiem Mass for Moira Taylor
+
+---
+
+### Weekend: First Sunday in Lent ‘A’
+
+**Saturday 21st**  
+6pm — St. Joseph’s  
+Mass: In Remembrance of Joseph Zammit
+
+**Sunday 22nd**  
+9:15am — St. Joseph’s  
+Mass: People of the Parishes  
+10:30am — St. Peter’s  
+Mass: For the Repose of the Soul of Sr. Louise Frey SHCJ
 
 ---
 
@@ -60,7 +66,7 @@ Mass: Frances O’Connor
 
 With Exposition this week:
 
-**Monday 9:30–9:55am — St Peter’s**
+**Monday 9:30–9:55am — St. Peter’s and Tuesday 9:30–9:50am — St. Joseph’s**
 
 Confession is also available by arrangement with Fr Peter  
 ☎ 737037
