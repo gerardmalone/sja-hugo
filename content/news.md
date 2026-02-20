@@ -2,148 +2,98 @@
 title: "News"
 draft: false
 ---
-## Sixth Sunday in Ordinary Time — Sunday 15th February 2026
+## First Sunday in Lent — Sunday 22nd February 2026
 
 ## Catholic Voice
 
-Latest copy (February) can be found [by clicking this link](https://issuu.com/cathcom/docs/lancaster_february_2026).
+Latest copy (March) can be found [by clicking this link](https://issuu.com/cathcom/docs/lancaster_voice_march_2026).
 
 ## Message from Father Peter
 
-And so it is that Lent begins on Wednesday, our six weeks of Prayer, Fasting and Almsgiving, in preparation for our great celebrations of the death and resurrection of Christ in Passion and Eastertide.
+Last week in St. Bernadette’s in Lancaster, his final Parish before retirement, the requiem Mass of our dear friend Father Peter Foulkes was celebrated by Bishop Paul. The night before his mortal remains were brought into his house in Lytham, and with a group of Peter’s friends, and Fr. Peter’s brother, Fr. John, the Bishop and I celebrated a lovely peaceful mass for him. During the requiem itself, myself, Fr. John and Deacon Michael watched the live stream together and celebrated the requiem mass simultaneously. It was a beautiful mass, with the music led by Fr. Peter’s friends from the days he ran the Liturgy Centre of the Diocese at St. Augustine’s Preston. It was during his years here that Fr. Peter ran many courses for the Diocese in how we can best celebrate the wonderful liturgies of the Church, and share their beauty and meaning, giving Glory to God in Word and action, and making every gathering a true celebration. It was here, many years ago when I was a Deacon at St. Kentigern’s, that Fr. Peter gave me lessons in how to say mass! And even when I came to SJSP after my first Mass at SP’s Fr. Peter immediately remarked how glad he was that I didn’t use a bookstand on the altar, as, he said, ‘Nothing should stand between the people and the Eucharist’. Now reaching his eternal reward there is indeed nothing standing between Fr. Peter and Christ himself. It was a privilege to have had such a wonderful priest in all of our lives, and may his long years of ministry be duly rewarded.
 
-Ash Wednesday is, of course, a day of Fasting and Abstinence from Meat, one of only two in the Church’s calendar, the other being Good Friday. Fasting means a person is permitted to eat one full meal. Two smaller meals may also be taken, but they are not to equal that of a full meal. The norms of fasting are obligatory from age 18 until age 59, and the rule of abstinence from meat is binding upon Catholics aged 14 and onwards.
-
-Fasting and abstinence is a kind of spiritual exercise, to remind ourselves of our need of God above all other things, and how not to rely on the temporal, passing, material things of this world. It is also a great reminder of the fast of Jesus during his time in the desert, the Gospel of which we will hear on the First Sunday of Lent.
-
-Our ashes on Wednesday are a reminder of our need for repentance, and the forgiveness Christ won for us on the cross on Good Friday. These two symbols are a great beginning of what we should hope to experience and achieve throughout the forty days of this season.
-
-Pope Saint John Paul II described Lent as a “commitment to a new life, inspired by Gospel values,” moving away from selfishness and drawing closer to the path of Christ. That path, he said, can be summarised in the words prayer, fasting and almsgiving, with fasting consisting of moderation in food and lifestyle as “a sincere effort to remove from our hearts all that is the result of sin and inclines us to evil.”
-
-Whatever we do for Lent, let us make a great start this Wednesday.
-
-Lord, may the ashes we receive be a sign to us that our Lent has begun. Bless us during this time of Lenten preparation. Help us to keep our promises to fast, motivate us to share what we have, and guide us to pray and become closer to you. Strengthen us so that we may grow in faith, hope and love and be transformed ready to celebrate Easter. Amen.
-
----
-
-## Rest in Peace
-
-Rest in Peace: Fr. Peter’s Foulkes Requiem will take place on Monday 16th Feb at 11am at St, Bernadette’s in Lancaster (Mass will be celebrated for Fr. Peter at SP’s at 9am that morning); Moira Taylor’s Requiem will take place at St. Joseph’s on Thursday 19th Feb at 9am; Jim McGettigan’s Requiem will take place at St. Peter’s at 12noon on Monday 23rd Feb; Nigel Ogden’s Requiem will take place at St. Joseph’s on Thursday 26th Feb. at 12noon; and William Roger’s Funeral Service will take place at Carleton on Friday 27th Feb. at 10am. Please pray for those who have gone before us marked with the sign of faith.
+Hear with favour our prayers, which we humbly offer, O Lord, for the salvation of the soul of Peter, your servant and Priest, that he, who devoted a faithful ministry to your name, may rejoice in the perpetual company of your Saints. Through our Lord, Jesus Christ, your Son, who lives and reigns with you in the unity of the Holy Spirit, one God, for ever and ever. Amen.
 
 ---
 
 ## Lent 2026 at St. Joseph’s and St. Peter’s
 
-Lent begins this Ash Wednesday, 18th February.
+Prayer before the Blessed Sacrament:  
+Saturdays in Lent at St. Joseph’s 5pm-5:50pm
 
-Masses:  
+Stations of the Cross and Benediction:  
+Mondays at SP’s at 7pm and  
+Tuesdays at SJ’s at 7pm
 
-- 9am — St. Peter’s  
-- 10am — St. Joseph’s  
-- 7pm — St. Joseph’s
+Extra Times for the Sacrament of Confession:  
+During Weekday Exposition as usual and  
+before Stations at SP’s on Mondays from 6:30pm and  
+during Exposition on Saturday afternoons at SJ’s from 5:30pm, and…
 
-Ashes will be blessed and distributed at all Masses.
+Deanery Lenten Service of Reconciliation  
+Wednesday 25th March 7pm at Holy Family Church Freckleton
 
-### Prayer before the Blessed Sacrament
-
-Saturdays in Lent at St. Joseph’s — **5pm to 5:50pm**
-
-### Stations of the Cross and Benediction
-
-- Mondays at St. Peter’s — 7pm
-- Tuesdays at St. Joseph’s — 7pm
-
-### Extra Times for the Sacrament of Confession
-
-During weekday Exposition as usual, and:
-
-- Mondays at St. Peter’s from 6:30pm (before Stations)
-- Saturdays during Exposition at St. Joseph’s from 5:30pm
-
-### Deanery Lenten Service of Reconciliation
-
-Wednesday 25th March, 7pm — Holy Family Church, Freckleton
-
-Please take a Lent leaflet, and perhaps one to pass on to a neighbour or friend to remind them of this holy season.
+Please note there are no Stations at SJ’s this Tuesday due to the St. Bede’s 65th Anniversary Mass.
 
 ---
 
-## SJSP Pancake Evening on Shrove Tuesday
+## Rest in Peace
 
-Tuesday 17th February in St. Peter’s Hall  
-Pancakes and fun from 6pm onwards.
+Rest in Peace: Jim McGettigan’s Requiem will take place at St. Peter’s at 12noon on Monday 23rd Feb; Nigel Ogden’s Requiem will take place at St. Joseph’s on Thursday 26th Feb. at 12noon; and William Roger’s Funeral Service will take place at Carleton on Friday 27th Feb. at 10am. Please pray for those who have gone before us marked with the sign of faith.
 
-Come and join us for a pre-Lent celebration.
+---
+
+## CAFOD Family Fast Day
+
+There will be an Appeal made at Masses this weekend in aid of CAFOD's Family Fast Day which is on Friday 27 February. Our Parish has always been a great supporter of CAFOD and has proved to be a good neighbour to those who are far less fortunate than ourselves.
+
+---
+
+## 2026 Lenten Challenge
+
+I always like a Lenten Challenge to raise money for a great cause. This year, it was thought we could make it a Kirkham Deanery effort to change children’s lives by raising money to send them to a school in Malawi, run by the community. It costs just £300 for a child’s education, board and lodging for a whole year, and it would be great to send as many children to build up the school as we can.
+
+To this end I will be making 1000 Origami Paper Cranes — an international symbol of hope and peace. Our Primary and Secondary Schools are joining us in this great endeavour. If you would like to help us, please see the poster in the Church and Schools, use the QR code to gift if possible, or pass on enveloped donations at the back of Church. And also check out the Paper Cranes at SJ’s and SP’s. Many thanks in anticipation for your support.
 
 ---
 
 ## Trinity Hospice
 
-We are delighted to announce that we collected **£865.11** for Trinity Hospice last weekend.
-
-We would like to say a sincere thank you to everyone who has donated to our 2026 Appeal up to this point. We will be collecting again after Masses this weekend and our JustGiving page will continue to accept donations throughout February 2026.
-
-Up to now, an additional **£350.00** (including Gift Aid) has also been donated.
-
-You can donate here:  
-[Trinity Hospice Appeal JustGiving Page](https://www.justgiving.com/page/dennis-duignan-12?utm_medium=FR&utm_source=CL)
+We are absolutely delighted to announce that our 2026 Appeal for Trinity Hospice currently stands at £2,235.88. We would like to say a sincere ‘Thank You’ to everyone who has made a donation. Our ‘Just Giving’ page will continue to accept any final donations until 28 February 2026.
 
 ---
 
-## St Bede's High School 65th Anniversary Mass
+## St Bede's High School 65th Anniversary Mass with Bishop Paul Swarbrick
 
-With Bishop Paul Swarbrick.
-
-All past pupils, teachers, parents, employees, governors and anyone else who would like to celebrate Catholic education are invited to attend this celebration Mass:
-
-Tuesday 24th February, 7pm  
-St Joseph’s Church, Ansdell
+All past pupil's, teachers, parents, employees, governors and anyone else who would like to celebrate Catholic education are invited to attend this celebration Mass this Tuesday 24th February at 7pm, St Joseph’s.
 
 ---
 
-## Confirmation Congratulations
+## Bell Ringing Practice
 
-Congratulations to all those who received the Sacrament of Confirmation last Tuesday.
-
-Please continue to pray for them on their spiritual journeys. Huge thanks to our great team of catechists who do so much to share our faith with our children.
+Every Thursday from 7-8.30 pm. If you are interested in learning to ring the bells at St Joseph’s, please get in touch with Tower Captains James and Stacey via [the number in this weeks bulletin](/bulletins) and they’ll show you the ropes!
 
 ---
 
-## First Reconciliation and Holy Communion
+## Repository
 
-Application forms are available from Father Peter after Masses.
-
-Please pray for our candidates as they continue their journeys of faith.
+Cards and gifts for different occasions available, including first communion cards and Rosary beads. Walk With Me for Lent devotional books also now available. Orders for other items can be taken, too. If you are interested in joining a rota for either of the weekend Masses please contact Margaret via [the number in this weeks bulletin](/bulletins).
 
 ---
 
-## SJSP Ukulele Orchestra
+## Lectio Divina
 
-Back strumming away every Monday night at **7pm** in St. Peter’s.  
-Newcomers always welcome!
-
----
-
-## Fr P’s Lenten Challenge 2026
-
-To make **1000 origami paper cranes** to raise **£300** to send a child to school for a year in Malawi.
-
-More information soon — but don’t be surprised when you see paper cranes around the Church…
+Scripture prayer and discussions in the hall on Wednesdays at 10am.
 
 ---
 
-## World Day of Prayer — Friday 6 March
+## The Holy Rosary
 
-Our Lady Star of the Sea Parish is hosting the 2026 World Day of Prayer service, prepared by Nigeria and entitled *“I will give you rest, come.”*
-
-Time: 2pm — Parish Centre, 63 St Alban’s Road.
-
-If you would like to know more or take part, there will be a brief meeting:  
-Friday 20 February, 2pm — Parish Centre.
-
-All welcome.
+Every Thursday after 10am Mass in Church, for this beautiful prayer. All welcome. Thursday at 10:30am in Church.
 
 ---
+
+<!-- Permanent bottom notices: keep these sections in weekly updates -->
 
 ## Social Events
 

@@ -6,48 +6,6 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week
 
-### Weekend: Sixth Sunday in Ordinary Time ‘A’
-
-**Saturday 14th**  
-6pm — St. Joseph’s  
-Mass: People of the Parishes
-
-**Sunday 15th**  
-9:15am — St. Joseph’s  
-Mass: Intentions of Mark and Dawn Ghee and Family  
-10:30am — St. Peter’s  
-Mass: Frances O’Connor
-
----
-
-**Monday 16th**  
-9am — St. Peter’s  
-Mass: Father Peter Foulkes  
-Followed by Exposition and Confessions till 10am
-
-**Tuesday 17th**  
-10am — St. Joseph’s  
-Mass: Mary and Norbert Giliross  
-Preceded by Exposition and Confessions till 9:55am  
-No Holy Hour this evening
-
-**Ash Wednesday**  
-Ashes will be blessed and distributed at all Masses
-
-**Wednesday 18th**  
-9am — St. Peter’s  
-Mass: Deceased of Hindley Family  
-10am — St. Joseph’s  
-Mass: Bernadine Hrabak  
-7pm — St. Joseph’s  
-Mass: Steve Gregson
-
-**Thursday 19th**  
-9am — St. Joseph’s  
-Requiem Mass for Moira Taylor
-
----
-
 ### Weekend: First Sunday in Lent ‘A’
 
 **Saturday 21st**  
@@ -62,14 +20,56 @@ Mass: For the Repose of the Soul of Sr. Louise Frey SHCJ
 
 ---
 
+**Monday 23rd**  
+12noon — St. Peter’s  
+Requiem Mass for Jimmy McGettigan  
+7pm — St. Peter’s  
+Stations of the Cross and Benediction
+
+**Tuesday 24th**  
+10am — St. Joseph’s  
+Mass: Repose of the Soul of Pam Fogg  
+Preceded by Exposition & Confessions till 9:55am  
+7pm — St. Joseph’s  
+St. Bede’s 65th Anniversary Mass  
+Mass: Deceased of the O’Dea family
+
+**Wednesday 25th**  
+9am — St. Peter’s  
+Mass: Bill Illingworth
+
+**Thursday 26th**  
+12noon — St. Joseph’s  
+Requiem Mass for Nigel Ogden
+
+**Friday 27th**  
+10am — Carleton Crematorium  
+Funeral Service for William Rogers
+
+---
+
+### Weekend: Second Sunday in Lent ‘A’
+
+**Saturday 28th**  
+6pm — St. Joseph’s  
+Mass: People of the Parish
+
+**Sunday 1st**  
+9:15am — St. Joseph’s  
+Mass: Tom Dockerty  
+10:30am — St. Peter’s  
+Mass: Thomas and Annie Ainsworth
+
+---
+
 ## Sacrament of Reconciliation
 
-With Exposition this week:
+Sacrament of Reconciliation with Exposition this week.
 
-**Monday 9:30–9:55am — St. Peter’s and Tuesday 9:30–9:50am — St. Joseph’s**
+Tuesday 9:30-9:50am at St. Joseph’s  
+6:30-6:55pm Monday and Tuesday Before Stations of the Cross
 
-Confession is also available by arrangement with Fr Peter  
-☎ 737037
+Confession is also available by arrangement with Fr. Peter. Tel. 737037
 
 ---
 
