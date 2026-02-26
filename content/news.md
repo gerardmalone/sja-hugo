@@ -10,9 +10,7 @@ Latest copy (March) can be found [by clicking this link](https://issuu.com/cathc
 
 ## Message from Father Peter
 
-Last week in St. Bernadette’s in Lancaster, his final Parish before retirement, the requiem Mass of our dear friend Father Peter Foulkes was celebrated by Bishop Paul. The night before his mortal remains were brought into his house in Lytham, and with a group of Peter’s friends, and Fr. Peter’s brother, Fr. John, the Bishop and I celebrated a lovely peaceful mass for him. During the requiem itself, myself, Fr. John and Deacon Michael watched the live stream together and celebrated the requiem mass simultaneously. It was a beautiful mass, with the music led by Fr. Peter’s friends from the days he ran the Liturgy Centre of the Diocese at St. Augustine’s Preston. It was during his years here that Fr. Peter ran many courses for the Diocese in how we can best celebrate the wonderful liturgies of the Church, and share their beauty and meaning, giving Glory to God in Word and action, and making every gathering a true celebration. It was here, many years ago when I was a Deacon at St. Kentigern’s, that Fr. Peter gave me lessons in how to say mass! And even when I came to SJSP after my first Mass at SP’s Fr. Peter immediately remarked how glad he was that I didn’t use a bookstand on the altar, as, he said, ‘Nothing should stand between the people and the Eucharist’. Now reaching his eternal reward there is indeed nothing standing between Fr. Peter and Christ himself. It was a privilege to have had such a wonderful priest in all of our lives, and may his long years of ministry be duly rewarded.
-
-Hear with favour our prayers, which we humbly offer, O Lord, for the salvation of the soul of Peter, your servant and Priest, that he, who devoted a faithful ministry to your name, may rejoice in the perpetual company of your Saints. Through our Lord, Jesus Christ, your Son, who lives and reigns with you in the unity of the Holy Spirit, one God, for ever and ever. Amen.
+So how is Lent going? After our first Celebration of the Stations of the Cross at SP’s on Monday I remarked that now it truly does feel like Lent (by that stage it had only been five days without Pringles, so I’m still coping). The word ‘Lent’ actually comes from old English – via Europe – meaning ‘the Season of Spring’ which in turn comes from ‘lengthening of days’ and indeed throughout this season the days are getting brighter, and the clocks will go forward on the weekend of Palm Sunday. The Forty days of Lent of course correspond to the forty days Christ spent in the desert being tempted by the Devil, as we heard in the Gospel last week, and indeed always do on the First Sunday of Lent. But this also links us back to the Old Testament: Moses fasted for forty days and nights before he was presented with the Ten Commandments, and the Prophet Elijah did the same before he had his great Theophany, his encounter with God, on Mount Horeb. We also link the days of Lent to the Forty Years that the Israelites spent in the Wilderness, journeying to the Promised Land, totally dependent on the guidance – materially and spiritually of God. In the story of Jonah (and the Whale) the people of Nineveh were given forty days to make the repentance before God. Some traditions work out that Christ was in the tomb for forty hours - from Friday Evening to Sunday Morning (not three consecutive twenty-four hours, which incidentally would make seventy-two hours, which would correspond to the hours Jonah spent in the belly of the whale). Anyway, we begin the second week of Lent, so let’s make sure we make the best of these forty days - and continue, or begin, or recommit - ourselves to our disciplines of Prayer, Fasting and Abstinence. Perhaps we might take the opportunity to receive the Sacrament of Reconciliation. The ‘Anima Christi’ makes a beautiful and appropriate prayer for this, or any, season: Soul of Christ, sanctify me; Body of Christ, save me; Blood of Christ, inebriate me; Water from Christ’s side, wash me; Passion of Christ, strengthen me; O good Jesus, hear me; Within Thy wounds hide me; Suffer me not to be separated from Thee; From the malicious enemy defend me; In the hour of my death call me; And bid me come unto Thee; That I may praise Thee with Thy saints and with Thy angels; Forever and ever. Amen.
 
 ---
 
@@ -37,15 +35,23 @@ Please note there are no Stations at SJ’s this Tuesday due to the St. Bede’s
 
 ---
 
-## Rest in Peace
+## Congratulations to Catechumens
 
-Rest in Peace: Jim McGettigan’s Requiem will take place at St. Peter’s at 12noon on Monday 23rd Feb; Nigel Ogden’s Requiem will take place at St. Joseph’s on Thursday 26th Feb. at 12noon; and William Roger’s Funeral Service will take place at Carleton on Friday 27th Feb. at 10am. Please pray for those who have gone before us marked with the sign of faith.
+Rhys and Liam, and Candidates Janos, Csanad, Alan and James who were presented to the Bishop last Saturday in the Cathedral in Lancaster at the Rite of Election in preparation to be received into Full Communion with the Church at Easter. Please pray for them as they make this great step in their faith journey.
+
+## 2026 Lenten Challenge: 
+
+I always like a Lenten Challenge to raise money for a great cause, this year, it was thought we could make it a Kirkham Deanery effort to change children’s lives by raising money to send them to a school in Malawi, run by the community. It costs just £300 for a child’s education, board and lodging for a whole year, and it would be great to send as many children to build up the school as we can. To this end I will be making 1000 Origami Paper Cranes – an international symbol of hope and peace. Our Primary and Secondary Schools are joining us in this great endeavour. If you would like to help us, please see the poster in the Church and Schools, use the QR code to gift if possible, or pass on enveloped donations at the back of Church. And also check out the Paper Cranes at SJ’s and SP’s. Many thanks in anticipation for your support.
 
 ---
 
-## CAFOD Family Fast Day
+## St Patricks Day Celebration:
+Quiz, Food, bar and Singalong with the Ukelele Orchestra SJs Hall at 7pm on Saturday 14th March Adults £7 and Children £3. Tickets available after Mass or message Susan on [the number in this weeks bulletin](/bulletins)
 
-There will be an Appeal made at Masses this weekend in aid of CAFOD's Family Fast Day which is on Friday 27 February. Our Parish has always been a great supporter of CAFOD and has proved to be a good neighbour to those who are far less fortunate than ourselves.
+---
+
+## Trinity Hospice: 
+We are absolutely delighted to announce that our 2026 Appeal for Trinity Hospice currently stands at £2,398.38 (including Gift Aid). We would like to say a sincere ‘Thank You’ to everyone who has made a donation. Our ‘Just Giving’ page will continue to accept any final donations for a further week. 
 
 ---
 
@@ -54,18 +60,6 @@ There will be an Appeal made at Masses this weekend in aid of CAFOD's Family Fas
 I always like a Lenten Challenge to raise money for a great cause. This year, it was thought we could make it a Kirkham Deanery effort to change children’s lives by raising money to send them to a school in Malawi, run by the community. It costs just £300 for a child’s education, board and lodging for a whole year, and it would be great to send as many children to build up the school as we can.
 
 To this end I will be making 1000 Origami Paper Cranes — an international symbol of hope and peace. Our Primary and Secondary Schools are joining us in this great endeavour. If you would like to help us, please see the poster in the Church and Schools, use the QR code to gift if possible, or pass on enveloped donations at the back of Church. And also check out the Paper Cranes at SJ’s and SP’s. Many thanks in anticipation for your support.
-
----
-
-## Trinity Hospice
-
-We are absolutely delighted to announce that our 2026 Appeal for Trinity Hospice currently stands at £2,235.88. We would like to say a sincere ‘Thank You’ to everyone who has made a donation. Our ‘Just Giving’ page will continue to accept any final donations until 28 February 2026.
-
----
-
-## St Bede's High School 65th Anniversary Mass with Bishop Paul Swarbrick
-
-All past pupil's, teachers, parents, employees, governors and anyone else who would like to celebrate Catholic education are invited to attend this celebration Mass this Tuesday 24th February at 7pm, St Joseph’s.
 
 ---
 
