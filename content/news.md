@@ -2,7 +2,7 @@
 title: "News"
 draft: false
 ---
-## First Sunday in Lent — Sunday 22nd February 2026
+## Second Sunday in Lent — Sunday 1st March 2026
 
 ## Catholic Voice
 
