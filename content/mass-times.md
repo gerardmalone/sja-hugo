@@ -6,53 +6,11 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week
 
-### Weekend: First Sunday in Lent ‘A’
-
-**Saturday 21st**  
-6pm — St. Joseph’s  
-Mass: In Remembrance of Joseph Zammit
-
-**Sunday 22nd**  
-9:15am — St. Joseph’s  
-Mass: People of the Parishes  
-10:30am — St. Peter’s  
-Mass: For the Repose of the Soul of Sr. Louise Frey SHCJ
-
----
-
-**Monday 23rd**  
-12noon — St. Peter’s  
-Requiem Mass for Jimmy McGettigan  
-7pm — St. Peter’s  
-Stations of the Cross and Benediction
-
-**Tuesday 24th**  
-10am — St. Joseph’s  
-Mass: Repose of the Soul of Pam Fogg  
-Preceded by Exposition & Confessions till 9:55am  
-7pm — St. Joseph’s  
-St. Bede’s 65th Anniversary Mass  
-Mass: Deceased of the O’Dea family
-
-**Wednesday 25th**  
-9am — St. Peter’s  
-Mass: Bill Illingworth
-
-**Thursday 26th**  
-12noon — St. Joseph’s  
-Requiem Mass for Nigel Ogden
-
-**Friday 27th**  
-10am — Carleton Crematorium  
-Funeral Service for William Rogers
-
----
-
-### Weekend: Second Sunday in Lent ‘A’
+### Weekend: Second Sunday in Lent
 
 **Saturday 28th**  
 6pm — St. Joseph’s  
-Mass: People of the Parish
+Mass: The People of the Parishes
 
 **Sunday 1st**  
 9:15am — St. Joseph’s  
@@ -62,12 +20,54 @@ Mass: Thomas and Annie Ainsworth
 
 ---
 
+**Monday 2nd**  
+9am — St. Peter’s  
+Mass: Intentions of Francesca Corrigan  
+Preceded by Exposition & Confessions till 10:00am  
+7pm — St. Peter’s  
+Stations of the Cross and Benediction
+
+**Tuesday 3rd**  
+10am — St. Joseph’s  
+Mass: Dorothy Cole  
+Preceded by Exposition & Confessions till 9:55am  
+7pm — St. Joseph’s  
+Stations of the Cross and Benediction
+
+**Wednesday 4th**  
+10am — St. Peter’s  
+Requiem Mass for Carmel Lilley
+
+**Thursday 5th**  
+10am — St. Joseph’s  
+Mass: The Shaw Family
+
+**Friday 6th**  
+2pm — St. Joseph’s  
+Mass and Anointing of the Sick: Roseanne and Patrick Scott
+
+---
+
+### Weekend: Third Sunday in Lent
+
+**Saturday 7th**  
+6pm — St. Joseph’s  
+Mass: Intentions of Clare Critch
+
+**Sunday 8th**  
+9:15am — St. Joseph’s  
+Mass: People of the Parishes  
+10:30am — St. Peter’s  
+Mass: Deceased of the Denye Family
+
+---
+
 ## Sacrament of Reconciliation
 
 Sacrament of Reconciliation with Exposition this week.
 
-Tuesday 9:30-9:50am at St. Joseph’s  
-6:30-6:55pm Monday and Tuesday Before Stations of the Cross
+Monday 9:30-9:55am at St. Peter’s and Tuesday 9:30-9:50am at St. Joseph’s  
+6:30-6:55pm Monday Before Stations of the Cross at St. Peter’s
 
 Confession is also available by arrangement with Fr. Peter. Tel. 737037
 
@@ -75,7 +75,7 @@ Confession is also available by arrangement with Fr. Peter. Tel. 737037
 
 ## Normal Mass Times  
 
-As of January 2014, St Joseph's Ansdell and St Peter's in Lytham became linked Parishes. As such **Mass times are shared between the two Churches**. You can find out more details about St Peter's [on their website](https://www.stpeterslytham.co.uk/). Normal Mass times for both Churches are displayed below.  
+As of January 2014, St Joseph's Ansdell and St Peter's in Lytham became linked Parishes. As such **Mass times are shared between the two Churches**. You can find out more details about St Peter's [on [...] 
 
 Individual Feasts and Intentions, along with any ad hoc Mass time changes, can be found above.  
 
