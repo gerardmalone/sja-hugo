@@ -6,49 +6,7 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week
 
-### Weekend: Second Sunday in Lent
-
-**Saturday 28th**  
-6pm — St. Joseph’s  
-Mass: The People of the Parishes
-
-**Sunday 1st**  
-9:15am — St. Joseph’s  
-Mass: Tom Dockerty  
-10:30am — St. Peter’s  
-Mass: Thomas and Annie Ainsworth
-
----
-
-**Monday 2nd**  
-9am — St. Peter’s  
-Mass: Intentions of Francesca Corrigan  
-Preceded by Exposition & Confessions till 10:00am  
-7pm — St. Peter’s  
-Stations of the Cross and Benediction
-
-**Tuesday 3rd**  
-10am — St. Joseph’s  
-Mass: Dorothy Cole  
-Preceded by Exposition & Confessions till 9:55am  
-7pm — St. Joseph’s  
-Stations of the Cross and Benediction
-
-**Wednesday 4th**  
-10am — St. Peter’s  
-Requiem Mass for Carmel Lilley
-
-**Thursday 5th**  
-10am — St. Joseph’s  
-Mass: The Shaw Family
-
-**Friday 6th**  
-2pm — St. Joseph’s  
-Mass and Anointing of the Sick: Roseanne and Patrick Scott
-
----
-
-### Weekend: Third Sunday in Lent
+### Weekend: Third Sunday in Lent ‘A’
 
 **Saturday 7th**  
 6pm — St. Joseph’s  
@@ -62,12 +20,48 @@ Mass: Deceased of the Denye Family
 
 ---
 
+**Monday 9th**  
+9am — St. Peter’s  
+Mass: John Nolan  
+Followed by Exposition and Confessions till 10am  
+7pm — St. Peter’s  
+Stations of the Cross and Benediction
+
+**Tuesday 10th**  
+10am — St. Joseph’s  
+Mass: Susie Jordan  
+Preceded by Exposition and Confessions till 9:55am  
+7pm — St. Joseph’s  
+Stations of the Cross and Benediction
+
+**Wednesday 11th**  
+9am — No Mass today
+
+**Thursday 12th**  
+10am — No Mass today
+
+---
+
+### Weekend: Third Sunday in Lent ‘A’
+
+**Saturday 14th**  
+6pm — St. Joseph’s  
+Mass: Nigel Ogden
+
+**Sunday 15th**  
+9:15am — St. Joseph’s  
+Mass: People of the Parishes  
+10:30am — St. Peter’s  
+Mass: Mary Chesworth
+
+---
+
 ## Sacrament of Reconciliation
 
 Sacrament of Reconciliation with Exposition this week.
 
 Monday 9:30-9:55am at St. Peter’s and Tuesday 9:30-9:50am at St. Joseph’s  
-6:30-6:55pm Monday Before Stations of the Cross at St. Peter’s
+6:30-6:55pm Monday Before Stations of the Cross at St. Peter’s and Saturday from 5:30pm at St. Joseph’s
 
 Confession is also available by arrangement with Fr. Peter. Tel. 737037
 
