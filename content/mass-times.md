@@ -42,7 +42,7 @@ Stations of the Cross and Benediction
 
 ---
 
-### Weekend: Third Sunday in Lent ‘A’
+### Weekend: Fourth Sunday in Lent ‘A’
 
 **Saturday 14th**  
 6pm — St. Joseph’s  
@@ -69,7 +69,7 @@ Confession is also available by arrangement with Fr. Peter. Tel. 737037
 
 ## Normal Mass Times  
 
-As of January 2014, St Joseph's Ansdell and St Peter's in Lytham became linked Parishes. As such **Mass times are shared between the two Churches**. You can find out more details about St Peter's [on [...] 
+As of January 2014, St Joseph's Ansdell and St Peter's in Lytham became linked Parishes. As such **Mass times are shared between the two Churches**.  
 
 Individual Feasts and Intentions, along with any ad hoc Mass time changes, can be found above.  
 
