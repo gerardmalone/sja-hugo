@@ -2,7 +2,7 @@
 title: "News"
 draft: false
 ---
-## Third Sunday in Lent — Sunday 8th March 2026
+## Fourth Sunday in Lent — Sunday 15th March 2026
 
 ## Catholic Voice
 
@@ -10,56 +10,72 @@ Latest copy (March) can be found [by clicking this link](https://issuu.com/cathc
 
 ## Message from Father Peter
 
-Anyone heard of Saint Photini? No, I hadn’t either. Or Saint Svetlana, as they call her in Russian? Nope, again. Photon in Greek, Svetlana in Russian, is actually the name given to the biblically unnamed Woman at the Well in today’s Gospel. After meeting the Lord she went to tell many people about her encounter with the Lord, who came to believe in Jesus, so many that she became known as one of the first Evangelists. But according to Eastern Tradition, it was not until Pentecost Sunday that Photoni herself was baptized, and given her name, which means ‘Enlightened’ or ‘Luminous one’, by the Apostles themselves. She converted her five sisters, all of whom became Saints themselves, as well as her two sons, Photino and Joses. Together they all went on to became great Missionaries, travelling to Carthage after the martyrdom of Saints Peter and Paul. Their Mission brought them to the attention of the Emperor Nero, and, amidst the persecution of the time, they were all martyred in 66AD, Photini herself being martyred by being thrown down a dry well. Let us rejoice in our meetings with the Lord this Sunday, and every day of Lent – and let our encounters have as profound effect on us at did to Saint Photini. Lord Jesus, I come to You like the woman at the well, tired and longing for something more. I confess the areas in my life that are dry and thirsty. You know my story, my mistakes, and my hidden hurts, yet You still invite me to drink. Give me, I pray, that living water which quenches my deepest longings and satisfies my soul. Wash away my fear, anxiety, and shame. Let Your grace become a wellspring within me, bringing healing, peace, and eternal life. Thank You for meeting me here, just as I am. Transform me, as You did her, so I may joyfully share Your love with others. Amen.
+And so the Paper Crane Challenge continues, and I am now well over the half way mark - and Notelets and Bookmarks are freely available in both of our Churches this weekend. Please also note the Prayer Cranes that the children have been making: well done to them! It’s actually quite a peaceful and mindful thing to do, as has been learning a little more about the culture of 1000 Cranes and the Japanese legend that folding 1000 cranes (senbazuru) so pleases God that the folder is granted a wish. One famous story which has entered modern history is that of Sadako Sasaki. In 1945 after the first atomic bomb was dropped on the city of Hiroshima, Japan, many people became very sick years later with leukaemia and other cancers, and one such girl was named Sadako. When she found out that she had the disease in 1955, Sadako wished to get well so, after hearing the legend, she decided to fold 1,000 cranes. When she died she had folded 644 cranes. Her story had such a profound impact on her friends and classmates that they completed her thousand cranes and raised enough money to build a statue to honour Sadako and all the children affected by the bomb. Today, in Hiroshima’s Peace Park, there is a statue of Sadako standing on top of a granite pedestal holding a golden crane in her outstretched arms. At its base a plaque reads: ‘This is our cry. This is our prayer. Peace in the world.’ Sadako wrote in her journal: ‘I will write Peace on your wings and you will fly all around the world.’ Every year, children from around the world fold cranes and send them to Hiroshima where they are placed around the statue. And because of Sadako, the paper crane has become an international symbol of peace, and a reminder of the events of 1945. Last year my brother visited the Peace garden and sent me some very special origami paper from Hiroshima. As we raise money to educate children in Malawi, let us pray that we can all be educated in the ways of truth, goodness and peace and be the best example of peace to our children that we possibly can. Especially in these present days…
 
 ---
 
 ## Lent 2026 at St. Joseph’s and St. Peter’s
 
 Stations of the Cross and Benediction:  
-Mondays at SP’s at 7pm and  
-Tuesdays at SJ’s at 7pm
+Mondays at SP’s at 7pm and Tuesdays at SJ’s at 7pm
 
 Extra Times for the Sacrament of Confession:  
 During Weekday Exposition as usual and  
 before Stations at SP’s on Mondays from 6:30pm and  
 during Exposition on Saturday afternoons at SJ’s from 5:30pm, and…
 
-Prayer before the Blessed Sacrament: Weekday Exposition as usual and Saturdays in Lent at St. Joseph’s 5pm-5:50pm
+Prayer before the Blessed Sacrament: Weekday Exposition as usual and Saturdays in Lent at St. Joseph’s 5pm-5:50pm  
 
-Deanery Lenten Service of Reconciliation  
+Deanery Lenten Service of Reconciliation:  
 Wednesday 25th March 7pm at Holy Family Church Freckleton
 
 ---
 
-Please pray for Catechumens Rhys and Liam, and Candidates Janos, Csanad, Alan and James as they make their final preparations to be received into Full Communion with the Church at Easter.
+## Holy Week and the Easter Triduum at St. Joseph’s and St. Peter’s 2026
+
+All are welcome to join us for our beautiful Services
+
+Palm Sunday 28th/29th April  
+St. Joseph’s 6pm Saturday Vigil Mass,  
+Sunday St. Joseph’s 9:15am, St. Peters 10:30am  
+Palms will be blessed and distributed at all Masses
+
+Monday 30th March: St. Peter’s 9am Mass, Stations at 7pm  
+Tuesday 31st March: St. Joseph’s 10am Mass, Stations at 7pm  
+Spy Wednesday 1st April: Saltcotes 10am Mass
+
+Maundy Thursday 2nd April  
+St. Peter’s 7pm Mass of the Lord’s Supper with watching until 10pm with Night Prayer of the Church at 9:50pm
+
+Good Friday 3rd April  
+Stations of the Cross St. Peter’s 10am  
+St. Joseph’s 3pm and St. Peter’s 3pm  
+Solemn Celebration of the Passion of the Lord  
+Prayers around Calvary: Outside at St. Joseph’s 6pm
+
+Holy Saturday 4th April  
+St. Joseph’s: Holy Saturday Morning Prayer at 9am  
+St. Peter’s 7pm Easter Vigil and Service of Light
+
+Easter Sunday 5th April  
+St. Joseph’s 9:15am Easter Sunday Morning Mass  
+St. Peter’s 10:30am Easter Sunday Morning Mass
 
 ---
 
 ## 2026 Lenten Challenge
 
-This year I’m raising money to send them to a school in Malawi, run by the community. It costs just £300 for a child’s education, board and lodging for a whole year, and it would be great to send as many children to build up the school as we can. To this end I will be making 1000 Origami Paper Cranes – an international symbol of hope and peace. If you would like to help us, please see the poster in the Church and Schools, use the QR code to gift if possible, or pass on enveloped donations at the back of Church. And also check out the Paper Cranes made by the children at SJ’s and SP’s. Many thanks in anticipation for your support.
+This year I’m raising money to send children to a school in Malawi, run by the community. It costs just £300 for a child’s education, board and lodging for a whole year, and it would be great to send as many children to build up the school as we can. To this end I will be making 1000 Origami Paper Cranes – an international symbol of hope and peace. If you would like to help us, please see the poster in the Church and Schools, use the QR code to gift if possible, or pass on enveloped donations at the back of Church. And also check out the Paper Cranes made by the children at SJ’s and SP’s. Many thanks in anticipation for your support.
 
 ---
 
-## St Patricks Day Celebration
-
-Quiz, Food, bar and Singalong with the Ukelele Orchestra  
-SJs Hall at 7pm on Saturday 14th March  
-Adults £7 and Children £3  
-Tickets available after Mass or message Susan on [the number in this weeks bulletin](/bulletins)!
+Please pray for Catechumens Rhys and Liam, and Candidates Janos, Csanad, Alan and James as they make their final preparations to be received into Full Communion with the Church at Easter. Please pray for our young people as they gather each Monday evening ton their First Holy Communion Course to prepare this great step in the journey of faith.
 
 ---
 
-## First Holy Communion Course
+## CAFOD Family Fast
 
-We have now begun the course for our young people. Please pray for them as they gather each Monday evening to prepare this great step in the journey of faith.
-
----
-
-## Red Mission Boxes
-
-The Spring collection from the boxes will take place in March. Please bring your box to church and leave in the sacristy (ensure your name is on the box). The boxes will be emptied and returned to the sacristy for your collection. If you would like a box please contact David Warwick via [the number in this weeks bulletin](/bulletins).
+The amount from St Joseph's received by CAFOD was £1,409.70. Huge thanks to everyone who donated to this most important of bi-annual collections.
 
 ---
 
@@ -69,21 +85,15 @@ This Autumn there will be 4 men beginning formation for priesthood for the Dioce
 
 ---
 
-## A Week of Retreat and a School of Prayer
-
-March 9-13 (7-8.30pm) plus day retreat (10am-3pm) on Saturday 14th March. If you feel you need help with prayer so did the first disciples. During this week in mid-lent we will introduce a variety of ways of praying each evening, and do the same again on Saturday. Come to any or all of the online evening meetings or the Saturday. The week is being led by members of the Jesuit Institute for anyone in Lancaster Diocese. The Diocese is covering the cost which makes it free. All the sessions are online. No need to register. To receive the zoom link, and a reminder that it’s happening nearer the time, email Ursula, our Diocesan Spirituality Rep. [uwalker@uwclub.net](mailto:uwalker@uwclub.net)
-
----
-
-## Lancaster Diocesan Pilgrimage to Lourdes
-
-This year the Lourdes Pilgrimage is 23rd – 30th July. Details are on the posters in the porch. There is also a Youth Pilgrimage at the same time. If anyone is interested booking forms are available at the back of Church.
-
----
-
 ## Stations of the Cross Walk from St. Wilfred’s Preston to Ladyewell
 
-Saturday 21st March. Setting off from St Wilfrid's, Preston at 9am, with Mass at 12:30pm On arrival at Ladyewell, we will celebrate Mass together at 12.30pm. Transport back to St. Wilfrid's will be offered for walkers so it is vital that you sign up before hand so we can ensure there is enough transport. You can find all the details and sign up by following this link: [https://metanoiaproject.churchsuite.com/events/x9viwafr](https://metanoiaproject.churchsuite.com/events/x9viwafr)
+Next Saturday 21st March. Setting off from St Wilfrid's, Preston at 9am, with Mass at 12:30pm. You can find all the details [here](https://metanoiaproject.churchsuite.com/events/x9viwafr).
+
+---
+
+## The Holy Rosary
+
+Every Thursday after 10am Mass in Church, for this beautiful prayer. All welcome. Thursday at 10:30am in Church.
 
 ---
 

@@ -6,42 +6,6 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week
 
-### Weekend: Third Sunday in Lent ‘A’
-
-**Saturday 7th**  
-6pm — St. Joseph’s  
-Mass: Intentions of Clare Critch
-
-**Sunday 8th**  
-9:15am — St. Joseph’s  
-Mass: People of the Parishes  
-10:30am — St. Peter’s  
-Mass: Deceased of the Denye Family
-
----
-
-**Monday 9th**  
-9am — St. Peter’s  
-Mass: John Nolan  
-Followed by Exposition and Confessions till 10am  
-7pm — St. Peter’s  
-Stations of the Cross and Benediction
-
-**Tuesday 10th**  
-10am — St. Joseph’s  
-Mass: Susie Jordan  
-Preceded by Exposition and Confessions till 9:55am  
-7pm — St. Joseph’s  
-Stations of the Cross and Benediction
-
-**Wednesday 11th**  
-9am — No Mass today
-
-**Thursday 12th**  
-10am — No Mass today
-
----
-
 ### Weekend: Fourth Sunday in Lent ‘A’
 
 **Saturday 14th**  
@@ -56,12 +20,51 @@ Mass: Mary Chesworth
 
 ---
 
+**Monday 16th**  
+9am — St. Peter’s  
+Mass: John Worsley  
+Followed by Exposition and Confessions till 10am  
+7pm — St. Peter’s  
+Stations of the Cross and Benediction
+
+**Tuesday 17th**  
+10am — St. Joseph’s  
+Mass: Andrew Walker  
+Preceded by Exposition and Confessions till 9:55am  
+7pm — St. Joseph’s  
+Stations of the Cross and Benediction
+
+**Wednesday 18th**  
+9am — St. Peter’s  
+Mass: Ella Ferrino
+
+**Thursday 19th**  
+10am — St. Joseph’s  
+Mass: In Loving Memory of Ian Spedding
+
+---
+
+### Weekend: Fifth Sunday in Lent ‘A’
+
+**Saturday 21st**  
+6pm — St. Joseph’s  
+Mass: Charles O’Neill
+
+**Sunday 22nd**  
+9:15am — St. Joseph’s  
+Mass: Richard Sisson Birthday Remembrance  
+10:30am — St. Peter’s  
+Mass: People of the Parishes
+
+---
+
 ## Sacrament of Reconciliation
 
 Sacrament of Reconciliation with Exposition this week.
 
 Monday 9:30-9:55am at St. Peter’s and Tuesday 9:30-9:50am at St. Joseph’s  
-6:30-6:55pm Monday Before Stations of the Cross at St. Peter’s and Saturday from 5:30pm at St. Joseph’s
+6:30-6:55pm Monday before Stations of the Cross at SP’s,  
+5:30pm-5:50pm Saturday at SJ’s with Exposition from 5pm
 
 Confession is also available by arrangement with Fr. Peter. Tel. 737037
 
