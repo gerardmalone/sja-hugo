@@ -1,0 +1,41 @@
+{{ $current := replaceRE "/$" "" .RelPermalink }}
+<header class="site-header">
+  <div class="site-frame">
+    <div class="site-header__bar">
+      <a class="brand" href="{{ .Site.Home.RelPermalink }}">
+        <span class="brand__mark">
+          <img src="{{ relURL "images/St-Josephs-New-Circle-Logo-HD-Colour1.png" }}" alt="" width="128" height="128" fetchpriority="high" decoding="async">
+        </span>
+        <span class="brand__copy">
+          <span class="brand__eyebrow">Roman Catholic Parish</span>
+          <span class="brand__title">St Joseph's Church, Ansdell</span>
+        </span>
+      </a>
+
+      <button
+        class="nav-toggle"
+        type="button"
+        data-nav-toggle
+        aria-expanded="false"
+        aria-controls="site-menu"
+        aria-label="Toggle navigation"
+      >
+        <span class="nav-toggle__label">Menu</span>
+        <span class="nav-toggle__lines" aria-hidden="true"></span>
+      </button>
+
+      <nav id="site-menu" class="site-nav" data-site-nav aria-label="Main navigation">
+        <ul class="site-nav__list">
+          {{ range .Site.Menus.main }}
+            {{ $target := replaceRE "/$" "" (relLangURL .URL) }}
+            <li>
+              <a href="{{ .URL }}"{{ if eq $current $target }} aria-current="page" class="is-active"{{ end }}>
+                {{ .Name }}
+              </a>
+            </li>
+          {{ end }}
+        </ul>
+      </nav>
+    </div>
+  </div>
+</header>

@@ -18,12 +18,14 @@ FY8 4EP
 
 ---
 
-<div style="position: relative; width: 800px; max-width: 90%; margin: 20px auto; height: 400px;">
+<p><a class="button button--ghost" href="https://www.google.com/maps/search/?api=1&query=St+Joseph%27s+Roman+Catholic+Church%2C+16+Woodlands+Road%2C+Lytham+St+Annes%2C+FY8+4EP" target="_blank" rel="noreferrer">Open in Google Maps</a></p>
+
+<div class="find-us-map">
   <iframe
-    style="width: 100%; height: 100%; border: 0;"
-    src="https://www.google.com/maps/embed/v1/place?key=AIzaSyC67PtpX6Q5tAsEmV6UU3M6z6a6fObvrTQ
-      &q=St+Joseph's+Roman+Catholic+Church,16+Woodlands+Road,Lytham+St+Annes,FY8+4EP
-      &zoom=17"
+    title="Map showing St Joseph's Church, Ansdell"
+    src="https://www.google.com/maps?q=St+Joseph%27s+Roman+Catholic+Church%2C+16+Woodlands+Road%2C+Lytham+St+Annes%2C+FY8+4EP&z=17&output=embed"
+    loading="lazy"
+    referrerpolicy="no-referrer-when-downgrade"
     allowfullscreen>
   </iframe>
 </div>

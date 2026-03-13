@@ -1,0 +1,60 @@
+{{ $collections := slice
+  (dict
+    "title" "Exterior Views"
+    "copy" "The church seen from outside and in its surroundings."
+    "path" "static/images/gallery/one"
+    "public" "images/gallery/one"
+  )
+  (dict
+    "title" "Architectural Details"
+    "copy" "Carved details, angles, and smaller moments from inside the building."
+    "path" "static/images/gallery/two"
+    "public" "images/gallery/two"
+  )
+  (dict
+    "title" "Quiet Interior Views"
+    "copy" "A smaller set of calm interior photographs."
+    "path" "static/images/gallery/three"
+    "public" "images/gallery/three"
+  )
+  (dict
+    "title" "Worship & Seasonal Moments"
+    "copy" "Larger liturgical and devotional scenes from parish life."
+    "path" "static/images/gallery/four"
+    "public" "images/gallery/four"
+  )
+}}
+
+<section class="home-photos">
+  <p class="section-kicker home-photos__label">Church Photos</p>
+  <div class="home-photo-collections">
+    {{ range $index, $collection := $collections }}
+      {{ $files := readDir $collection.path }}
+      <details class="home-photo-collection"{{ if eq $index 0 }} open{{ end }}>
+        <summary class="home-photo-collection__summary">
+          <span class="home-photo-collection__title">{{ $collection.title }}</span>
+          <span class="home-photo-collection__meta">{{ len $files }} photos</span>
+        </summary>
+        <p class="home-photo-collection__copy">{{ $collection.copy }}</p>
+        <div class="home-photo-grid">
+          {{ range $files }}
+            {{ $assetPath := printf "%s/%s" $collection.path .Name }}
+            {{ $srcPath := printf "/%s/%s" $collection.public .Name }}
+            {{ $meta := imageConfig $assetPath }}
+            {{ $alt := replaceRE "\\.[^.]+$" "" .Name | replaceRE "[-_]" " " | humanize }}
+            <a class="home-photo-card" href="{{ $srcPath }}" target="_blank" rel="noreferrer">
+              <img
+                src="{{ $srcPath }}"
+                alt="{{ $alt }}"
+                width="{{ $meta.Width }}"
+                height="{{ $meta.Height }}"
+                loading="lazy"
+                decoding="async"
+              >
+            </a>
+          {{ end }}
+        </div>
+      </details>
+    {{ end }}
+  </div>
+</section>

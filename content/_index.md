@@ -6,7 +6,7 @@ cascade:
   omit_title: true
 ---
 
-Welcome! This website has been designed to help you find information about activities in the Catholic parish of St Joseph's in Ansdell, Lytham St Annes. Each week, the [News](news) page is refreshed with parish news. The [Mass Times & Intentions](feasts-intentions) page is also updated weekly with both Mass times (including any weekly changes) and which feasts and intentions are being celebrated each day of the coming week. You can also subscribe to the weekly bulletin on this [page](bulletins) where you can find the last five bulletins.
+This website has been designed to help you find information about activities in the Catholic parish of St Joseph's in Ansdell, Lytham St Annes. Each week, the [News](news) page is refreshed with parish news. The [Mass Times & Intentions](feasts-intentions) page is also updated weekly with both Mass times (including any weekly changes) and which feasts and intentions are being celebrated each day of the coming week. You can also subscribe to the weekly bulletin on this [page](bulletins) where you can find the last five bulletins.
 
 You can see some wonderful images of our stunning Church below.
 
@@ -14,18 +14,10 @@ You can see some wonderful images of our stunning Church below.
 
 We also have a [Facebook page](https://www.facebook.com/pages/St-Josephs-Roman-Catholic-Church-Ansdell/230000653837017).
 
-![St Joseph's New Circle Logo](images/St-Josephs-New-Circle-Logo-HD-Colour1.png)
+{{< homebadge >}}
 
 Whether you are moving into the parish, passing through, or just curious to know more about us, here you will find a wealth of information about our Catholic Community, our worship of God, and our service to the wider community alongside the other Christian Churches in Ansdell, Fairhaven, Lytham, and St. Annes. We hope that you enjoy the site and welcome any feedback you may have!
 
 ---
 
-## Church Photos
-
-{{< gallery1 "one" >}}
-
-{{< gallery2 "two" >}}
-
-{{< gallery3 "three" >}}
-
-{{< gallery4 "four" >}}
+{{< homephotos >}}

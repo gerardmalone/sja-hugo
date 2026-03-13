@@ -1,0 +1,22 @@
+{{ define "main" }}
+  {{ partial "page-hero.html" . }}
+
+  <section class="site-frame section-block">
+    {{ with .Content }}
+      <article class="content-card">
+        <div class="page-prose">
+          {{ . }}
+        </div>
+      </article>
+    {{ end }}
+
+    {{ if .Paginator.Pages }}
+      <div class="summary-grid">
+        {{ range .Paginator.Pages }}
+          {{ .Render "summary" }}
+        {{ end }}
+      </div>
+      {{ template "_internal/pagination.html" . }}
+    {{ end }}
+  </section>
+{{ end }}

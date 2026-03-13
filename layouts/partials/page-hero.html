@@ -1,0 +1,20 @@
+{{ if .IsHome }}
+  {{ $featuredImage := partial "func/GetFeaturedImage.html" . }}
+  <section
+    class="page-hero page-hero--home{{ if $featuredImage }} has-image{{ end }}"
+    {{ with $featuredImage }}style="--hero-image: url('{{ . }}');"{{ end }}
+  >
+    <div class="site-frame">
+      <div class="page-hero__copy">
+        <p class="section-kicker">Roman Catholic Parish in Ansdell, Lytham St Annes</p>
+        <h1 class="page-hero__title">St Joseph's Church, Ansdell</h1>
+        <p class="page-hero__lede">A warm parish home for worship, weekly notices, bulletins, and practical care, designed so the most useful information is always close at hand.</p>
+
+        <div class="page-hero__actions">
+          <a class="button" href="{{ relURL "feasts-intentions/" }}">Mass Times</a>
+          <a class="button button--ghost" href="{{ relURL "news/" }}">Weekly News</a>
+        </div>
+      </div>
+    </div>
+  </section>
+{{ end }}

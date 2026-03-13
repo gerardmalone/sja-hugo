@@ -1,0 +1,6 @@
+<article class="summary-card">
+  <p class="summary-card__kicker">{{ with .CurrentSection.Title }}{{ . }}{{ else }}Parish page{{ end }}</p>
+  <h2><a href="{{ .RelPermalink }}">{{ .Title }}</a></h2>
+  <p>{{ .Summary | plainify | truncate 180 }}</p>
+  <a class="summary-card__link" href="{{ .RelPermalink }}">Read this page</a>
+</article>

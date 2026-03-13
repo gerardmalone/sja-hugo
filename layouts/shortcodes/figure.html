@@ -1,6 +1,13 @@
-<figure>
-    <a href="{{ .Get "src" }}">
-      <img src="{{ .Get "src" }}" alt="{{ .Get "alt" }}" width="{{ .Get "width" }}" height="{{ .Get "height" }}" />
-    </a>
-    <figcaption>{{ .Inner }}</figcaption>
-  </figure>
+<figure class="parish-figure">
+  <a href="{{ .Get "src" }}">
+    <img
+      src="{{ .Get "src" }}"
+      alt="{{ .Get "alt" }}"
+      width="{{ .Get "width" }}"
+      height="{{ .Get "height" }}"
+      loading="lazy"
+      decoding="async"
+    >
+  </a>
+  <figcaption>{{ .Inner }}</figcaption>
+</figure>

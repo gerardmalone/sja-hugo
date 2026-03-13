@@ -1,0 +1,14 @@
+{{ define "main" }}
+  <section class="site-frame section-block section-block--story">
+    <article class="content-card content-card--story">
+      <header class="home-welcome">
+        <p class="section-kicker">Welcome</p>
+        <h1 class="home-welcome__title">Welcome to St Joseph's Church, Ansdell</h1>
+        <p class="home-welcome__lede">Weekly parish news, Mass times, bulletins, and essential contact details, gathered in one place for parishioners and visitors.</p>
+      </header>
+      <div class="page-prose page-prose--home">
+        {{ .Content }}
+      </div>
+    </article>
+  </section>
+{{ end }}

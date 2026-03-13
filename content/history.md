@@ -32,7 +32,7 @@ During Fr Harry's time here, he established a Parish Council and a Parish Admini
 
 His successor was Fr John Winstanley who had previously worked for six years as Chaplain at Victoria Hospital Blackpool. Fr John was a wonderful Parish Priest who was extremely keen to highlight all the gifts that the Parish had to offer and encouraged a pastoral approach throughout the Parish. Fr John has since been appointed Parish Priest at both St Kentigern's and Christ the King Parishes in Blackpool.
 
-{{< figure src="/images/history/FrJohn.jpg" alt="Fr John Winstanley" width="300" height="201" >}}Fr John Winstanley (Centre){{< /figure >}}
+{{< figure src="/images/history/Fr_John_Winstanley.jpg" alt="Fr John Winstanley" width="300" height="201" >}}Fr John Winstanley (Centre){{< /figure >}}
 
 In September 2013, Fr David Burns was appointed Parish Priest. Fr Burns led the linking of two parishes, St Joseph's in Ansdell and St. Peters in Lytham, in January 2014.
 
