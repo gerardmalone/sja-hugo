@@ -2,7 +2,7 @@
 title: "News"
 draft: false
 ---
-## Fourth Sunday in Lent — Sunday 15th March 2026
+## Fifth Sunday in Lent — Sunday 22nd March 2026
 
 ## Catholic Voice
 
@@ -10,7 +10,9 @@ Latest copy (March) can be found [by clicking this link](https://issuu.com/cathc
 
 ## Message from Father Peter
 
-And so the Paper Crane Challenge continues, and I am now well over the half way mark - and Notelets and Bookmarks are freely available in both of our Churches this weekend. Please also note the Prayer Cranes that the children have been making: well done to them! It’s actually quite a peaceful and mindful thing to do, as has been learning a little more about the culture of 1000 Cranes and the Japanese legend that folding 1000 cranes (senbazuru) so pleases God that the folder is granted a wish. One famous story which has entered modern history is that of Sadako Sasaki. In 1945 after the first atomic bomb was dropped on the city of Hiroshima, Japan, many people became very sick years later with leukaemia and other cancers, and one such girl was named Sadako. When she found out that she had the disease in 1955, Sadako wished to get well so, after hearing the legend, she decided to fold 1,000 cranes. When she died she had folded 644 cranes. Her story had such a profound impact on her friends and classmates that they completed her thousand cranes and raised enough money to build a statue to honour Sadako and all the children affected by the bomb. Today, in Hiroshima’s Peace Park, there is a statue of Sadako standing on top of a granite pedestal holding a golden crane in her outstretched arms. At its base a plaque reads: ‘This is our cry. This is our prayer. Peace in the world.’ Sadako wrote in her journal: ‘I will write Peace on your wings and you will fly all around the world.’ Every year, children from around the world fold cranes and send them to Hiroshima where they are placed around the statue. And because of Sadako, the paper crane has become an international symbol of peace, and a reminder of the events of 1945. Last year my brother visited the Peace garden and sent me some very special origami paper from Hiroshima. As we raise money to educate children in Malawi, let us pray that we can all be educated in the ways of truth, goodness and peace and be the best example of peace to our children that we possibly can. Especially in these present days…
+Continuing the Crane Theme! Following on last week from my explanation about the 1000 Cranes, let me introduce you to a book called ‘The Last Paper Crane’. It’s actually a children’s book - or at least for teen readership. Here’s the blurb on the back of the book: ‘1945, Hiroshima: Ichiro is a teenage boy relaxing at home with his friend Hiro. Moments later there is a blinding flash as the horrific bomb is dropped. With great bravery the two boys find Hiro’s five year-old sister Keiko in the devastated and blasted landscape. With Hiro succumbing to his wounds, Ichiro is now the only one who can take care of Keiko. But in the chaos Ichiro loses her when he sets off to find help. Seventy years later, after the death of his wife, the loss of Keiko and his broken promise to his dying friend are haunting the old man’s fading years. Mizuki, his granddaughter, is determined to help him. As the Japanese legend goes, if you have the patience to fold 1,000 paper cranes, you will find your heart’s desire; and it turns out her grandfather has only one more origami crane to fold…’ The book is unusually written in that modern-day scenes of the story are told in verse - Japanese Haiku of five/seven/five syllables - whilst the grandfather’s story is told in prose, and there are some truly haunting illustrations. It’s not a book about war or politics or blame, but tells of the experience of the bomb through the eyes of unknowing and uncomprehending children; it’s about childhood promises, compassion, guilt, and whether or not there is a possibility of redemption. I sat and read the book in one sitting (it’s that kind of a book). It is such a beautiful, heart-breaking read, and I can thoroughly recommend it (I’d like to say that everybody should read it), although, be warned, have the Kleenex ready for the ending. A whole box. Possibly two. Gentle readers, I was a total mess at the end.
+
+*we are here by grace / we are meant to live in love / we will walk with hope*
 
 ---
 
@@ -24,18 +26,18 @@ During Weekday Exposition as usual and
 before Stations at SP’s on Mondays from 6:30pm and  
 during Exposition on Saturday afternoons at SJ’s from 5:30pm, and…
 
-Prayer before the Blessed Sacrament: Weekday Exposition as usual and Saturdays in Lent at St. Joseph’s 5pm-5:50pm  
+Prayer before the Blessed Sacrament: Weekday Exposition as usual and Saturdays in Lent at St. Joseph’s 5pm-5:50pm
 
-Deanery Lenten Service of Reconciliation:  
-Wednesday 25th March 7pm at Holy Family Church Freckleton
+Deanery Service of Reconciliation  
+This Wednesday 25th Holy Family Freckleton at 7pm
 
 ---
 
-## Holy Week and the Easter Triduum at St. Joseph’s and St. Peter’s 2026
+## Holy Week and The Easter Triduum at St. Joseph’s and St. Peter’s 2026
 
 All are welcome to join us for our beautiful Services
 
-Palm Sunday 28th/29th April  
+Palm Sunday 28th/29th March  
 St. Joseph’s 6pm Saturday Vigil Mass,  
 Sunday St. Joseph’s 9:15am, St. Peters 10:30am  
 Palms will be blessed and distributed at all Masses
@@ -48,13 +50,13 @@ Maundy Thursday 2nd April
 St. Peter’s 7pm Mass of the Lord’s Supper with watching until 10pm with Night Prayer of the Church at 9:50pm
 
 Good Friday 3rd April  
-Stations of the Cross St. Peter’s 10am  
+St. Peter’s 10am Stations of the Cross  
 St. Joseph’s 3pm and St. Peter’s 3pm  
 Solemn Celebration of the Passion of the Lord  
 Prayers around Calvary: Outside at St. Joseph’s 6pm
 
 Holy Saturday 4th April  
-St. Joseph’s: Holy Saturday Morning Prayer at 9am  
+St. Joseph’s: 9am Holy Saturday Morning Prayer  
 St. Peter’s 7pm Easter Vigil and Service of Light
 
 Easter Sunday 5th April  
@@ -65,11 +67,11 @@ St. Peter’s 10:30am Easter Sunday Morning Mass
 
 ## 2026 Lenten Challenge
 
-This year I’m raising money to send children to a school in Malawi, run by the community. It costs just £300 for a child’s education, board and lodging for a whole year, and it would be great to send as many children to build up the school as we can. To this end I will be making 1000 Origami Paper Cranes – an international symbol of hope and peace. If you would like to help us, please see the poster in the Church and Schools, use the QR code to gift if possible, or pass on enveloped donations at the back of Church. And also check out the Paper Cranes made by the children at SJ’s and SP’s. Many thanks in anticipation for your support.
+All donations for my 1000 Crane Challenge to raise money to send children in Malawi to school most gratefully accepted. Envelopes are available at the back of Church, as well as the QR code on the noticeboard. Please take a greetings card or bookmark of my handiwork!
 
 ---
 
-Please pray for Catechumens Rhys and Liam, and Candidates Janos, Csanad, Alan and James as they make their final preparations to be received into Full Communion with the Church at Easter. Please pray for our young people as they gather each Monday evening ton their First Holy Communion Course to prepare this great step in the journey of faith.
+Please pray for Catechumens Rhys and Liam, and Candidates Janos, Csanad, Alan and James, and Confirmandi Jacob and Tara as they make their final preparations to be received into Full Communion with the Church at Easter. Please pray for our young people as they gather each Monday evening on their First Holy Communion Course to prepare this great step in the journey of faith. This week they will be making their First Reconciliation.
 
 ---
 
@@ -77,23 +79,15 @@ Please pray for Catechumens Rhys and Liam, and Candidates Janos, Csanad, Alan an
 
 The amount from St Joseph's received by CAFOD was £1,409.70. Huge thanks to everyone who donated to this most important of bi-annual collections.
 
----
+## Easter Sunday
 
-## Seminarians for the Diocese of Lancaster
-
-This Autumn there will be 4 men beginning formation for priesthood for the Diocese of Lancaster. They will join the propaedeutic year at the Royal English College, Valladolid, Spain. Please support them in your prayers: Alexander Kanaan, Ben O'Flynn, Dominic Standing, Paddie Denton. We ask you to continue to pray for them and for vocations to the priesthood for our diocese.
+5th April - Coffee and Cakes after 10.30am mass at SP’s - proceeds for Father Peters 2026 Lenten Challenge. All Welcome!
 
 ---
 
-## Stations of the Cross Walk from St. Wilfred’s Preston to Ladyewell
+## Family Bingo
 
-Next Saturday 21st March. Setting off from St Wilfrid's, Preston at 9am, with Mass at 12:30pm. You can find all the details [here](https://metanoiaproject.churchsuite.com/events/x9viwafr).
-
----
-
-## The Holy Rosary
-
-Every Thursday after 10am Mass in Church, for this beautiful prayer. All welcome. Thursday at 10:30am in Church.
+SP’s Hall - 18th April 7pm for a 7.30pm start. Proceeds from the evening will go towards the general upkeep of our lovely Saltcotes Chapel.
 
 ---
 
