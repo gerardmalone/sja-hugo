@@ -6,53 +6,7 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week
 
-### Weekend: Fifth Sunday in Lent ‘A’
-
-**Saturday 21st**  
-6pm — St. Joseph’s  
-Mass: Charles O’Neill
-
-**Sunday 22nd**  
-9:15am — St. Joseph’s  
-Mass: Richard Sisson Birthday Remembrance  
-10:30am — St. Peter’s  
-Mass: People of the Parishes
-
----
-
-**Monday 23rd**  
-9am — St. Peter’s  
-Mass: John Gencie  
-Followed by Exposition till 10am  
-11:30am — Lytham Crematorium  
-Service for Michael Louis  
-7pm — St. Peter’s  
-Stations of the Cross and Benediction
-
-**Tuesday 24th**  
-10am — St. Joseph’s  
-Mass: Mary Billington  
-Preceded by Exposition and Confessions till 9:55am  
-7pm — St. Joseph’s  
-Stations of the Cross and Benediction
-
-**Wednesday 25th**  
-9am — St. Peter’s  
-Requiem Mass for Christine Hickman  
-7pm — Holy Family, Freckleton  
-Deanery Service of Reconciliation
-
-**Thursday 26th**  
-11am — St. Joseph’s  
-Requiem Mass for Pat Ormond
-
-**Friday 27th**  
-11:30am — Lytham Crematorium  
-Service for John Szulc
-
----
-
-### Weekend: Palm Sunday of the Passion of the Lord
+### Weekend: Palm Sunday of the Passion of Our Lord ‘A’
 
 **Saturday 28th**  
 6pm — St. Joseph’s  
@@ -65,47 +19,57 @@ Mass: People of the Parishes
 Mass: John Goggins
 
 ---
+**Monday 30th**  
+9am — St. Peter’s  
+Mass: John Nolan  
+Followed by Exposition and Confessions till 10am  
+7pm — St. Peter’s  
+Stations of the Cross and Benediction
 
-## Sacrament of Reconciliation
+**Tuesday 31st**  
+10am — St. Joseph’s  
+Mass: Wing Commander Thomas Gibson and Mary Gibson  
+Preceded by Exposition and Confessions till 9:55am  
+1:15pm — Lytham Crematorium  
+Service for Denise Pye  
+7pm — St. Joseph’s  
+Stations of the Cross and Benediction
 
-Sacrament of Reconciliation with Exposition this week: Tuesday 9:30-9:50am at St. Joseph’s  
-6:30-6:55pm Monday before Stations of the Cross
+**Wednesday 1st**  
+10am — Saltcotes  
+Mass: Frances O’Connor
 
-Deanery Service of Reconciliation: Holy Family, Freckleton, Wednesday 25th at 7pm
+**Thursday 2nd**  
+7pm — St. Peter’s  
+Mass of the Lord’s Supper: Thomas and Dorothy Gilluly  
+10pm — St. Peter’s  
+Night Prayer of the Church
 
-Confession is also available by arrangement with Fr. Peter. Tel. 737037
+**Friday 3rd**  
+10am — St. Peter’s  
+Stations of the Cross  
+3pm — St. Joseph’s  
+Solemn Celebration of the Passion of Our Lord  
+3pm — St. Peter’s  
+Solemn Celebration of the Passion of Our Lord  
+6pm — St. Joseph’s  
+Prayers around the Crucifix (Outside)
 
 ---
 
-## Holy Week and The Easter Triduum at St. Joseph’s and St. Peter’s 2026
+### Weekend: Easter Sunday
 
-All are welcome to join us for our beautiful Services
+**Saturday 4th**  
+9am — St. Joseph’s  
+Morning Prayer for Holy Saturday  
+7pm — St. Peter’s  
+Easter Vigil and Service of Light: People of the Parishes
 
-Palm Sunday 28th/29th March  
-St. Joseph’s 6pm Saturday Vigil Mass,  
-Sunday St. Joseph’s 9:15am, St. Peters 10:30am  
-Palms will be blessed and distributed at all Masses
-
-Monday 30th March: St. Peter’s 9am Mass, Stations at 7pm  
-Tuesday 31st March: St. Joseph’s 10am Mass, Stations at 7pm  
-Spy Wednesday 1st April: Saltcotes 10am Mass
-
-Maundy Thursday 2nd April  
-St. Peter’s 7pm Mass of the Lord’s Supper with watching until 10pm with Night Prayer of the Church at 9:50pm
-
-Good Friday 3rd April  
-St. Peter’s 10am Stations of the Cross  
-St. Joseph’s 3pm and St. Peter’s 3pm  
-Solemn Celebration of the Passion of the Lord  
-Prayers around Calvary: Outside at St. Joseph’s 6pm
-
-Holy Saturday 4th April  
-St. Joseph’s: 9am Holy Saturday Morning Prayer  
-St. Peter’s 7pm Easter Vigil and Service of Light
-
-Easter Sunday 5th April  
-St. Joseph’s 9:15am Easter Sunday Morning Mass  
-St. Peter’s 10:30am Easter Sunday Morning Mass
+**Sunday 5th**  
+9:15am — St. Joseph’s  
+Mass: Deceased of the O’Dea Family  
+10:30am — St. Peter’s  
+Mass: Birthday Intentions of Eileen Illingworth
 
 ---
 

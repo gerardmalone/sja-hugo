@@ -2,34 +2,28 @@
 title: "News"
 draft: false
 ---
-## Fifth Sunday in Lent — Sunday 22nd March 2026
+## Palm Sunday — Sunday 29th March 2026
 
 ## Catholic Voice
 
-Latest copy (March) can be found [by clicking this link](https://issuu.com/cathcom/docs/lancaster_voice_march_2026).
+Latest copy (March) can be found [by clicking this link](https://issuu.com/cathcom/docs/lancaster_voice_april_2026).
 
 ## Message from Father Peter
 
-Continuing the Crane Theme! Following on last week from my explanation about the 1000 Cranes, let me introduce you to a book called ‘The Last Paper Crane’. It’s actually a children’s book - or at least for teen readership. Here’s the blurb on the back of the book: ‘1945, Hiroshima: Ichiro is a teenage boy relaxing at home with his friend Hiro. Moments later there is a blinding flash as the horrific bomb is dropped. With great bravery the two boys find Hiro’s five year-old sister Keiko in the devastated and blasted landscape. With Hiro succumbing to his wounds, Ichiro is now the only one who can take care of Keiko. But in the chaos Ichiro loses her when he sets off to find help. Seventy years later, after the death of his wife, the loss of Keiko and his broken promise to his dying friend are haunting the old man’s fading years. Mizuki, his granddaughter, is determined to help him. As the Japanese legend goes, if you have the patience to fold 1,000 paper cranes, you will find your heart’s desire; and it turns out her grandfather has only one more origami crane to fold…’ The book is unusually written in that modern-day scenes of the story are told in verse - Japanese Haiku of five/seven/five syllables - whilst the grandfather’s story is told in prose, and there are some truly haunting illustrations. It’s not a book about war or politics or blame, but tells of the experience of the bomb through the eyes of unknowing and uncomprehending children; it’s about childhood promises, compassion, guilt, and whether or not there is a possibility of redemption. I sat and read the book in one sitting (it’s that kind of a book). It is such a beautiful, heart-breaking read, and I can thoroughly recommend it (I’d like to say that everybody should read it), although, be warned, have the Kleenex ready for the ending. A whole box. Possibly two. Gentle readers, I was a total mess at the end.
+Our Gospel Readings for the first three days of Holy Week:
 
-*we are here by grace / we are meant to live in love / we will walk with hope*
+Monday: John 12:1-11 today’s Gospel tells us of the incidents during the last days of Jesus before the Passover. Today we hear that Mary, the sister of Lazarus and Martha, anoints Jesus - in preparation for his death - in spite of the protests of Judas, who saw it as a waste of money.
+
+Tuesday: John 13:21-33.36-38 We contrast Judas and Peter. Judas is greedy and his greed leads to disloyalty and betrayal. Jesus will be glorified through his actions. Peter is impetuous and makes unreasonable promises that he will later regret. But he will also repent of his mistakes.
+
+Wednesday: Matthew 26:14-25 There are many things to reflect on as we prepare for the three sacred days of the Triduum, beginning tomorrow night. We have a description of the betrayal by Judas, which gives this day its name ‘Spy Wednesday’, the preparation for the Last Supper, the account of this supper and the institution of the Eucharist, and the forecast that the disciples would scatter in fear, in spite of their protestations of loyalty.
 
 ---
 
-## Lent 2026 at St. Joseph’s and St. Peter’s
+## Palm Sunday 28th/29th March 2026
 
 Stations of the Cross and Benediction:  
-Mondays at SP’s at 7pm and Tuesdays at SJ’s at 7pm
-
-Extra Times for the Sacrament of Confession:  
-During Weekday Exposition as usual and  
-before Stations at SP’s on Mondays from 6:30pm and  
-during Exposition on Saturday afternoons at SJ’s from 5:30pm, and…
-
-Prayer before the Blessed Sacrament: Weekday Exposition as usual and Saturdays in Lent at St. Joseph’s 5pm-5:50pm
-
-Deanery Service of Reconciliation  
-This Wednesday 25th Holy Family Freckleton at 7pm
+Monday at SP’s at 7pm and Tuesday at SJ’s at 7pm
 
 ---
 
@@ -37,23 +31,20 @@ This Wednesday 25th Holy Family Freckleton at 7pm
 
 All are welcome to join us for our beautiful Services
 
-Palm Sunday 28th/29th March  
-St. Joseph’s 6pm Saturday Vigil Mass,  
-Sunday St. Joseph’s 9:15am, St. Peters 10:30am  
-Palms will be blessed and distributed at all Masses
-
-Monday 30th March: St. Peter’s 9am Mass, Stations at 7pm  
-Tuesday 31st March: St. Joseph’s 10am Mass, Stations at 7pm  
 Spy Wednesday 1st April: Saltcotes 10am Mass
 
 Maundy Thursday 2nd April  
-St. Peter’s 7pm Mass of the Lord’s Supper with watching until 10pm with Night Prayer of the Church at 9:50pm
+St. Peter’s 7pm Mass of the Lord’s Supper  
+with Washing of Feet, Blessed Sacrament Procession, and  
+Watching until 10pm with  
+Night Prayer of the Church at 9:50pm
 
 Good Friday 3rd April  
 St. Peter’s 10am Stations of the Cross  
+Ecumenical Service: St. Paul’s Charity Shop Woodlands Road 10am  
 St. Joseph’s 3pm and St. Peter’s 3pm  
 Solemn Celebration of the Passion of the Lord  
-Prayers around Calvary: Outside at St. Joseph’s 6pm
+Prayers around Calvary: Outside at St. Joseph’s at 6pm
 
 Holy Saturday 4th April  
 St. Joseph’s: 9am Holy Saturday Morning Prayer  
@@ -65,29 +56,36 @@ St. Peter’s 10:30am Easter Sunday Morning Mass
 
 ---
 
+## Holy Saturday Morning Prayer
+
+Please note the ‘extra’ service this year - Morning Prayer for Holy Saturday in SJ’s next Saturday Morning at 9am., in the bleakness of the Church after Good Friday.
+
+---
+
 ## 2026 Lenten Challenge
 
 All donations for my 1000 Crane Challenge to raise money to send children in Malawi to school most gratefully accepted. Envelopes are available at the back of Church, as well as the QR code on the noticeboard. Please take a greetings card or bookmark of my handiwork!
 
 ---
 
-Please pray for Catechumens Rhys and Liam, and Candidates Janos, Csanad, Alan and James, and Confirmandi Jacob and Tara as they make their final preparations to be received into Full Communion with the Church at Easter. Please pray for our young people as they gather each Monday evening on their First Holy Communion Course to prepare this great step in the journey of faith. This week they will be making their First Reconciliation.
+Please pray for Catechumens Rhys and Liam, and Candidates Janos, Csanad, Alan and James, and Confirmandi Jacob and Tara as they make their final preparations to be received into Full Communion with the Church at Easter.
 
 ---
 
-## CAFOD Family Fast
+Congratulations to our First Holy Communion Children who received the Sacrament of Reconciliation for the first time on Monday evening, and will lead us in our Mass on Maundy Thursday.
 
-The amount from St Joseph's received by CAFOD was £1,409.70. Huge thanks to everyone who donated to this most important of bi-annual collections.
+---
 
 ## Easter Sunday
 
-5th April - Coffee and Cakes after 10.30am mass at SP’s - proceeds for Father Peters 2026 Lenten Challenge. All Welcome!
+5th April: Coffee and Cakes after 10.30am mass at SP’s - proceeds for Father Peters 2026 Lenten Challenge. All Welcome!
 
 ---
 
 ## Family Bingo
 
-SP’s Hall - 18th April 7pm for a 7.30pm start. Proceeds from the evening will go towards the general upkeep of our lovely Saltcotes Chapel.
+SP’s Hall  
+Sat. 18th April 7pm for a 7.30pm start. Proceeds from the evening will go towards the general upkeep of our lovely Saltcotes Chapel.
 
 ---
 

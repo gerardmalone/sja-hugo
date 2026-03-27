@@ -13,6 +13,9 @@ Please note that if you send information for the weekly bulletin via e-mail ([sj
 
 All bulletin queries should be directed to **Fr. Peter**. If there is a limited amount of space, notices may have to be abbreviated. Wherever possible a notice will be published in full. Notices can only be included up to a maximum of **3 weeks**.
 
+**Palm Sunday**  
+[29th March 2026](/bulletins/Bulletin290326.pdf)  
+
 **Fifth Sunday in Lent**  
 [22nd March 2026](/bulletins/Bulletin220326.pdf)  
 
@@ -24,6 +27,3 @@ All bulletin queries should be directed to **Fr. Peter**. If there is a limited 
 
 **Second Sunday in Lent**  
 [1st March 2026](/bulletins/Bulletin010326.pdf)  
-
-**First Sunday in Lent**  
-[22nd February 2026](/bulletins/Bulletin220226.pdf)  
