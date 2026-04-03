@@ -20,6 +20,8 @@ An interim total will be announced this weekend. Continued thanks for all your g
 
 ---
 
+## Congratulations
+
 Congratulations to Rhys and Liam, Janos and Csanad, Alan and James, and Jacob and Tara who have made this most important step in their journeys of faith this Easter. May God continue to shower many blessings upon them.
 
 ---
