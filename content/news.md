@@ -2,83 +2,38 @@
 title: "News"
 draft: false
 ---
-## Palm Sunday — Sunday 29th March 2026
+## Easter Sunday — Sunday 5th April 2026
 
 ## Catholic Voice
 
-Latest copy (March) can be found [by clicking this link](https://issuu.com/cathcom/docs/lancaster_voice_april_2026).
+Latest copy (April) can be found [by clicking this link](https://issuu.com/cathcom/docs/lancaster_voice_april_2026).
 
 ## Message from Father Peter
 
-Our Gospel Readings for the first three days of Holy Week:
-
-Monday: John 12:1-11 today’s Gospel tells us of the incidents during the last days of Jesus before the Passover. Today we hear that Mary, the sister of Lazarus and Martha, anoints Jesus - in preparation for his death - in spite of the protests of Judas, who saw it as a waste of money.
-
-Tuesday: John 13:21-33.36-38 We contrast Judas and Peter. Judas is greedy and his greed leads to disloyalty and betrayal. Jesus will be glorified through his actions. Peter is impetuous and makes unreasonable promises that he will later regret. But he will also repent of his mistakes.
-
-Wednesday: Matthew 26:14-25 There are many things to reflect on as we prepare for the three sacred days of the Triduum, beginning tomorrow night. We have a description of the betrayal by Judas, which gives this day its name ‘Spy Wednesday’, the preparation for the Last Supper, the account of this supper and the institution of the Eucharist, and the forecast that the disciples would scatter in fear, in spite of their protestations of loyalty.
-
----
-
-## Palm Sunday 28th/29th March 2026
-
-Stations of the Cross and Benediction:  
-Monday at SP’s at 7pm and Tuesday at SJ’s at 7pm
-
----
-
-## Holy Week and The Easter Triduum at St. Joseph’s and St. Peter’s 2026
-
-All are welcome to join us for our beautiful Services
-
-Spy Wednesday 1st April: Saltcotes 10am Mass
-
-Maundy Thursday 2nd April  
-St. Peter’s 7pm Mass of the Lord’s Supper  
-with Washing of Feet, Blessed Sacrament Procession, and  
-Watching until 10pm with  
-Night Prayer of the Church at 9:50pm
-
-Good Friday 3rd April  
-St. Peter’s 10am Stations of the Cross  
-Ecumenical Service: St. Paul’s Charity Shop Woodlands Road 10am  
-St. Joseph’s 3pm and St. Peter’s 3pm  
-Solemn Celebration of the Passion of the Lord  
-Prayers around Calvary: Outside at St. Joseph’s at 6pm
-
-Holy Saturday 4th April  
-St. Joseph’s: 9am Holy Saturday Morning Prayer  
-St. Peter’s 7pm Easter Vigil and Service of Light
-
-Easter Sunday 5th April  
-St. Joseph’s 9:15am Easter Sunday Morning Mass  
-St. Peter’s 10:30am Easter Sunday Morning Mass
-
----
-
-## Holy Saturday Morning Prayer
-
-Please note the ‘extra’ service this year - Morning Prayer for Holy Saturday in SJ’s next Saturday Morning at 9am., in the bleakness of the Church after Good Friday.
+A Huge Thank You to everyone involved with the wonderful services we have celebrated over Lent and Easter: our friends and deacons, Michael and David, the altar servers and sacristy organisers, the readers and ministers and organizers; the choirs and instrumentalists; the flower people; the welcomers; the collectors; the children’s and sacramental catechists, teachers and parents; not forgetting our extra special children themselves who help the future of our parishes to shine brightly; the refreshment makers and social organisers; our Church Cleaners and those who prepared the Churches; and all those who keep the Parishes, the Churches, the House and grounds running; personal thanks to the people who do support me in my ministry here; and everyone (including those I haven’t mentioned… forgive me!) who comes along throughout the year, every day and every Sunday, to ensure that the light of Christ is burning brightly at St. Joseph’s and St. Peter’s throughout the year. A very Happy Eastertide to you all!
 
 ---
 
 ## 2026 Lenten Challenge
 
-All donations for my 1000 Crane Challenge to raise money to send children in Malawi to school most gratefully accepted. Envelopes are available at the back of Church, as well as the QR code on the noticeboard. Please take a greetings card or bookmark of my handiwork!
+An interim total will be announced this weekend. Continued thanks for all your great support which is enabling to change the lives of so many children. Many blessings, and watch this space for news about how your donations have being used.
 
 ---
 
-Please pray for Catechumens Rhys and Liam, and Candidates Janos, Csanad, Alan and James, and Confirmandi Jacob and Tara as they make their final preparations to be received into Full Communion with the Church at Easter.
+Congratulations to Rhys and Liam, Janos and Csanad, Alan and James, and Jacob and Tara who have made this most important step in their journeys of faith this Easter. May God continue to shower many blessings upon them.
 
 ---
 
-Congratulations to our First Holy Communion Children who received the Sacrament of Reconciliation for the first time on Monday evening, and will lead us in our Mass on Maundy Thursday.
+## Feast of Divine Mercy
+
+Sunday 12th April 2026  
+Our Lady of the Assumption Church Blackpool, Blackpool. Begins at 2.30pm Blessing and Veneration of Image 3pm: Divine Mercy Chaplet, Exposition of the Blessed Sacrament & Confessions.
 
 ---
 
-## Easter Sunday
+## Pilgrimages
 
-5th April: Coffee and Cakes after 10.30am mass at SP’s - proceeds for Father Peters 2026 Lenten Challenge. All Welcome!
+Pilgrimage to Lourdes with the Diocese: leaflets and forms at the back of Church. Pilgrimage to Walsingham 2026: the National Shrine to Our Blessed Lady, will take place 28 September to 1 October 2026. The theme for this year’s pilgrimage is “Mary, cause of our Joy.” The all-inclusive cost is £360.00-£420.00 (dependent on accommodation type). Coach collection/drop off will take place in Workington, Carlisle, Penrith, Lancaster and Preston. For more information and booking details contact the pilgrimage organiser Deacon Charlie Conner on 07711 345 176 or email [charlie.conner@lrcd.org.uk](mailto:charlie.conner@lrcd.org.uk)
 
 ---
 

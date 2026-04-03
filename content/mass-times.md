@@ -6,57 +6,6 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week
 
-### Weekend: Palm Sunday of the Passion of Our Lord ‘A’
-
-**Saturday 28th**  
-6pm — St. Joseph’s  
-Mass: Deceased of the Burke Family
-
-**Sunday 29th**  
-9:15am — St. Joseph’s  
-Mass: People of the Parishes  
-10:30am — St. Peter’s  
-Mass: John Goggins
-
----
-**Monday 30th**  
-9am — St. Peter’s  
-Mass: John Nolan  
-Followed by Exposition and Confessions till 10am  
-7pm — St. Peter’s  
-Stations of the Cross and Benediction
-
-**Tuesday 31st**  
-10am — St. Joseph’s  
-Mass: Wing Commander Thomas Gibson and Mary Gibson  
-Preceded by Exposition and Confessions till 9:55am  
-1:15pm — Lytham Crematorium  
-Service for Denise Pye  
-7pm — St. Joseph’s  
-Stations of the Cross and Benediction
-
-**Wednesday 1st**  
-10am — Saltcotes  
-Mass: Frances O’Connor
-
-**Thursday 2nd**  
-7pm — St. Peter’s  
-Mass of the Lord’s Supper: Thomas and Dorothy Gilluly  
-10pm — St. Peter’s  
-Night Prayer of the Church
-
-**Friday 3rd**  
-10am — St. Peter’s  
-Stations of the Cross  
-3pm — St. Joseph’s  
-Solemn Celebration of the Passion of Our Lord  
-3pm — St. Peter’s  
-Solemn Celebration of the Passion of Our Lord  
-6pm — St. Joseph’s  
-Prayers around the Crucifix (Outside)
-
----
-
 ### Weekend: Easter Sunday
 
 **Saturday 4th**  
@@ -65,11 +14,47 @@ Morning Prayer for Holy Saturday
 7pm — St. Peter’s  
 Easter Vigil and Service of Light: People of the Parishes
 
-**Sunday 5th**  
+**Sunday 5th Easter Sunday**  
 9:15am — St. Joseph’s  
 Mass: Deceased of the O’Dea Family  
 10:30am — St. Peter’s  
 Mass: Birthday Intentions of Eileen Illingworth
+
+---
+
+**Monday 6th**  
+No Mass
+
+**Tuesday 7th**  
+No Mass
+
+**Wednesday 8th**  
+9am — St. Peter’s  
+Mass: Maurice Mason
+
+**Thursday 9th**  
+10am — St. Joseph’s  
+Mass: Ron Rawstron
+
+---
+
+### Weekend: Second Sunday of Easter
+
+**Saturday 11th**  
+6pm — St. Joseph’s  
+Mass: Cathy Gaughan
+
+**Sunday 12th**  
+9:15am — St. Joseph’s  
+Mass: Kenneth and Margaret Hammond  
+10:30am — St. Peter’s  
+Mass: People of the Parishes
+
+---
+
+## Sacrament of Reconciliation
+
+No Sacrament of Reconciliation with Exposition this week.
 
 ---
 
