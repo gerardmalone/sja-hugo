@@ -6,39 +6,7 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week
 
-### Weekend: Easter Sunday
-
-**Saturday 4th**  
-9am — St. Joseph’s  
-Morning Prayer for Holy Saturday  
-7pm — St. Peter’s  
-Easter Vigil and Service of Light: People of the Parishes
-
-**Sunday 5th Easter Sunday**  
-9:15am — St. Joseph’s  
-Mass: Deceased of the O’Dea Family  
-10:30am — St. Peter’s  
-Mass: Birthday Intentions of Eileen Illingworth
-
----
-
-**Monday 6th**  
-No Mass
-
-**Tuesday 7th**  
-No Mass
-
-**Wednesday 8th**  
-9am — St. Peter’s  
-Mass: Maurice Mason
-
-**Thursday 9th**  
-10am — St. Joseph’s  
-Mass: Ron Rawstron
-
----
-
-### Weekend: Second Sunday of Easter
+### Weekend: Second Sunday of Easter 'A'
 
 **Saturday 11th**  
 6pm — St. Joseph’s  
@@ -52,9 +20,45 @@ Mass: People of the Parishes
 
 ---
 
+**Monday 13th**  
+9am — St. Peter’s  
+Mass: Eileen Illingworth 90th B'day intentions followed by Exposition and Confessions till 10am
+
+**Tuesday 14th**  
+11am — St. Joseph’s  
+Requiem Mass for Beryl Winifred Hudson
+
+**Wednesday 15th**  
+9am — St. Peter’s  
+Mass: Judith Cross
+
+**Thursday 16th**  
+10am — St. Joseph’s  
+Mass: Mary, Arthur and Kathleen Horton
+
+---
+
+### Weekend: Third Sunday of Easter 'A'
+
+**Saturday 18th**  
+6pm — St. Joseph’s  
+Mass: Pat Ormond
+
+**Sunday 19th**  
+9:15am — St. Joseph’s  
+Mass: Charles O'Neill  
+10:30am — St. Peter’s  
+Mass: People of the Parishes
+
+---
+
 ## Sacrament of Reconciliation
 
-No Sacrament of Reconciliation with Exposition this week.
+Sacrament of Reconciliation with Exposition this week.
+
+Monday 9:30-9:55am at St. Peter’s
+
+Confession is also available by arrangement with Fr. Peter. Tel. 737037
 
 ---
 
