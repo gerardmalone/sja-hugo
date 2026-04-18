@@ -2,7 +2,7 @@
 title: "News"
 draft: false
 ---
-## Second Sunday of Easter — Sunday 12th April 2026
+## Third Sunday of Easter — Sunday 19th April 2026
 
 ## Catholic Voice
 
@@ -10,43 +10,113 @@ Latest copy (April) can be found [by clicking this link](https://issuu.com/cathc
 
 ## Message from Father Peter
 
-So, what happened next? The Gospels record the events of the resurrection of Jesus, and his Ascension into heaven forty days later. What happens next is outlined in the sequel to St. Luke's Gospel, which he wrote as an ordered account of the life and teachings of Jesus of Nazareth (his own description), the Acts of the Apostles. This great book, which we will be reading on weekdays and Sundays throughout Eastertide tells the wonderful, and exciting and exhilarating, story of the Early Church. We begin with the Apostles lost and confused in the Upper Room where they celebrated the Last Supper, with our Blessed Mother Mary amongst them. Chapter two outlines the Coming of the Holy Spirit on Pentecost Sunday (the fiftieth day after Easter) after which the Apostles go out and preach a brand-new message - that of Christ Crucified and Risen, and baptise thousands of people in the name of the Father and of the Son and of the Holy Spirit. From the Church being founded in Jerusalem we see the Church becoming truly Catholic, meaning Universal, as the Apostles scatter around the world, with St. Peter centering the Church of Christ in the City of Rome. We hear of the first Council of the Church in Jerusalem, especially focusing on which traditions of Judaism are taken forward into Christianity. And we follow the journey of St. Paul, whom we first meet as Saul, approving of the killing of the first Martyr, St. Stephen, before being blinded with the light of Christ on the road to Damascus, and becoming one of the fiercest defenders of the faith. We meet so many amazing characters, such as Lydia, who works in the Purple Dye Trade, and an Ethiopian Eunuch, who receives catechesis from St. Philip in his Chariot, and is invoked when we bless cars and other modes of transport. It's one of the most exciting and readable books in the whole of the Scriptures, and we are blessed to have this wonderful, Spirit inspired document to help us celebrate and wonder at our continuation of this very same story in our Church in this day and age. As we look forward to reading and hearing this great book, let us pray: Father, anoint us with your Holy Spirit, so that as we read and listen to your eternal Word, your Word may penetrate my whole being and transform me. Grant me the blessing to be a faithful disciple in believing the Word of God, preaching the Word of God, and living the Word of God, that I may be a light shining upon all who are in darkness. Amen. Incidentally, what kind of car did the Apostles drive? A Honda. Because in the Acts of the Apostles, it says they were all in one Accord. I'll get my coat. And my New Testament.
+In today’s Gospel the hearts of the two Disciples on the Road to Emmaus burn within them at the explanation of the Scriptures that Jesus gives them. Whenever we need the inspired word of God, it is always there for us. Here are some ‘Emergency Numbers’ it might be useful to have!
+
+<table class="emergency-numbers-table">
+  <tbody>
+    <tr>
+      <td>When in sorrow: John 14</td>
+      <td>When you prepare for travel: Psalm 121</td>
+    </tr>
+    <tr>
+      <td>When humankind fails you: Psalm 27</td>
+      <td>When your prayers grow narrow or selfish: Psalm 67</td>
+    </tr>
+    <tr>
+      <td>When you have sinned: Psalm 51</td>
+      <td>When you want courage for a task: Joshua 1</td>
+    </tr>
+    <tr>
+      <td>When you have worry: Matthew 6:19-34</td>
+      <td>To get along with those around you: Romans 12</td>
+    </tr>
+    <tr>
+      <td>When you are in danger: Psalm 91</td>
+      <td>For a great intervention or opportunity: Isaiah 55</td>
+    </tr>
+    <tr>
+      <td>When God seems far away: Psalm 139</td>
+      <td>For Paul's secret to happiness: Col. 3:12-17</td>
+    </tr>
+    <tr>
+      <td>When your faith needs stirring: Hebrews 11</td>
+      <td>If you want to be fruitful: John 15</td>
+    </tr>
+    <tr>
+      <td>When you are lonely and fearful: Psalm 23</td>
+      <td>If your purse is empty: Psalm 37</td>
+    </tr>
+    <tr>
+      <td>When you grow bitter and critical: 1 Cor. 15</td>
+      <td>If you're losing confidence in people: 1 Cor. 13</td>
+    </tr>
+    <tr>
+      <td>When you feel down and out: Romans 8:31-39</td>
+      <td>If people seem unkind: John 15</td>
+    </tr>
+    <tr>
+      <td>When you want peace and rest: Matthew 11:25-30</td>
+      <td>If discouraged about your work: Psalm 126</td>
+    </tr>
+    <tr>
+      <td>When God seems too small: Psalm 90</td>
+      <td>When you feel small: Psalm 19</td>
+    </tr>
+    <tr>
+      <td>When you need assurance: Romans 8:1-30</td>
+      <td>Fr. P’s Favourite: 1 John 3:1-3</td>
+    </tr>
+  </tbody>
+</table>
 
 ---
 
-## Huge continued Eastertide thanks
+## Third Tuesday of the Month at SJSP’s
 
-To everyone involved with the wonderful services we have celebrated over Lent and Easter: our friends and deacons, Michael and David, the altar servers and sacristy organisers, the readers and ministers and organizers; the choirs and instrumentalists; the flower people; the welcomers; the collectors; the children's and sacramental catechists, teachers and parents; not forgetting our extra special children themselves who help the future of our parishes to shine brightly; the refreshment makers and social organisers; our Church Cleaners and those who prepared the Churches; and all those who keep the Parishes, the Churches, the House and grounds running; personal thanks to the people who do support me in my ministry here; and everyone (including those I haven't mentioned... forgive me!) who comes along throughout the year, every day and every Sunday, to ensure that the light of Christ is burning brightly at St. Joseph's and St. Peter's throughout the year. A very Happy Eastertide to you all!
-
----
-
-## 2026 Lenten Challenge
-
-As announced last week, the total donated by SJSP, from envelopes, from the JustGiving page, together with amazing contributions from our own St. Peter's school where all the children did a sponsored walk raising nearly GBP1500, along with a contribution of GBP600 from the St. Bede's Mission Week, the staggering total (whilst still awaiting further donations from the other junior schools in the area) is GBP12,832! That is truly so much more than I could ever have imagined! Continued thanks for your great support which is enabling to change the lives of so many children. There will be information from Malawi when we receive news from how they are working God's mission with our support. Many blessings.
+This Tuesday 21st April: Holy Hour with Rosary & Benediction: St. Joseph’s at 6:30pm
 
 ---
 
 ## First Holy Communion
 
-The course resumes in SJ's Hall this Monday 13th at 6pm. We look forward to our First Communion Mass on May 16th.
+The course continues in SJ’s Hall this Monday at 6pm, though we will be starting in Church. We look forward to our First Communion Mass on May 16th, with the children leading Marian processions in each Church the following day.
+
+---
+
+## Red Boxes 2025
+
+In the year to December 2025 our parish raised £1,074.97 through the red boxes and including individuals giving directly. Thank You. D.Warwick
+
+---
+
+## Safeguarding
+
+It is important to ensure that any parishioners who are involved in any role within the Parish are covered by the Safeguarding process. If you are new to a role or are unsure whether you are covered or have any questions there are opportunities to talk to our Safeguarding Representatives over the next couple of weeks at the back of Church. Many thanks for your co-operation!
+
+---
+
+## Save the Date!
+
+The Social Committee of our two Parishes are arranging a Sunday Lunch at The Bedford Hotel in St. Annes on November 1st – the Feast of All Saints. More information to follow, but a three-course lunch with food choices, including coffee, will be £25 and £12:50 for children. Please put the Date in your diary! Cheers!
+
+---
+
+## SJSP Ukulele Orchestra
+
+Learning and rehearsing each Monday in SP’s Hall at 7pm. Newcomers always welcome to join in the fun.
+
+---
+
+## Family Bingo in SP’s Hall
+
+Tonight (if you’re at SJ’s 6pm!) Sat. 18th April  
+7pm for a 7.30pm start. Proceeds from the evening will go towards the general upkeep of our lovely Saltcotes Chapel.
 
 ---
 
 ## Pilgrimage to Lourdes with the Diocese
 
-Leaflets and forms at the back of Church. Pilgrimage to Walsingham 2026: the National Shrine to Our Blessed Lady, will take place 28 September to 1 October 2026. The theme for this year's pilgrimage is "Mary, cause of our Joy." The all-inclusive cost is GBP360.00-GBP420.00 (dependent on accommodation type). Coach collection/drop off will take place in Workington, Carlisle, Penrith, Lancaster and Preston. For more information and booking details contact the pilgrimage organiser Deacon Charlie Conner on [the number in this weeks bulletin](/bulletins) or email [charlie.conner@lrcd.org.uk](mailto:charlie.conner@lrcd.org.uk)
-
----
-
-## Feast of Divine Mercy
-
-Today Sunday 12th April 2026 Our Lady of the Assumption Church Blackpool, Blackpool. Begins at 2.30pm Blessing and Veneration of Image 3pm; Divine Mercy Chaplet, Exposition of the Blessed Sacrament & Confessions.
-
----
-
-## Family Bingo in SP's Hall
-
-Sat. 18th April 7pm for a 7.30pm start. Proceeds from the evening will go towards the general upkeep of our lovely Saltcotes Chapel.
+Leaflets and forms at the back of Church. Pilgrimage to Walsingham 2026: the National Shrine to Our Blessed Lady, will take place 28 September to 1 October 2026. The theme for this year’s pilgrimage is “Mary, cause of our Joy.” The all-inclusive cost is £360.00-£420.00 (dependent on accommodation type). Coach collection/drop off will take place in Workington, Carlisle, Penrith, Lancaster and Preston. For more information and booking details contact the pilgrimage organiser Deacon Charlie Conner.
 
 ---
 

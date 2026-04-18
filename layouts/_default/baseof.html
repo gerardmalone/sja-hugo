@@ -52,7 +52,7 @@
 
     {{ block "head" . }}{{ partial "head-additions.html" . }}{{ end }}
   </head>
-  <body class="site-body{{ if .IsHome }} is-home{{ end }} kind-{{ .Kind }}">
+  <body class="site-body{{ if .IsHome }} is-home{{ end }} kind-{{ .Kind }}{{ with .File }} page-{{ .BaseFileName | urlize }}{{ end }}">
     <a class="skip-link" href="#main">Skip to content</a>
     {{ partial "site-header.html" . }}
     <main id="main" class="site-main">

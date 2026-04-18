@@ -6,38 +6,6 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week
 
-### Weekend: Second Sunday of Easter 'A'
-
-**Saturday 11th**  
-6pm — St. Joseph’s  
-Mass: Cathy Gaughan
-
-**Sunday 12th**  
-9:15am — St. Joseph’s  
-Mass: Kenneth and Margaret Hammond  
-10:30am — St. Peter’s  
-Mass: People of the Parishes
-
----
-
-**Monday 13th**  
-9am — St. Peter’s  
-Mass: Eileen Illingworth 90th B'day intentions followed by Exposition and Confessions till 10am
-
-**Tuesday 14th**  
-11am — St. Joseph’s  
-Requiem Mass for Beryl Winifred Hudson
-
-**Wednesday 15th**  
-9am — St. Peter’s  
-Mass: Judith Cross
-
-**Thursday 16th**  
-10am — St. Joseph’s  
-Mass: Mary, Arthur and Kathleen Horton
-
----
-
 ### Weekend: Third Sunday of Easter 'A'
 
 **Saturday 18th**  
@@ -52,11 +20,45 @@ Mass: People of the Parishes
 
 ---
 
+**Monday 20th**  
+11am — St. Peter’s  
+Requiem Mass for Sr. Dominic Savio
+
+**Tuesday 21st**  
+10am — St. Joseph’s  
+Mass: Mary Josephine Buckley preceded by Exposition and Confessions till 9:55am  
+6:30pm — St. Joseph’s  
+Holy Hour with Rosary and Benediction
+
+**Wednesday 22nd**  
+9am — St. Peter’s  
+Mass: Jimmy McGettigan
+
+**Thursday 23rd**  
+10am — St. Joseph’s  
+Mass: William and Mary Murray
+
+---
+
+### Weekend: Fourth Sunday of Easter 'A'
+
+**Saturday 25th**  
+6pm — St. Joseph’s  
+Mass: Fr. Peter Crowther
+
+**Sunday 26th**  
+9:15am — St. Joseph’s  
+Mass: People of the Parishes  
+10:30am — St. Peter’s  
+Mass: Vera McLaughlin
+
+---
+
 ## Sacrament of Reconciliation
 
 Sacrament of Reconciliation with Exposition this week.
 
-Monday 9:30-9:55am at St. Peter’s
+Tuesday 9:30-9:50am at St. Joseph’s
 
 Confession is also available by arrangement with Fr. Peter. Tel. 737037
 

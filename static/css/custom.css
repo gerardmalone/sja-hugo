@@ -575,6 +575,10 @@ button,
   margin-top: 1.15rem;
 }
 
+.page-news .page-prose > * + * {
+  margin-top: 0.7rem;
+}
+
 .page-prose h2,
 .page-prose h3,
 .page-prose h4 {
@@ -589,6 +593,17 @@ button,
 
 .page-prose h2 {
   font-size: clamp(2rem, 4vw, 3rem);
+}
+
+.page-news .page-prose > h2:not(:first-of-type) {
+  font-size: clamp(1.6rem, 3vw, 2.25rem);
+}
+
+.page-news .page-prose h2,
+.page-news .page-prose h3,
+.page-news .page-prose h4 {
+  margin-top: 1.5rem;
+  margin-bottom: 0.3rem;
 }
 
 .page-prose h3 {
@@ -613,6 +628,10 @@ button,
   border: 0;
   background: linear-gradient(90deg, transparent, rgba(20, 49, 41, 0.2), transparent);
   margin: 2rem 0;
+}
+
+.page-news .page-prose hr {
+  margin: 1.1rem 0;
 }
 
 .page-prose ul,
@@ -864,6 +883,46 @@ button {
 
 .column strong:first-child {
   margin-top: 0;
+}
+
+.emergency-numbers-table {
+  position: relative;
+  width: 100%;
+  border-collapse: separate;
+  border-spacing: 0 0.45rem;
+  margin: 1.2rem 0;
+}
+
+.emergency-numbers-table::before {
+  content: "";
+  position: absolute;
+  top: 0.2rem;
+  bottom: 0.2rem;
+  left: 50%;
+  width: 1px;
+  background: rgba(20, 49, 41, 0.25);
+  transform: translateX(-0.5px);
+}
+
+.emergency-numbers-table td {
+  width: 50%;
+  padding: 0 1.5rem;
+  font-family: var(--font-display);
+  font-size: inherit;
+  font-weight: 600;
+  line-height: 1.35;
+  vertical-align: top;
+  color: var(--forest-deep);
+}
+
+.emergency-numbers-table td:first-child {
+  padding-right: 2rem;
+  text-align: right;
+}
+
+.emergency-numbers-table td:last-child {
+  padding-left: 2rem;
+  text-align: left;
 }
 
 .gallery {
@@ -1119,6 +1178,37 @@ button {
   .two-column-container,
   .simple-grid {
     grid-template-columns: 1fr;
+  }
+
+  .emergency-numbers-table {
+    border-spacing: 0;
+  }
+
+  .emergency-numbers-table::before {
+    display: none;
+  }
+
+  .emergency-numbers-table,
+  .emergency-numbers-table tbody,
+  .emergency-numbers-table tr,
+  .emergency-numbers-table td {
+    display: block;
+    width: 100%;
+  }
+
+  .emergency-numbers-table tr + tr td:first-child {
+    padding-top: 1rem;
+  }
+
+  .emergency-numbers-table td {
+    padding: 0;
+    text-align: center;
+  }
+
+  .emergency-numbers-table td + td {
+    border-top: 1px solid rgba(20, 49, 41, 0.25);
+    margin-top: 0.5rem;
+    padding-top: 0.75rem;
   }
 
   .home-photo-grid {
