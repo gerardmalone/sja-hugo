@@ -2,78 +2,25 @@
 title: "News"
 draft: false
 ---
-## Third Sunday of Easter — Sunday 19th April 2026
+## Fourth Sunday of Easter — Sunday 26th April 2026
 
 ## Catholic Voice
 
-Latest copy (April) can be found [by clicking this link](https://issuu.com/cathcom/docs/lancaster_voice_april_2026).
+Latest copy (May) can be found [by clicking this link](https://issuu.com/cathcom/docs/lancaster_voice_may_2026).
 
 ## Message from Father Peter
 
-In today’s Gospel the hearts of the two Disciples on the Road to Emmaus burn within them at the explanation of the Scriptures that Jesus gives them. Whenever we need the inspired word of God, it is always there for us. Here are some ‘Emergency Numbers’ it might be useful to have!
+Following on from last week’s homily about opening the Bible a bit more, or buying one9 if necessary, a few people have been asking about what translations I was talking about etc., so here is a bit of further information, which might help.
 
-<table class="emergency-numbers-table">
-  <tbody>
-    <tr>
-      <td>When in sorrow: John 14</td>
-      <td>When you prepare for travel: Psalm 121</td>
-    </tr>
-    <tr>
-      <td>When humankind fails you: Psalm 27</td>
-      <td>When your prayers grow narrow or selfish: Psalm 67</td>
-    </tr>
-    <tr>
-      <td>When you have sinned: Psalm 51</td>
-      <td>When you want courage for a task: Joshua 1</td>
-    </tr>
-    <tr>
-      <td>When you have worry: Matthew 6:19-34</td>
-      <td>To get along with those around you: Romans 12</td>
-    </tr>
-    <tr>
-      <td>When you are in danger: Psalm 91</td>
-      <td>For a great intervention or opportunity: Isaiah 55</td>
-    </tr>
-    <tr>
-      <td>When God seems far away: Psalm 139</td>
-      <td>For Paul's secret to happiness: Col. 3:12-17</td>
-    </tr>
-    <tr>
-      <td>When your faith needs stirring: Hebrews 11</td>
-      <td>If you want to be fruitful: John 15</td>
-    </tr>
-    <tr>
-      <td>When you are lonely and fearful: Psalm 23</td>
-      <td>If your purse is empty: Psalm 37</td>
-    </tr>
-    <tr>
-      <td>When you grow bitter and critical: 1 Cor. 15</td>
-      <td>If you're losing confidence in people: 1 Cor. 13</td>
-    </tr>
-    <tr>
-      <td>When you feel down and out: Romans 8:31-39</td>
-      <td>If people seem unkind: John 15</td>
-    </tr>
-    <tr>
-      <td>When you want peace and rest: Matthew 11:25-30</td>
-      <td>If discouraged about your work: Psalm 126</td>
-    </tr>
-    <tr>
-      <td>When God seems too small: Psalm 90</td>
-      <td>When you feel small: Psalm 19</td>
-    </tr>
-    <tr>
-      <td>When you need assurance: Romans 8:1-30</td>
-      <td>Fr. P’s Favourite: 1 John 3:1-3</td>
-    </tr>
-  </tbody>
-</table>
+The New Translation which we have been using at mass for the last couple of years (and the foreseeable future) is the English Standard Version. It’s a very accurate translation, although can sometimes be a bit clumsy with regards to sentence construction, but I’m sure increasing familiarity will help with that.
 
----
+The ‘old’ translation we were using was the Jerusalem Bible, and it is still one of the most readable and friendly Bibles in lost of different editions, and you can’t go wrong. If you get one of the bigger versions it also has excellent introductory notes to each book, as well as helpful maps etc. Its children’s editions are also beautifully illustrated.
 
-## Third Tuesday of the Month at SJSP’s
+The ‘Good News Bible’ otherwise known as ‘Today’s English Version’ is one of the clearest and simplest translations, although, particularly with the psalms, beauty and a sense of holiness are lost in its search for simplicity, but the meanings could not be clearer.
 
-This Tuesday 21st April: Holy Hour with Rosary & Benediction: St. Joseph’s at 6:30pm
+The most important thing to look for if you a buying a full Bible – Old and New Testaments – is to buy one which calls itself a Catholic Edition, as this will include the so called Deutero-Canonical Books, extra books ratified by the Council if Trent in the mid-1500’s including the Books of Maccabees, for example, which are so important regarding our praying for the Holy Souls and the Doctrine of Purgatory.
+
+Of course, the important thing is to open the Bible and read it. And here is a Prayer Before Reading the Bible: Jesus, Word who became flesh, be present with me today as I encounter the written word. Open my ears to hear the message you have prepared for me. Open my eyes to see your love in every story, especially the tough ones. Let me not become trapped by my own knowledge, biases, or desire for merit, but keep my heart open to the guidance of your Spirit. And, Lord, as I continue to learn more about you through the Bible, help me be transformed by your love. Amen.
 
 ---
 
@@ -101,22 +48,33 @@ The Social Committee of our two Parishes are arranging a Sunday Lunch at The Bed
 
 ---
 
+## Ann Fenwick Anniversary Mass
+
+28th April at 7pm. Ann was the founder of the mission at Hornby in the 18th century and an important figure in the cause for Catholic emancipation. The possibility of opening her cause for canonisation is being discussed by the Bishop. Mass will be celebrated in the medieval Anglican church of St Wilfrid at Melling where she is buried (probably the first Mass there since the reformation). Refreshments to follow in the Melling Institute.
+
+---
+
+## Lancaster Martyrs Walk
+
+Monday 4th May. Meeting at 10.30am outside Lancaster Castle Bishop Paul will lead us in the footsteps of the martyrs to their place of execution, with stops for prayer along the way. The walk is quite steep. Concludes with 12.15 Mass in the Cathedral. This year we will be joined by the Anglican Bishop of Blackburn.
+
+---
+
 ## SJSP Ukulele Orchestra
 
 Learning and rehearsing each Monday in SP’s Hall at 7pm. Newcomers always welcome to join in the fun.
 
 ---
 
-## Family Bingo in SP’s Hall
+## Priesthood Discernment Day
 
-Tonight (if you’re at SJ’s 6pm!) Sat. 18th April  
-7pm for a 7.30pm start. Proceeds from the evening will go towards the general upkeep of our lovely Saltcotes Chapel.
+Come to the day of recollection and discernment! The day is for single men 16 years or over who are considering priesthood: Saturday 30 May 12.15pm – 2.30pm at St Peter’s Cathedral, Balmoral Road, Lancaster LA1 3BT. Gather in the Cathedral for Mass at 12.15, followed by lunch and meeting with Bishop Paul. To book email Heather: Heather.Watts@lrcd.org.uk or Tel: 01524 841190. There is no charge. As well as meeting the Bishop, you will have the opportunity to get to know how discernment works and who can assist you. You will also meet many others from across the Diocese exploring a vocation to priesthood.
 
 ---
 
-## Pilgrimage to Lourdes with the Diocese
+## Students for the Priesthood for Diocese of Lancaster
 
-Leaflets and forms at the back of Church. Pilgrimage to Walsingham 2026: the National Shrine to Our Blessed Lady, will take place 28 September to 1 October 2026. The theme for this year’s pilgrimage is “Mary, cause of our Joy.” The all-inclusive cost is £360.00-£420.00 (dependent on accommodation type). Coach collection/drop off will take place in Workington, Carlisle, Penrith, Lancaster and Preston. For more information and booking details contact the pilgrimage organiser Deacon Charlie Conner.
+We ask your prayers for the students for the Diocese of Lancaster who are presently in formation: Deacon Stephen Bamber: to be ordained priest: St Peter’s Cathedral, Saturday 27 June. Chris Sumner: to be ordained deacon: St Paul’s Basilica, Rome, Wednesday 17 June. And for those beginning or continuing formation with the Diocese: Alexander Kanaan, Ben O’Flynn, Dominic Standing, Paddie Denton, Harry Rawcliffe.
 
 ---
 

@@ -6,40 +6,6 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week
 
-### Weekend: Third Sunday of Easter 'A'
-
-**Saturday 18th**  
-6pm — St. Joseph’s  
-Mass: Pat Ormond
-
-**Sunday 19th**  
-9:15am — St. Joseph’s  
-Mass: Charles O'Neill  
-10:30am — St. Peter’s  
-Mass: People of the Parishes
-
----
-
-**Monday 20th**  
-11am — St. Peter’s  
-Requiem Mass for Sr. Dominic Savio
-
-**Tuesday 21st**  
-10am — St. Joseph’s  
-Mass: Mary Josephine Buckley preceded by Exposition and Confessions till 9:55am  
-6:30pm — St. Joseph’s  
-Holy Hour with Rosary and Benediction
-
-**Wednesday 22nd**  
-9am — St. Peter’s  
-Mass: Jimmy McGettigan
-
-**Thursday 23rd**  
-10am — St. Joseph’s  
-Mass: William and Mary Murray
-
----
-
 ### Weekend: Fourth Sunday of Easter 'A'
 
 **Saturday 25th**  
@@ -54,11 +20,49 @@ Mass: Vera McLaughlin
 
 ---
 
+**Monday 27th**  
+9am — St. Peter’s  
+Mass: In Memory of Anita Walsh followed by Exposition and Confessions till 10am
+
+**Tuesday 28th**  
+10am — St. Joseph’s  
+Mass: Intentions of L & A preceded by Exposition and Confessions till 9:55am
+
+**Wednesday 29th**  
+9am — St. Peter’s  
+Mass: Repose of the Soul of Rosanna Scott
+
+**Thursday 30th**  
+10am — St. Joseph’s  
+Mass: Fr. John Gornall
+
+**Friday 1st**  
+1:15pm — Lytham Crematorium  
+Service for Noel Meany  
+2pm — St. Joseph’s  
+Mass and Anointing of the Sick: Pat Ormond
+
+---
+
+### Weekend: Fifth Sunday of Easter 'A'
+
+**Saturday 2nd**  
+6pm — St. Joseph’s  
+Mass: People of the Parishes
+
+**Sunday 3rd**  
+9:15am — St. Joseph’s  
+Mass: Pat Kay Birthday Remembrance  
+10:30am — St. Peter’s  
+Mass: Sr. Margaret Leonard
+
+---
+
 ## Sacrament of Reconciliation
 
 Sacrament of Reconciliation with Exposition this week.
 
-Tuesday 9:30-9:50am at St. Joseph’s
+Monday 9:30-9:55am at St. Peter’s and Tuesday 9:30-9:50am at St. Joseph’s
 
 Confession is also available by arrangement with Fr. Peter. Tel. 737037
 
