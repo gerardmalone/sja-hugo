@@ -2,7 +2,7 @@
 title: "News"
 draft: false
 ---
-## Fourth Sunday of Easter — Sunday 26th April 2026
+## Sixth Sunday of Easter — Sunday 10th May 2026
 
 ## Catholic Voice
 
@@ -10,71 +10,63 @@ Latest copy (May) can be found [by clicking this link](https://issuu.com/cathcom
 
 ## Message from Father Peter
 
-Following on from last week’s homily about opening the Bible a bit more, or buying one9 if necessary, a few people have been asking about what translations I was talking about etc., so here is a bit of further information, which might help.
+As a child at St. Mary’s School in Cleator I can remember singing a hymn which had the chorus, ‘O Lady of Fatima hail! Bring Russia back home again. O pray for us, helps us today, the Hope of the Human Race’. Whilst I’m guessing we had no idea that Fatima was a place in Portugal where apparitions of the Blessed Virgin took place, I always remember being confused about bringing Russia home – where had it been? Anyway, this Wednesday is the Memorial of Our Lady of Fatima. On 13 May 1917, whilst guarding their families' sheep in the Cova da Iria, The Blessed Virgin Mary appeared to three shepherd children, Lúcia dos Santos and her cousins, Francisco and Jacinta Marto. She brought a message of peace and reparation for sin, encouraging devotion to her Immaculate Heart. At one of her apparitions Mary asked that Russia be consecrated to her Immaculate Heart – which explains the chorus of the Hymn. Several Popes throughout the last century have carried out this wish of Our Lady, including Pope Francis who, during the ongoing War, consecrated both Russia and Ukraine to her intercession. Mary also encouraged the recitation of the Holy Rosary, especially for World Peace. Francisco died in 1919 and Jacinta in 1920, during the international Spanish flu pandemic. Lucia dos Santos became a nun and lived until 2005. The two who died young were beatified on 13 May 2000 by Pope John Paul II, and were canonised by Pope Francis on 13 May 2017, the hundredth anniversary of the first apparition. Today Fatima is beautiful site of Pilgrimage (I went there fifteen years ago or so), and Our Lady’s messages (of which the above is the tip of the iceberg) are well worth delving in to. And sadly, her continued prayers for Peace are more necessary than ever.
 
-The New Translation which we have been using at mass for the last couple of years (and the foreseeable future) is the English Standard Version. It’s a very accurate translation, although can sometimes be a bit clumsy with regards to sentence construction, but I’m sure increasing familiarity will help with that.
+O Blessed Virgin Mary, Our Lady of Fatima, Guide the leaders of nations to seek understanding and compassion, And inspire all people to embrace dialogue over discord. May your loving presence soften hearts hardened by conflict, And may your grace lead us toward reconciliation and unity. We entrust our prayers to you, That the light of your Son may shine upon all nations, And that peace may reign in every heart. Help us to be faithful witnesses of your message, Spreading love, compassion, and understanding wherever we go. Amen.
 
-The ‘old’ translation we were using was the Jerusalem Bible, and it is still one of the most readable and friendly Bibles in lost of different editions, and you can’t go wrong. If you get one of the bigger versions it also has excellent introductory notes to each book, as well as helpful maps etc. Its children’s editions are also beautifully illustrated.
+---
 
-The ‘Good News Bible’ otherwise known as ‘Today’s English Version’ is one of the clearest and simplest translations, although, particularly with the psalms, beauty and a sense of holiness are lost in its search for simplicity, but the meanings could not be clearer.
+## The Ascension of the Lord
 
-The most important thing to look for if you a buying a full Bible – Old and New Testaments – is to buy one which calls itself a Catholic Edition, as this will include the so called Deutero-Canonical Books, extra books ratified by the Council if Trent in the mid-1500’s including the Books of Maccabees, for example, which are so important regarding our praying for the Holy Souls and the Doctrine of Purgatory.
+In This Feast’s Gospel, Luke 24:46-53, Jesus helps the disciples to understand what his death and resurrection have achieved, so that they can continue to serve him wherever they may be after his ascension.
 
-Of course, the important thing is to open the Bible and read it. And here is a Prayer Before Reading the Bible: Jesus, Word who became flesh, be present with me today as I encounter the written word. Open my ears to hear the message you have prepared for me. Open my eyes to see your love in every story, especially the tough ones. Let me not become trapped by my own knowledge, biases, or desire for merit, but keep my heart open to the guidance of your Spirit. And, Lord, as I continue to learn more about you through the Bible, help me be transformed by your love. Amen.
+Please note that attendance at the Requiem Mass for Peter Joseph Newton at 1pm on this day does fulfil the HolyDay Obligation.
+
+The school children will be in SP’s on Wednesday morning at 9am to celebrate the Feast.
 
 ---
 
 ## First Holy Communion
 
-The course continues in SJ’s Hall this Monday at 6pm, though we will be starting in Church. We look forward to our First Communion Mass on May 16th, with the children leading Marian processions in each Church the following day.
+The course continues in SJ’s Hall next Monday at 6pm. We look forward to our First Communion Mass next Saturday at 2pm May 16th, with the children leading Marian processions in each Church the following day. All are welcome to come and join in the mass.
 
 ---
 
-## Red Boxes 2025
+## The Food Bank
 
-In the year to December 2025 our parish raised £1,074.97 through the red boxes and including individuals giving directly. Thank You. D.Warwick
+Contributions are most welcome, and still most necessary. Please bring stuff to Masses or to the Presbytery at any time.
 
 ---
 
 ## Safeguarding
 
-It is important to ensure that any parishioners who are involved in any role within the Parish are covered by the Safeguarding process. If you are new to a role or are unsure whether you are covered or have any questions there are opportunities to talk to our Safeguarding Representatives over the next couple of weeks at the back of Church. Many thanks for your co-operation!
+It is important to ensure that any parishioners who are involved in any role within the Parish are covered by the Safeguarding process. If you are new to a role or are unsure whether you are covered or have any questions, there are opportunities to talk to our Safeguarding Representatives over the next couple of weeks at the back of Church. Many thanks for your co-operation!
 
 ---
 
-## Save the Date!
+## Save the Date(s)!
 
-The Social Committee of our two Parishes are arranging a Sunday Lunch at The Bedford Hotel in St. Annes on November 1st – the Feast of All Saints. More information to follow, but a three-course lunch with food choices, including coffee, will be £25 and £12:50 for children. Please put the Date in your diary! Cheers!
+Up and Coming Social Events for our Two Parishes are displayed on our noticeboards at the back of Churches.
 
----
-
-## Ann Fenwick Anniversary Mass
-
-28th April at 7pm. Ann was the founder of the mission at Hornby in the 18th century and an important figure in the cause for Catholic emancipation. The possibility of opening her cause for canonisation is being discussed by the Bishop. Mass will be celebrated in the medieval Anglican church of St Wilfrid at Melling where she is buried (probably the first Mass there since the reformation). Refreshments to follow in the Melling Institute.
-
----
-
-## Lancaster Martyrs Walk
-
-Monday 4th May. Meeting at 10.30am outside Lancaster Castle Bishop Paul will lead us in the footsteps of the martyrs to their place of execution, with stops for prayer along the way. The walk is quite steep. Concludes with 12.15 Mass in the Cathedral. This year we will be joined by the Anglican Bishop of Blackburn.
+- Songs of Praise and Strawberry Tea: Sunday 12th July at 3pm at SJ’s
+- Family BBQ: Sunday 6th September in SJ’s Grounds
+- Preston band Concert: Saturday 19th September at 7:30pm at SP’s
+- Race Night: Saturday 3rd October at 7:30pm at SJ’s
+- Sunday Lunch at the Bedford: Sunday 1st November
+- Christmas Fair: Sunday 6th December at SP’s
+- Fr. P.’s Family Nativity: Sunday 20th December at 3pm SJ’s
 
 ---
 
-## SJSP Ukulele Orchestra
+## Gathering for Catholic Doctors in Lancaster
 
-Learning and rehearsing each Monday in SP’s Hall at 7pm. Newcomers always welcome to join in the fun.
+An opportunity for Catholic doctors to meet and support each other in their faith, and in the vocation as doctors. There will be a light lunch in the Cathedral library followed by a talk on ‘The Art of Dying Well’ by Dr Amy Gadoud. Please email [cathedral@lrcd.org.uk](mailto:cathedral@lrcd.org.uk) to confirm attendance.
 
 ---
 
-## Priesthood Discernment Day
+## Thinking of Becoming a Priest?
 
 Come to the day of recollection and discernment! The day is for single men 16 years or over who are considering priesthood: Saturday 30 May 12.15pm – 2.30pm at St Peter’s Cathedral, Balmoral Road, Lancaster LA1 3BT. Gather in the Cathedral for Mass at 12.15, followed by lunch and meeting with Bishop Paul. To book email Heather: Heather.Watts@lrcd.org.uk or Tel: 01524 841190. There is no charge. As well as meeting the Bishop, you will have the opportunity to get to know how discernment works and who can assist you. You will also meet many others from across the Diocese exploring a vocation to priesthood.
-
----
-
-## Students for the Priesthood for Diocese of Lancaster
-
-We ask your prayers for the students for the Diocese of Lancaster who are presently in formation: Deacon Stephen Bamber: to be ordained priest: St Peter’s Cathedral, Saturday 27 June. Chris Sumner: to be ordained deacon: St Paul’s Basilica, Rome, Wednesday 17 June. And for those beginning or continuing formation with the Diocese: Alexander Kanaan, Ben O’Flynn, Dominic Standing, Paddie Denton, Harry Rawcliffe.
 
 ---
 
@@ -96,23 +88,6 @@ Are you interested in offering compassionate spiritual and emotional support to 
 For details about joining the RC Chaplaincy volunteer team contact:  
 Ian Baxter (Lead Chaplain)  
 📧 [i.baxter@nhs.net](mailto:i.baxter@nhs.net)
-
----
-
-## Thinking of Becoming a Priest?
-
-Day of recollection and discernment for single men aged 16+ considering priesthood:
-
-**Saturday 22 November — 10am–4pm**  
-Lancaster Cathedral
-
-Includes Mass, adoration, guided prayer, talks and lunch.
-
-To book:  
-📧 [Heather.Watts@lrcd.org.uk](mailto:Heather.Watts@lrcd.org.uk)  
-☎ 01524 841190
-
-No charge.
 
 ---
 

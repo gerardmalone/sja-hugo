@@ -6,55 +6,59 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week
 
-### Weekend: Fourth Sunday of Easter 'A'
+### Weekend: Sixth Sunday of Easter 'A'
 
-**Saturday 25th**  
+**Saturday 9th**  
 6pm — St. Joseph’s  
-Mass: Fr. Peter Crowther
+Mass: Birthday Intentions Collette Cookson
 
-**Sunday 26th**  
+**Sunday 10th**  
 9:15am — St. Joseph’s  
 Mass: People of the Parishes  
 10:30am — St. Peter’s  
-Mass: Vera McLaughlin
+Mass: In Memory of Eric and Agnes Walsh
 
 ---
 
-**Monday 27th**  
+**Monday 11th**  
 9am — St. Peter’s  
-Mass: In Memory of Anita Walsh followed by Exposition and Confessions till 10am
+Mass: Rory Quinn followed by Exposition and Confessions till 10am
 
-**Tuesday 28th**  
+**Tuesday 12th**  
 10am — St. Joseph’s  
-Mass: Intentions of L & A preceded by Exposition and Confessions till 9:55am
+Mass: Pat Ormond preceded by Exposition and Confessions till 9:55am
 
-**Wednesday 29th**  
+**Wednesday 13th**  
 9am — St. Peter’s  
-Mass: Repose of the Soul of Rosanna Scott
+Mass: Francesca Corrigan (Speedy recovery)
 
-**Thursday 30th**  
+**The Ascension of the Lord**  
+7pm — St. Joseph’s  
+Mass: Mr and Mrs Flint and Family
+
+**Thursday 14th**  
+9am — St. Peter’s  
+Mass: Kevin Murphy  
 10am — St. Joseph’s  
-Mass: Fr. John Gornall
+Mass: Gwen and Bayne Spedding  
+1pm — St. Joseph’s  
+Requiem Mass for Peter Joseph Newton
 
-**Friday 1st**  
-1:15pm — Lytham Crematorium  
-Service for Noel Meany  
+---
+
+### Weekend: Seventh Sunday of Easter 'A'
+
+**Saturday 16th**  
 2pm — St. Joseph’s  
-Mass and Anointing of the Sick: Pat Ormond
-
----
-
-### Weekend: Fifth Sunday of Easter 'A'
-
-**Saturday 2nd**  
+First Holy Communion Mass: Deceased of O’Dea Family  
 6pm — St. Joseph’s  
-Mass: People of the Parishes
+Mass: People of the Parish
 
-**Sunday 3rd**  
+**Sunday 17th**  
 9:15am — St. Joseph’s  
-Mass: Pat Kay Birthday Remembrance  
+Mass: Pat Kay  
 10:30am — St. Peter’s  
-Mass: Sr. Margaret Leonard
+Mass: John Nolan
 
 ---
 
