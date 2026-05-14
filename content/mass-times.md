@@ -6,59 +6,55 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week
 
-### Weekend: Sixth Sunday of Easter 'A'
-
-**Saturday 9th**  
-6pm — St. Joseph’s  
-Mass: Birthday Intentions Collette Cookson
-
-**Sunday 10th**  
-9:15am — St. Joseph’s  
-Mass: People of the Parishes  
-10:30am — St. Peter’s  
-Mass: In Memory of Eric and Agnes Walsh
-
----
-
-**Monday 11th**  
-9am — St. Peter’s  
-Mass: Rory Quinn followed by Exposition and Confessions till 10am
-
-**Tuesday 12th**  
-10am — St. Joseph’s  
-Mass: Pat Ormond preceded by Exposition and Confessions till 9:55am
-
-**Wednesday 13th**  
-9am — St. Peter’s  
-Mass: Francesca Corrigan (Speedy recovery)
-
-**The Ascension of the Lord**  
-7pm — St. Joseph’s  
-Mass: Mr and Mrs Flint and Family
-
-**Thursday 14th**  
-9am — St. Peter’s  
-Mass: Kevin Murphy  
-10am — St. Joseph’s  
-Mass: Gwen and Bayne Spedding  
-1pm — St. Joseph’s  
-Requiem Mass for Peter Joseph Newton
-
----
-
 ### Weekend: Seventh Sunday of Easter 'A'
 
 **Saturday 16th**  
 2pm — St. Joseph’s  
 First Holy Communion Mass: Deceased of O’Dea Family  
 6pm — St. Joseph’s  
-Mass: People of the Parish
+Mass: People of the Parishes
 
 **Sunday 17th**  
 9:15am — St. Joseph’s  
 Mass: Pat Kay  
 10:30am — St. Peter’s  
 Mass: John Nolan
+
+---
+
+**Monday 18th**  
+9am — St. Peter’s  
+Mass: John and Isobel Morrison followed by Exposition and Confessions till 10am
+
+**Tuesday 19th**  
+10am — St. Joseph’s  
+Mass: Tony and Damian Crean preceded by Exposition and Confessions till 9:55am  
+6:30pm — St. Peter’s  
+Holy Hour with Rosary and Benediction
+
+**Wednesday 20th**  
+9am — St. Peter’s  
+Mass: Brenda Brierley
+
+**Thursday 21st**  
+10am — St. Joseph’s  
+Mass: Patrick Hicks
+
+---
+
+### Weekend: Pentecost Sunday 'A'
+
+**Saturday 23rd**  
+12noon — St. Joseph’s  
+Wedding Service for Christopher and Amelia  
+6pm — St. Joseph’s  
+Mass: Brian Green
+
+**Sunday 24th**  
+9:15am — St. Joseph’s  
+Mass: Sandra  
+10:30am — St. Peter’s  
+Mass: People of the Parishes
 
 ---
 

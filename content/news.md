@@ -2,7 +2,7 @@
 title: "News"
 draft: false
 ---
-## Sixth Sunday of Easter — Sunday 10th May 2026
+## Seventh Sunday of Easter — Sunday 17th May 2026
 
 ## Catholic Voice
 
@@ -10,25 +10,31 @@ Latest copy (May) can be found [by clicking this link](https://issuu.com/cathcom
 
 ## Message from Father Peter
 
-As a child at St. Mary’s School in Cleator I can remember singing a hymn which had the chorus, ‘O Lady of Fatima hail! Bring Russia back home again. O pray for us, helps us today, the Hope of the Human Race’. Whilst I’m guessing we had no idea that Fatima was a place in Portugal where apparitions of the Blessed Virgin took place, I always remember being confused about bringing Russia home – where had it been? Anyway, this Wednesday is the Memorial of Our Lady of Fatima. On 13 May 1917, whilst guarding their families' sheep in the Cova da Iria, The Blessed Virgin Mary appeared to three shepherd children, Lúcia dos Santos and her cousins, Francisco and Jacinta Marto. She brought a message of peace and reparation for sin, encouraging devotion to her Immaculate Heart. At one of her apparitions Mary asked that Russia be consecrated to her Immaculate Heart – which explains the chorus of the Hymn. Several Popes throughout the last century have carried out this wish of Our Lady, including Pope Francis who, during the ongoing War, consecrated both Russia and Ukraine to her intercession. Mary also encouraged the recitation of the Holy Rosary, especially for World Peace. Francisco died in 1919 and Jacinta in 1920, during the international Spanish flu pandemic. Lucia dos Santos became a nun and lived until 2005. The two who died young were beatified on 13 May 2000 by Pope John Paul II, and were canonised by Pope Francis on 13 May 2017, the hundredth anniversary of the first apparition. Today Fatima is beautiful site of Pilgrimage (I went there fifteen years ago or so), and Our Lady’s messages (of which the above is the tip of the iceberg) are well worth delving in to. And sadly, her continued prayers for Peace are more necessary than ever.
+Talking about the Ten Commandments last week reminded me of a little poem that I was once told to remember them, which I managed to hunt out on the internet – the Google search for which brought up a couple of other religious mnemonic poems which might be useful!
 
-O Blessed Virgin Mary, Our Lady of Fatima, Guide the leaders of nations to seek understanding and compassion, And inspire all people to embrace dialogue over discord. May your loving presence soften hearts hardened by conflict, And may your grace lead us toward reconciliation and unity. We entrust our prayers to you, That the light of your Son may shine upon all nations, And that peace may reign in every heart. Help us to be faithful witnesses of your message, Spreading love, compassion, and understanding wherever we go. Amen.
+The Ten Commandments: Above all else love God alone; / Bow down to neither wood nor stone. / God’s name refuse to take in vain; / The Sabbath rest with care maintain. / Respect your parents all your days; / Hold sacred human life always. / Be loyal to your chosen mate; / Steal nothing neither small nor great. / Report, with truth, your neighbour’s deed; /And rid your mind of selfish greed.
 
----
+The Lord’s Prayer: Our Father in heaven, / We hallow Your name. / We hope for Your kingdom, / And follow Your aim. / Please give us our bread, / And forgive what we do, / As we love and forgive, / And keep coming to You. / Protect us from evil, / And make our hearts true. / For the kingdom is Yours, / And we follow You. / Amen.
 
-## The Ascension of the Lord
+New Testament Books. Matthew, Mark, Luke and John Tell of Christ, his life they trace; / Acts shows the Holy Spirit’s work; And Romans how we’re saved by grace. / Corinthians instructs the church, Galatians shows God’s grace alone; / Ephesians, how we are “in Christ,” Philippians, Christ’s joys made known. / Colossians portrays Christ exalted. And Thessalonians tells the end. / In Timothy and Titus both, Are rules for pastors to attend. / Philemon pictures charity, Thirteen Epistles, penned by Paul. / The Jewish law prefigured Christ; And Hebrews clearly shows it all. / James shows that faith by works must live, And Peter urges steadfastness, / While John exhorts to Christian love; And those who live it, God will bless. / Jude shows the end of evil men, While Revelation tells of heaven. / These end the whole New Testament; In all, they number twenty-seven.
 
-In This Feast’s Gospel, Luke 24:46-53, Jesus helps the disciples to understand what his death and resurrection have achieved, so that they can continue to serve him wherever they may be after his ascension.
-
-Please note that attendance at the Requiem Mass for Peter Joseph Newton at 1pm on this day does fulfil the HolyDay Obligation.
-
-The school children will be in SP’s on Wednesday morning at 9am to celebrate the Feast.
+And to memorize the Seven Sacraments, a commonly used mnemonic is Mr. Beach: Marriage, Reconciliation, Baptism, Eucharist, Anointing of the Sick, Confirmation, Holy Orders.
 
 ---
 
 ## First Holy Communion
 
-The course continues in SJ’s Hall next Monday at 6pm. We look forward to our First Communion Mass next Saturday at 2pm May 16th, with the children leading Marian processions in each Church the following day. All are welcome to come and join in the mass.
+Congratulations to our Holy Communion Children who this weekend celebrate this great sacrament for the first time, and lead our masses on Sunday. May God bless them at this important stage in the journeys of faith.
+
+---
+
+## Third Tuesday of the Month at SJSP’s
+
+This Tuesday 19th May:
+
+Holy Hour with Rosary & Benediction:
+
+St. Peter’s at 6:30pm
 
 ---
 
@@ -58,9 +64,9 @@ Up and Coming Social Events for our Two Parishes are displayed on our noticeboar
 
 ---
 
-## Gathering for Catholic Doctors in Lancaster
+## Exciting Job Vacancy in Preston
 
-An opportunity for Catholic doctors to meet and support each other in their faith, and in the vocation as doctors. There will be a light lunch in the Cathedral library followed by a talk on ‘The Art of Dying Well’ by Dr Amy Gadoud. Please email [cathedral@lrcd.org.uk](mailto:cathedral@lrcd.org.uk) to confirm attendance.
+Chaplaincy Team Member. Metanoia Project provide full time Chaplaincy Services to a local Catholic High School and full time provision for Students and Young Adults in the City Centre in connection with the University of Lancashire. We are looking for an enthusiastic and competent person to assist in providing the most engaging, Christ-centred and fruitful ministry possible in both settings. Accommodation available if required. Full details of salary and benefits are listed in the Application Pack on our website [https://metanoiaproject.co.uk/chaplaincy-team-member/](https://metanoiaproject.co.uk/chaplaincy-team-member/) . Closing Date Friday 22nd May. Further information from Ruth White 07878 832457 [ruth@metanoiaproject.co.uk](mailto:ruth@metanoiaproject.co.uk)
 
 ---
 
