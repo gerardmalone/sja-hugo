@@ -2,7 +2,7 @@
 title: "News"
 draft: false
 ---
-## Seventh Sunday of Easter — Sunday 17th May 2026
+## Pentecost Sunday — Sunday 24th May 2026
 
 ## Catholic Voice
 
@@ -10,43 +10,29 @@ Latest copy (May) can be found [by clicking this link](https://issuu.com/cathcom
 
 ## Message from Father Peter
 
-Talking about the Ten Commandments last week reminded me of a little poem that I was once told to remember them, which I managed to hunt out on the internet – the Google search for which brought up a couple of other religious mnemonic poems which might be useful!
+I was asked recently about why we are singing the ‘Regina Coeli’ after Monday Benediction at SPs, rather than the more usual ‘Salve Regina’. These of course are the Marian Antiphon, the songs to Mary we sing at the end of Benediction of Night Prayer in the Church. There are actually four of them, and they are designed to be sung during the different seasons of the Church’s year. I’ll give you their Latin Titles - and indeed we usually sing them in Latin -  but with the English Translations. In themselves are they are beautiful prayerful celebrations of our Mother Mary.
 
-The Ten Commandments: Above all else love God alone; / Bow down to neither wood nor stone. / God’s name refuse to take in vain; / The Sabbath rest with care maintain. / Respect your parents all your days; / Hold sacred human life always. / Be loyal to your chosen mate; / Steal nothing neither small nor great. / Report, with truth, your neighbour’s deed; /And rid your mind of selfish greed.
+The Alma Redemptoris Mater is sung during Advent, to the Feast of the Purification on February 2nd. It was around the Year 1000AD, but has always been popular in England due to a translation by St. John Henry Newman: Kind mother of the Redeemer, who remain the open gate of heaven and the star of the sea: help your falling people who want to rise, you who bore your holy Parent, while nature marvelled:
+a Virgin before and after, receiving that ‘Ave’ from Gabriel’s mouth, have mercy on us sinners.
 
-The Lord’s Prayer: Our Father in heaven, / We hallow Your name. / We hope for Your kingdom, / And follow Your aim. / Please give us our bread, / And forgive what we do, / As we love and forgive, / And keep coming to You. / Protect us from evil, / And make our hearts true. / For the kingdom is Yours, / And we follow You. / Amen.
+The Regina Coeli is sung from Holy Saturday until the week after Pentecost, so we have been singing it throughout Eastertide. It is attributed to St. Gregory the Great, known to us for sending missionaries to England. Queen of heaven, rejoice, alleluia. The Son you merited to bear, alleluia, Has risen as he said, alleluia. Pray to God for us, alleluia!
 
-New Testament Books. Matthew, Mark, Luke and John Tell of Christ, his life they trace; / Acts shows the Holy Spirit’s work; And Romans how we’re saved by grace. / Corinthians instructs the church, Galatians shows God’s grace alone; / Ephesians, how we are “in Christ,” Philippians, Christ’s joys made known. / Colossians portrays Christ exalted. And Thessalonians tells the end. / In Timothy and Titus both, Are rules for pastors to attend. / Philemon pictures charity, Thirteen Epistles, penned by Paul. / The Jewish law prefigured Christ; And Hebrews clearly shows it all. / James shows that faith by works must live, And Peter urges steadfastness, / While John exhorts to Christian love; And those who live it, God will bless. / Jude shows the end of evil men, While Revelation tells of heaven. / These end the whole New Testament; In all, they number twenty-seven.
+The Ave Regina Caelorum, believed to have been written in the 12th Century, is sung during Lent, though it is believed to have originally been written for the Feast of the Assumption. Hail, Queen of Heaven. Hail, Lady of Angels, Hail, thou root, hail, thou gate, from whom into the world, a light has arisen: Rejoice, glorious Virgin,
+Lovely above all others, Farewell, most beautiful maiden, and pray for us to Christ.
 
-And to memorize the Seven Sacraments, a commonly used mnemonic is Mr. Beach: Marriage, Reconciliation, Baptism, Eucharist, Anointing of the Sick, Confirmation, Holy Orders.
-
----
-
-## First Holy Communion
-
-Congratulations to our Holy Communion Children who this weekend celebrate this great sacrament for the first time, and lead our masses on Sunday. May God bless them at this important stage in the journeys of faith.
+And finally the Salve Regina, or Hail Holy Queen as I’m sure we all know it, sung in Ordinary Times of the Church’s Year, which has an interesting history, being written Dominicans, popularised by Carthusians and Carmelites, condemned by Lutherans, and set to music by Andrew Lloyd Webber for the opening chorus of ‘Evita’! Hail, holy Queen, Mother of Mercy, hail our life, our sweetness and our hope. To thee do we cry, poor banished children of Eve; to thee do we send up our sighs, mourning and weeping in this valley of tears. Turn then, most gracious advocate, thine eyes of mercy toward us; and after this our exile, show unto us the blessed fruit of thy womb, Jesus. O clement, O loving, O sweet Virgin Mary.
 
 ---
 
-## Third Tuesday of the Month at SJSP’s
+## Pentecost Sunday
 
-This Tuesday 19th May:
-
-Holy Hour with Rosary & Benediction:
-
-St. Peter’s at 6:30pm
+23rd – 24th May 2026
 
 ---
 
 ## The Food Bank
 
 Contributions are most welcome, and still most necessary. Please bring stuff to Masses or to the Presbytery at any time.
-
----
-
-## Safeguarding
-
-It is important to ensure that any parishioners who are involved in any role within the Parish are covered by the Safeguarding process. If you are new to a role or are unsure whether you are covered or have any questions, there are opportunities to talk to our Safeguarding Representatives over the next couple of weeks at the back of Church. Many thanks for your co-operation!
 
 ---
 
@@ -64,15 +50,33 @@ Up and Coming Social Events for our Two Parishes are displayed on our noticeboar
 
 ---
 
-## Exciting Job Vacancy in Preston
+## St Joseph's & St Peters Sunday Lunch
 
-Chaplaincy Team Member. Metanoia Project provide full time Chaplaincy Services to a local Catholic High School and full time provision for Students and Young Adults in the City Centre in connection with the University of Lancashire. We are looking for an enthusiastic and competent person to assist in providing the most engaging, Christ-centred and fruitful ministry possible in both settings. Accommodation available if required. Full details of salary and benefits are listed in the Application Pack on our website [https://metanoiaproject.co.uk/chaplaincy-team-member/](https://metanoiaproject.co.uk/chaplaincy-team-member/) . Closing Date Friday 22nd May. Further information from Ruth White 07878 832457 [ruth@metanoiaproject.co.uk](mailto:ruth@metanoiaproject.co.uk)
+1st November 1pm at The Bedford Hotel. We are now taking bookings, please pick up a leaflet after mass, select your menu choices and return the form with your payment as soon as possible. Teresa Mallabone & Pete Rickards will accept forms at St Peters & Susan Brown at St Peters, or pass to a member of the Social committee or to FrP.
 
 ---
 
 ## Thinking of Becoming a Priest?
 
-Come to the day of recollection and discernment! The day is for single men 16 years or over who are considering priesthood: Saturday 30 May 12.15pm – 2.30pm at St Peter’s Cathedral, Balmoral Road, Lancaster LA1 3BT. Gather in the Cathedral for Mass at 12.15, followed by lunch and meeting with Bishop Paul. To book email Heather: Heather.Watts@lrcd.org.uk or Tel: 01524 841190. There is no charge. As well as meeting the Bishop, you will have the opportunity to get to know how discernment works and who can assist you. You will also meet many others from across the Diocese exploring a vocation to priesthood.
+Come to the day of recollection and discernment! The day is for single men 16 years or over who are considering priesthood: Next Saturday 30th May 12.15pm – 2.30pm at St Peter’s Cathedral, Balmoral Road, Lancaster LA1 3BT. Gather in the Cathedral for Mass at 12.15, followed by lunch and meeting with Bishop Paul. To book email Heather: Heather.Watts@lrcd.org.uk or Tel: 01524 841190. There is no charge. As well as meeting the Bishop, you will have the opportunity to get to know how discernment works and who can assist you. You will also meet many others from across the Diocese exploring a vocation to priesthood.
+
+---
+
+## Burkina Faso
+
+Message from E.Gillett: Our annual appeal for the Bernardine community in Bafor, Burkina Faso starts this weekend and concludes at the end of August. Sr Helen Mary, from Hyning, has provided a comprehensive update from Bafor which is available for you today and is also on the noticeboard. Donations can be made via the small white envelopes at the back of church which be returned via the offertory collection. If you wish to Gift Aid your donation please include your name and address. Don't forget every single penny goes to source! Thank you
+
+---
+
+## Walsingham 2026
+
+Message from Charlie O’Connor: I am delighted to say that the response to my invitation to join me and other pilgrims from around the diocese has been very good. There remain a few places still open. Maybe you have never been before, or have a particular intention, either way please do come. Bookings will close on 31 May. If you would like to come along for this time of healing, reconciliation and grace please get in touch with Deacon Charlie Conner on 07711 345 176 or [charlie.conner@lrcd.org.uk](mailto:charlie.conner@lrcd.org.uk)
+
+---
+
+## Gathering of Catholic Doctors
+
+An opportunity for Catholic doctors to meet and support each other in their faith, and in the vocation as doctors. There will be a light lunch in the Cathedral library followed by a talk on ‘The Art of Dying Well’ by Dr Amy Gadoud. Please email [cathedral@lrcd.org.uk](mailto:cathedral@lrcd.org.uk) to confirm attendance. 6th June 1pm.
 
 ---
 

@@ -6,47 +6,9 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week
 
-### Weekend: Seventh Sunday of Easter 'A'
-
-**Saturday 16th**  
-2pm — St. Joseph’s  
-First Holy Communion Mass: Deceased of O’Dea Family  
-6pm — St. Joseph’s  
-Mass: People of the Parishes
-
-**Sunday 17th**  
-9:15am — St. Joseph’s  
-Mass: Pat Kay  
-10:30am — St. Peter’s  
-Mass: John Nolan
-
----
-
-**Monday 18th**  
-9am — St. Peter’s  
-Mass: John and Isobel Morrison followed by Exposition and Confessions till 10am
-
-**Tuesday 19th**  
-10am — St. Joseph’s  
-Mass: Tony and Damian Crean preceded by Exposition and Confessions till 9:55am  
-6:30pm — St. Peter’s  
-Holy Hour with Rosary and Benediction
-
-**Wednesday 20th**  
-9am — St. Peter’s  
-Mass: Brenda Brierley
-
-**Thursday 21st**  
-10am — St. Joseph’s  
-Mass: Patrick Hicks
-
----
-
 ### Weekend: Pentecost Sunday 'A'
 
 **Saturday 23rd**  
-12noon — St. Joseph’s  
-Wedding Service for Christopher and Amelia  
 6pm — St. Joseph’s  
 Mass: Brian Green
 
@@ -58,11 +20,48 @@ Mass: People of the Parishes
 
 ---
 
+**Monday 25th**  
+9am — St. Peter’s  
+Mass: Sr. Catherine Labouré  
+No devotions this morning.  
+1pm — St. Peter’s  
+Wedding Service for William and Gabriell
+
+**Tuesday 26th**  
+10am — St. Joseph’s  
+Mass: Patrick Scott preceded by Exposition and Confessions till 9:55am
+
+**Wednesday 27th**  
+9am — St. Peter’s  
+Mass: Intentions of Fr. Patrick Hibbert 52nd Anniversary of Ordination
+
+**Thursday 28th**  
+10am — St. Joseph’s  
+Mass: Gary Ferguson
+
+**Friday 29th**  
+1pm — St. Peter’s  
+Wedding Service for Isabella and Andrew
+
+---
+
+### Weekend: The Most Holy Trinity
+
+**Saturday 30th**  
+6pm — St. Joseph’s  
+Mass: William and Mary Murray
+
+**Sunday 31st**  
+9:15am — St. Joseph’s  
+Mass: Isobel Quinn  
+10:30am — St. Peter’s  
+Mass: People of the Parishes
+
+---
+
 ## Sacrament of Reconciliation
 
-Sacrament of Reconciliation with Exposition this week.
-
-Monday 9:30-9:55am at St. Peter’s and Tuesday 9:30-9:50am at St. Joseph’s
+Sacrament of Reconciliation with Exposition this week: Tuesday 9:30-9:50am at St. Joseph’s
 
 Confession is also available by arrangement with Fr. Peter. Tel. 737037
 
