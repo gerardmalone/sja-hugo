@@ -6,46 +6,7 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week
 
-### Weekend: Pentecost Sunday 'A'
-
-**Saturday 23rd**  
-6pm — St. Joseph’s  
-Mass: Brian Green
-
-**Sunday 24th**  
-9:15am — St. Joseph’s  
-Mass: Sandra  
-10:30am — St. Peter’s  
-Mass: People of the Parishes
-
----
-
-**Monday 25th**  
-9am — St. Peter’s  
-Mass: Sr. Catherine Labouré  
-No devotions this morning.  
-1pm — St. Peter’s  
-Wedding Service for William and Gabriell
-
-**Tuesday 26th**  
-10am — St. Joseph’s  
-Mass: Patrick Scott preceded by Exposition and Confessions till 9:55am
-
-**Wednesday 27th**  
-9am — St. Peter’s  
-Mass: Intentions of Fr. Patrick Hibbert 52nd Anniversary of Ordination
-
-**Thursday 28th**  
-10am — St. Joseph’s  
-Mass: Gary Ferguson
-
-**Friday 29th**  
-1pm — St. Peter’s  
-Wedding Service for Isabella and Andrew
-
----
-
-### Weekend: The Most Holy Trinity
+### Weekend: The Most Holy Trinity 'A'
 
 **Saturday 30th**  
 6pm — St. Joseph’s  
@@ -59,9 +20,51 @@ Mass: People of the Parishes
 
 ---
 
+**Monday 1st**  
+9am — St. Peter’s  
+Mass: Richard Sisson followed by Exposition and Confessions till 10am  
+7pm — St. Peter’s  
+Vespers and Benediction
+
+**Tuesday 2nd**  
+10am — St. Joseph’s  
+Mass: Intentions of Greta and Jim Smeed preceded by Exposition and Confessions till 9:55am
+
+**Wednesday 3rd**  
+10am — Saltcotes  
+Mass: Intentions of the Hayes Family
+
+**Thursday 4th**  
+10am — St. Joseph’s  
+Mass: Robin Upton
+
+**Friday 5th**  
+2pm — St. Joseph’s  
+Mass and Anointing of the Sick: Tom Dockerty  
+2:45pm — Lytham Crematorium  
+Service for Patricia Mary Cartmell
+
+---
+
+### Weekend: The Most Holy Body and Blood of Christ 'A'
+
+**Saturday 6th**  
+6pm — St. Joseph’s  
+Mass: In Loving Memory of Mary O’Reilly
+
+**Sunday 7th**  
+9:15am — St. Joseph’s  
+Mass: People of the Parishes  
+10:30am — St. Peter’s  
+Mass: Chris Hall
+
+---
+
 ## Sacrament of Reconciliation
 
-Sacrament of Reconciliation with Exposition this week: Tuesday 9:30-9:50am at St. Joseph’s
+Sacrament of Reconciliation with Exposition this week.
+
+Monday 9:30-9:55am at St. Peter’s and Tuesday 9:30-9:50am at St. Joseph’s
 
 Confession is also available by arrangement with Fr. Peter. Tel. 737037
 

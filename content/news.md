@@ -2,7 +2,7 @@
 title: "News"
 draft: false
 ---
-## Pentecost Sunday — Sunday 24th May 2026
+## The Most Holy Trinity — Sunday 31st May 2026
 
 ## Catholic Voice
 
@@ -10,29 +10,69 @@ Latest copy (May) can be found [by clicking this link](https://issuu.com/cathcom
 
 ## Message from Father Peter
 
-I was asked recently about why we are singing the ‘Regina Coeli’ after Monday Benediction at SPs, rather than the more usual ‘Salve Regina’. These of course are the Marian Antiphon, the songs to Mary we sing at the end of Benediction of Night Prayer in the Church. There are actually four of them, and they are designed to be sung during the different seasons of the Church’s year. I’ll give you their Latin Titles - and indeed we usually sing them in Latin -  but with the English Translations. In themselves are they are beautiful prayerful celebrations of our Mother Mary.
+The Liturgical colour for last week’s Feast of Pentecost was red, this week and next week we are wearing White for Trinity and Corpus Christi, and after Eastertide we are now officially in Ordinary Time, where the colour is Green. But this coming week we are wearing Red for the Feast of Three Martyrs, in one case with his companions, all of whom take us through virtually the whole history of the Church.
 
-The Alma Redemptoris Mater is sung during Advent, to the Feast of the Purification on February 2nd. It was around the Year 1000AD, but has always been popular in England due to a translation by St. John Henry Newman: Kind mother of the Redeemer, who remain the open gate of heaven and the star of the sea: help your falling people who want to rise, you who bore your holy Parent, while nature marvelled:
-a Virgin before and after, receiving that ‘Ave’ from Gabriel’s mouth, have mercy on us sinners.
+Firstly on Monday we remember St. Justin, who lived in the the Second Century AD, and though born and converted from Paganism to Christianity in the Holy Land, travelled to Rome, where he opened and School of Philosophy, and wrote various books, most notably his ‘Apologies’ which are addressed to the Roman Emperor. He was martyred in 165.
 
-The Regina Coeli is sung from Holy Saturday until the week after Pentecost, so we have been singing it throughout Eastertide. It is attributed to St. Gregory the Great, known to us for sending missionaries to England. Queen of heaven, rejoice, alleluia. The Son you merited to bear, alleluia, Has risen as he said, alleluia. Pray to God for us, alleluia!
+The Memorial of St. Charles Lwanga and his Companions on Wednesday takes us up to the Nineteenth Century. The first Catholic Missionaries in Central Africa were established in 1879, but problems arose under the ruler ship of the King Mwanga II, in what is now present day Uganda, who saw Christianity as a threat to his authority. When members of his own household - young people serving as pages - refused to follow his unchristian ways and actions he had them slaughtered. Charles Lwanga had been baptised in 1885, and the following year he was burned at the stake, along with his companions, who included a 13-year-old boy, St. Kizito, who is now venerated as one of the Patron Saints of Primary Schools.
 
-The Ave Regina Caelorum, believed to have been written in the 12th Century, is sung during Lent, though it is believed to have originally been written for the Feast of the Assumption. Hail, Queen of Heaven. Hail, Lady of Angels, Hail, thou root, hail, thou gate, from whom into the world, a light has arisen: Rejoice, glorious Virgin,
-Lovely above all others, Farewell, most beautiful maiden, and pray for us to Christ.
+And on Friday we move to Europe in the Sixth Century remembering St. Boniface, who was born in England, and after being ordained as a Benedictine Priest felt a calling to Missionary Work in Europe, and was commissioned by Rome to preach in what is now Southern Germany. He was ordained as Archbishop of Mainz in 747 by Pope Gregory III. He became known as ‘The Apostles to the Germans’. Whilst ministering in the coastal area of Frisia he was set upon by thieves, and martyred in 754. His Feast and various anniversaries are always the cause of great Celebrations in Germany, and there has even been a musical about his life – which looks amazing from what I’ve been able to find on the internet! (I’ve ordered the CD!)
 
-And finally the Salve Regina, or Hail Holy Queen as I’m sure we all know it, sung in Ordinary Times of the Church’s Year, which has an interesting history, being written Dominicans, popularised by Carthusians and Carmelites, condemned by Lutherans, and set to music by Andrew Lloyd Webber for the opening chorus of ‘Evita’! Hail, holy Queen, Mother of Mercy, hail our life, our sweetness and our hope. To thee do we cry, poor banished children of Eve; to thee do we send up our sighs, mourning and weeping in this valley of tears. Turn then, most gracious advocate, thine eyes of mercy toward us; and after this our exile, show unto us the blessed fruit of thy womb, Jesus. O clement, O loving, O sweet Virgin Mary.
+To conclude here is the final prayer from the Litany of the English Martyrs. Perhaps more than ever we need to make it a prayer for Ourselves, our Country and the World. O God, in whom there is no change or shadow of alteration, you gave courage to the Holy Martyrs. Grant unto us, we beseech you, through their intercession, the grace to always value the Holy Mass. May we be strengthened to serve you in imitation of the courage of these Holy Martyrs. We ask this through Jesus Christ, Your Son, who lives and reigns with You in the unity of the Holy Spirit, forever. Amen.
 
 ---
 
-## Pentecost Sunday
+## Trinity Sunday
 
-23rd – 24th May 2026
+30th–31st May 2026
 
 ---
 
 ## The Food Bank
 
 Contributions are most welcome, and still most necessary. Please bring stuff to Masses or to the Presbytery at any time.
+
+---
+
+## Congratulations
+
+Congratulations to William and Gabriell, Isabell and Andrew, and Chris and Amelia, who all celebrated the Sacrament of Matrimony in St. Joseph’s and St. Peter’s over the past week. We wish them many prayers and blessings.
+
+---
+
+## Songs of Praise and Strawberry Tea
+
+Sunday 12th July at 3pm at SJ’s: forms to suggest your favourite hymn to be sung and played at this jolly gathering are available at the back of Church, and can be placed in the box. Tickets for numbers for the Strawberry Tea will available soon.
+
+---
+
+## St Joseph's & St Peters Sunday Lunch
+
+1st November 1pm at The Bedford Hotel. We are now taking bookings, please pick up a leaflet after mass, select your menu choices and return the form with your payment as soon as possible. Teresa Mallabone & Pete Rickards will accept forms at St Peters & Susan Brown at St Joseph’s, or pass to a member of the Social committee or to FrP.
+
+---
+
+## Burkina Faso
+
+Message from E.Gillett: Our annual appeal for the Bernardine community in Bafor, Burkina Faso starts this weekend and concludes at the end of August. Sr Helen Mary, from Hyning, has provided a comprehensive update from Bafor which is available for you today and is also on the noticeboard. Donations can be made via the small white envelopes at the back of church which be returned via the offertory collection. If you wish to Gift Aid your donation please include your name and address. Don't forget every single penny goes to source! Thank you
+
+---
+
+## Walsingham 2026
+
+Message from Charlie O’Connor: I am delighted to say that the response to my invitation to join me and other pilgrims from around the diocese has been very good. There remain a few places still open. Maybe you have never been before, or have a particular intention, either way please do come. Bookings will close on 31 May. If you would like to come along for this time of healing, reconciliation and grace please get in touch with Deacon Charlie Conner on [the number in this weeks bulletin](/bulletins) or [charlie.conner@lrcd.org.uk](mailto:charlie.conner@lrcd.org.uk)
+
+---
+
+## New Catenian President
+
+Message from Peter Welsby, Publicity Officer for Lytham St. Anne’s Catenian: In April, Lytham St. Anne’s Circle, Circle 89, installed a new President, former Grand Present, Tony Godden. He will continue the charitable work of the association initiating enjoyable social occasions for its members and families during his term of office. Brother Peter Welsby held the posy of president for the past three years, successfully leading the circle in providing significant donations to Trinity hospice gathered at various social events.
+
+---
+
+## Gathering of Catholic Doctors
+
+Lancaster Cathedral 6th June 1pm. An opportunity for Catholic doctors to meet and support each other in their faith, and in the vocation as doctors. There will be a light lunch in the Cathedral library followed by a talk on ‘The Art of Dying Well’ by Dr Amy Gadoud. Please email [cathedral@lrcd.org.uk](mailto:cathedral@lrcd.org.uk) to confirm attendance.
 
 ---
 
@@ -50,33 +90,13 @@ Up and Coming Social Events for our Two Parishes are displayed on our noticeboar
 
 ---
 
-## St Joseph's & St Peters Sunday Lunch
+## Collection Count
 
-1st November 1pm at The Bedford Hotel. We are now taking bookings, please pick up a leaflet after mass, select your menu choices and return the form with your payment as soon as possible. Teresa Mallabone & Pete Rickards will accept forms at St Peters & Susan Brown at St Peters, or pass to a member of the Social committee or to FrP.
+For April: with grateful thanks
 
----
+Gift Aid £222.50 Non Gift Aid £1101.33 SO £2951.00
 
-## Thinking of Becoming a Priest?
-
-Come to the day of recollection and discernment! The day is for single men 16 years or over who are considering priesthood: Next Saturday 30th May 12.15pm – 2.30pm at St Peter’s Cathedral, Balmoral Road, Lancaster LA1 3BT. Gather in the Cathedral for Mass at 12.15, followed by lunch and meeting with Bishop Paul. To book email Heather: Heather.Watts@lrcd.org.uk or Tel: 01524 841190. There is no charge. As well as meeting the Bishop, you will have the opportunity to get to know how discernment works and who can assist you. You will also meet many others from across the Diocese exploring a vocation to priesthood.
-
----
-
-## Burkina Faso
-
-Message from E.Gillett: Our annual appeal for the Bernardine community in Bafor, Burkina Faso starts this weekend and concludes at the end of August. Sr Helen Mary, from Hyning, has provided a comprehensive update from Bafor which is available for you today and is also on the noticeboard. Donations can be made via the small white envelopes at the back of church which be returned via the offertory collection. If you wish to Gift Aid your donation please include your name and address. Don't forget every single penny goes to source! Thank you
-
----
-
-## Walsingham 2026
-
-Message from Charlie O’Connor: I am delighted to say that the response to my invitation to join me and other pilgrims from around the diocese has been very good. There remain a few places still open. Maybe you have never been before, or have a particular intention, either way please do come. Bookings will close on 31 May. If you would like to come along for this time of healing, reconciliation and grace please get in touch with Deacon Charlie Conner on 07711 345 176 or [charlie.conner@lrcd.org.uk](mailto:charlie.conner@lrcd.org.uk)
-
----
-
-## Gathering of Catholic Doctors
-
-An opportunity for Catholic doctors to meet and support each other in their faith, and in the vocation as doctors. There will be a light lunch in the Cathedral library followed by a talk on ‘The Art of Dying Well’ by Dr Amy Gadoud. Please email [cathedral@lrcd.org.uk](mailto:cathedral@lrcd.org.uk) to confirm attendance. 6th June 1pm.
+St. Joseph’s Care £279.55 Specials Gift Aid £46.81 Non Gift Aid £134.05. Easter Flowers £25
 
 ---
 
