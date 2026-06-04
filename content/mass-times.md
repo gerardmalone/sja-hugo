@@ -6,47 +6,7 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week
 
-### Weekend: The Most Holy Trinity 'A'
-
-**Saturday 30th**  
-6pm — St. Joseph’s  
-Mass: William and Mary Murray
-
-**Sunday 31st**  
-9:15am — St. Joseph’s  
-Mass: Isobel Quinn  
-10:30am — St. Peter’s  
-Mass: People of the Parishes
-
----
-
-**Monday 1st**  
-9am — St. Peter’s  
-Mass: Richard Sisson followed by Exposition and Confessions till 10am  
-7pm — St. Peter’s  
-Vespers and Benediction
-
-**Tuesday 2nd**  
-10am — St. Joseph’s  
-Mass: Intentions of Greta and Jim Smeed preceded by Exposition and Confessions till 9:55am
-
-**Wednesday 3rd**  
-10am — Saltcotes  
-Mass: Intentions of the Hayes Family
-
-**Thursday 4th**  
-10am — St. Joseph’s  
-Mass: Robin Upton
-
-**Friday 5th**  
-2pm — St. Joseph’s  
-Mass and Anointing of the Sick: Tom Dockerty  
-2:45pm — Lytham Crematorium  
-Service for Patricia Mary Cartmell
-
----
-
-### Weekend: The Most Holy Body and Blood of Christ 'A'
+### Weekend: Corpus Christi 'A'
 
 **Saturday 6th**  
 6pm — St. Joseph’s  
@@ -57,6 +17,40 @@ Mass: In Loving Memory of Mary O’Reilly
 Mass: People of the Parishes  
 10:30am — St. Peter’s  
 Mass: Chris Hall
+
+---
+
+**Monday 8th**  
+9am — St. Peter’s  
+Mass: Joan Woodcock Birthday Remembrance followed by Exposition and Confessions till 10am  
+2pm — St. Joseph’s  
+Funeral Service for William Eric Garside
+
+**Tuesday 9th**  
+10am — St. Joseph’s  
+Mass: Arthur Horton preceded by Exposition and Confessions till 9:55am
+
+**Wednesday 10th**  
+9am — St. Peter’s  
+Mass: Sylvester King
+
+**Thursday 11th**  
+10am — St. Joseph’s  
+Mass: Victoria Trzeciak Rozanska
+
+---
+
+### Weekend: Eleventh Sunday in Ordinary Time 'A'
+
+**Saturday 13th**  
+6pm — St. Joseph’s  
+Mass: Patrick and Bernadette Farish
+
+**Sunday 14th**  
+9:15am — St. Joseph’s  
+Mass: People of the Parishes  
+10:30am — St. Peter’s  
+Mass: Frank and Winnie Mulligan
 
 ---
 

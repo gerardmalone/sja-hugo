@@ -2,29 +2,27 @@
 title: "News"
 draft: false
 ---
-## The Most Holy Trinity — Sunday 31st May 2026
+## The Most Holy Body & Blood of Christ — Sunday 7th June 2026
 
 ## Catholic Voice
 
-Latest copy (May) can be found [by clicking this link](https://issuu.com/cathcom/docs/lancaster_voice_may_2026).
+Latest copy (June) can be found [by clicking this link](https://issuu.com/cathcom/docs/lancaster_voice_june_2026).
 
 ## Message from Father Peter
 
-The Liturgical colour for last week’s Feast of Pentecost was red, this week and next week we are wearing White for Trinity and Corpus Christi, and after Eastertide we are now officially in Ordinary Time, where the colour is Green. But this coming week we are wearing Red for the Feast of Three Martyrs, in one case with his companions, all of whom take us through virtually the whole history of the Church.
-
-Firstly on Monday we remember St. Justin, who lived in the the Second Century AD, and though born and converted from Paganism to Christianity in the Holy Land, travelled to Rome, where he opened and School of Philosophy, and wrote various books, most notably his ‘Apologies’ which are addressed to the Roman Emperor. He was martyred in 165.
-
-The Memorial of St. Charles Lwanga and his Companions on Wednesday takes us up to the Nineteenth Century. The first Catholic Missionaries in Central Africa were established in 1879, but problems arose under the ruler ship of the King Mwanga II, in what is now present day Uganda, who saw Christianity as a threat to his authority. When members of his own household - young people serving as pages - refused to follow his unchristian ways and actions he had them slaughtered. Charles Lwanga had been baptised in 1885, and the following year he was burned at the stake, along with his companions, who included a 13-year-old boy, St. Kizito, who is now venerated as one of the Patron Saints of Primary Schools.
-
-And on Friday we move to Europe in the Sixth Century remembering St. Boniface, who was born in England, and after being ordained as a Benedictine Priest felt a calling to Missionary Work in Europe, and was commissioned by Rome to preach in what is now Southern Germany. He was ordained as Archbishop of Mainz in 747 by Pope Gregory III. He became known as ‘The Apostles to the Germans’. Whilst ministering in the coastal area of Frisia he was set upon by thieves, and martyred in 754. His Feast and various anniversaries are always the cause of great Celebrations in Germany, and there has even been a musical about his life – which looks amazing from what I’ve been able to find on the internet! (I’ve ordered the CD!)
-
-To conclude here is the final prayer from the Litany of the English Martyrs. Perhaps more than ever we need to make it a prayer for Ourselves, our Country and the World. O God, in whom there is no change or shadow of alteration, you gave courage to the Holy Martyrs. Grant unto us, we beseech you, through their intercession, the grace to always value the Holy Mass. May we be strengthened to serve you in imitation of the courage of these Holy Martyrs. We ask this through Jesus Christ, Your Son, who lives and reigns with You in the unity of the Holy Spirit, forever. Amen.
+As you can see overleaf, in July we are organizing an afternoon of our Favourite Hymns followed by a Strawberry Tea. I guess I have a lot of ‘favourite hymn’ (and quite a few I’d be quite happy never to sing again). However, my top two are, in second place, ‘O Come, O come Emmanuel’, the wonderful setting of the ‘‘O’ Antiphons’ which we sing during Advent. And my Number One is ‘Dear Lord and Father of Mankind’. The Hymn has an intriguing history, being taken from an American Quaker text, encouraging people not to try and seek contact with God through Alcohol, and it was then taken up in the eighteenth century in England by the Temperance Society which sought to discourage people from Alcohol, and drugs, particularly the use of Opium which was prevalent at the time. If you look at the words in the hymnbook you’ll see that while they can be taken as a simple and beautiful prayer for peace and heart of mind through Christ in the midst of the toils and troubles of this world, as he brought peace to people when Jesus walked this Earth, they can also be read referring to various addictions which might cloud the mind in whatever way. I love the imagery, particularly the idea of resting by Galilee – a wonderful picture of what this earth should be, and what heaven might be. It also restates the commandment to keep the Sabbath Holy, something which is sadly observed less and less. The tune is also brilliant: in England we sing it to the hymn tune ‘Repton’ by the great tunesmith Charles Parry, who wrote much wonderful Church music – not least the great anthem ‘I Was Glad’ which was sung at the Coronation of Queen Elizabeth II, and I remember singing it at the Episcopal Ordination of Bishop Brewer (about forty years ago!). The tune is so great that when Andrew Lloyd Webber got together with his second wife Sarah Brightman, he had alternative words written to it to make a pop song (punningly entitled ‘Him’), which you might search for on the internet, (although beware the very eighties video). I don’t know when we’ll next sing the hymn in Church (I don’t pick the music for Sundays), but it’ll be getting my vote for the Songs of Praise on July 12th. Dear Lord and Father of mankind, forgive our foolish ways! Reclothe us in our rightful mind; in purer lives Thy service find, in deeper rev'rence, praise.
 
 ---
 
-## Trinity Sunday
+## Corpus Christi
 
-30th–31st May 2026
+6th–7th June 2026
+
+---
+
+## Spiritual Communion
+
+On this Feast of Corpus Christi it might be an opportune time to remind ourselves of the Act of Spiritual Communion for the times when we are unable to receive Holy Communion in actuality: My Jesus, I believe that You are present in the Most Holy Sacrament. I love You above all things, and I desire to receive You into my soul. Since I cannot at this moment receive You sacramentally, come at least spiritually into my heart. I embrace You as if You were already there and unite myself wholly to You. Never permit me to be separated from You. Amen.
 
 ---
 
@@ -34,15 +32,9 @@ Contributions are most welcome, and still most necessary. Please bring stuff to 
 
 ---
 
-## Congratulations
-
-Congratulations to William and Gabriell, Isabell and Andrew, and Chris and Amelia, who all celebrated the Sacrament of Matrimony in St. Joseph’s and St. Peter’s over the past week. We wish them many prayers and blessings.
-
----
-
 ## Songs of Praise and Strawberry Tea
 
-Sunday 12th July at 3pm at SJ’s: forms to suggest your favourite hymn to be sung and played at this jolly gathering are available at the back of Church, and can be placed in the box. Tickets for numbers for the Strawberry Tea will available soon.
+Sunday 12th July at 3pm at SJ’s: forms to suggest your favourite hymn to be sung and played at this jolly gathering are available at the back of Church, and can be placed in the box. Tickets for numbers for the Strawberry Tea will be sought soon.
 
 ---
 
@@ -52,27 +44,15 @@ Sunday 12th July at 3pm at SJ’s: forms to suggest your favourite hymn to be su
 
 ---
 
-## Burkina Faso
-
-Message from E.Gillett: Our annual appeal for the Bernardine community in Bafor, Burkina Faso starts this weekend and concludes at the end of August. Sr Helen Mary, from Hyning, has provided a comprehensive update from Bafor which is available for you today and is also on the noticeboard. Donations can be made via the small white envelopes at the back of church which be returned via the offertory collection. If you wish to Gift Aid your donation please include your name and address. Don't forget every single penny goes to source! Thank you
-
----
-
-## Walsingham 2026
-
-Message from Charlie O’Connor: I am delighted to say that the response to my invitation to join me and other pilgrims from around the diocese has been very good. There remain a few places still open. Maybe you have never been before, or have a particular intention, either way please do come. Bookings will close on 31 May. If you would like to come along for this time of healing, reconciliation and grace please get in touch with Deacon Charlie Conner on [the number in this weeks bulletin](/bulletins) or [charlie.conner@lrcd.org.uk](mailto:charlie.conner@lrcd.org.uk)
-
----
-
 ## New Catenian President
 
-Message from Peter Welsby, Publicity Officer for Lytham St. Anne’s Catenian: In April, Lytham St. Anne’s Circle, Circle 89, installed a new President, former Grand Present, Tony Godden. He will continue the charitable work of the association initiating enjoyable social occasions for its members and families during his term of office. Brother Peter Welsby held the posy of president for the past three years, successfully leading the circle in providing significant donations to Trinity hospice gathered at various social events.
+Message from Peter Welsby, Publicity Officer for Lytham St. Anne’s Catenian: In April, Lytham St. Anne’s Circle, Circle 89, installed a new President, former Grand Present, Tony Godden. He will continue the charitable work of the association initiating enjoyable social occasions for its members and families during his term of office. Brother Peter Welsby held the post of president for the past three years, successfully leading the circle in providing significant donations to Trinity hospice gathered at various social events.
 
 ---
 
-## Gathering of Catholic Doctors
+## Sacred Hearts of Jesus and Mary
 
-Lancaster Cathedral 6th June 1pm. An opportunity for Catholic doctors to meet and support each other in their faith, and in the vocation as doctors. There will be a light lunch in the Cathedral library followed by a talk on ‘The Art of Dying Well’ by Dr Amy Gadoud. Please email [cathedral@lrcd.org.uk](mailto:cathedral@lrcd.org.uk) to confirm attendance.
+This Friday 12th is the Feast of the Most Sacred Heart of Jesus, and Saturday is the Memorial of the Immaculate Heart of Mary. Both present in the Home at Nazareth, this is the beautiful Prayer for Consecration of Families: Most holy Hearts of Jesus and Mary, united in perfect love, as you look upon us with mercy and caring, we consecrate our hearts, our lives, our family to you. We know the beautiful example of your home in Nazareth was meant to be a model for each of our families. We hope to have, with your help, the unity and strong, enduring love you gave to one another. May our home be filled with joy. May sincere affection, patience, tolerance and mutual respect be freely given to all. May our prayers be filled with the needs of others, not just ourselves and may we always be close to your sacraments. Bless those who are present, as well as those who are absent, both the living and the dead; may peace be among us and when we are tested, grant us the Christian acceptance of God's will. Keep our family close to your Hearts; may your special protection be with us always. Most Sacred Hearts of Jesus and Mary, hear our prayer.
 
 ---
 
