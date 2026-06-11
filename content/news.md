@@ -2,7 +2,7 @@
 title: "News"
 draft: false
 ---
-## The Most Holy Body & Blood of Christ — Sunday 7th June 2026
+## Eleventh Sunday in Ordinary Time — Sunday 14th June 2026
 
 ## Catholic Voice
 
@@ -10,19 +10,19 @@ Latest copy (June) can be found [by clicking this link](https://issuu.com/cathco
 
 ## Message from Father Peter
 
-As you can see overleaf, in July we are organizing an afternoon of our Favourite Hymns followed by a Strawberry Tea. I guess I have a lot of ‘favourite hymn’ (and quite a few I’d be quite happy never to sing again). However, my top two are, in second place, ‘O Come, O come Emmanuel’, the wonderful setting of the ‘‘O’ Antiphons’ which we sing during Advent. And my Number One is ‘Dear Lord and Father of Mankind’. The Hymn has an intriguing history, being taken from an American Quaker text, encouraging people not to try and seek contact with God through Alcohol, and it was then taken up in the eighteenth century in England by the Temperance Society which sought to discourage people from Alcohol, and drugs, particularly the use of Opium which was prevalent at the time. If you look at the words in the hymnbook you’ll see that while they can be taken as a simple and beautiful prayer for peace and heart of mind through Christ in the midst of the toils and troubles of this world, as he brought peace to people when Jesus walked this Earth, they can also be read referring to various addictions which might cloud the mind in whatever way. I love the imagery, particularly the idea of resting by Galilee – a wonderful picture of what this earth should be, and what heaven might be. It also restates the commandment to keep the Sabbath Holy, something which is sadly observed less and less. The tune is also brilliant: in England we sing it to the hymn tune ‘Repton’ by the great tunesmith Charles Parry, who wrote much wonderful Church music – not least the great anthem ‘I Was Glad’ which was sung at the Coronation of Queen Elizabeth II, and I remember singing it at the Episcopal Ordination of Bishop Brewer (about forty years ago!). The tune is so great that when Andrew Lloyd Webber got together with his second wife Sarah Brightman, he had alternative words written to it to make a pop song (punningly entitled ‘Him’), which you might search for on the internet, (although beware the very eighties video). I don’t know when we’ll next sing the hymn in Church (I don’t pick the music for Sundays), but it’ll be getting my vote for the Songs of Praise on July 12th. Dear Lord and Father of mankind, forgive our foolish ways! Reclothe us in our rightful mind; in purer lives Thy service find, in deeper rev'rence, praise.
+in this Sunday’s Gospel we are given the names of Jesus’ chosen Twelve Apostles. Corresponding to the Twelve Tribes of Israel, and with a name meaning ‘One who is Sent’ the Apostles are of course:
+Peter, the Fisherman from Bethsaida, and the clear leader and spokesperson for the Apostles, who despite denying Jesus three times, was the first to preach the resurrected Jesus at Pentecost, taking the Church to Rome where, as first Pope, he was crucified upside down. Andrew, Peter’s brother, who is known for bringing people, including his brother to Jesus. He was crucified in Patra in Greece on an X shaped cross. James, the Greater, another Fisherman, the brother of John, who was the first Apostles to be martyred, by beheading, by King Herod. John, James’ Brother, ‘the disciples Jesus loved’, who stayed with him, and Mary, at the Crucifixion, and was the only Apostles not to be martyred, dying on the island of Patmos, having written the Fourth Gospel, Three New Testament Letters and the Book of Revelation. Philip, who asked Jesus to show them the Father, and was crucified in what is now Turkey. Bartholemew, also known as Nathaniel, who preached the Gospel in India, and was flayed alive in Armenia. Thomas, the twin, famous for questioning things (I don’t like calling him the ‘doubter’, who was martyred with a spear in India. Matthew, the Tax Collector, who wrote the First Gospel, and preached the Gospel in Ethiopia, where tradition says he was martyred. James, the less, son of Alphaeus, who preached and was martyred in Egypt. Judas Thaddeus or Jude, Patron saint of Hopeless Cases, who preached and was martyred in what is now Iran. Simon the Zealot, the passionate disciple, who preached in Persia, where tradition says he was martyred by being sawn in two. And Judas Iscariot, who betrayed Jesus for thirty pieces of silver.
+And for a simple rhyme to remember them:  This is way the disciples run; Peter, Andrew, Jude, and John. Philip and Bartholemew, Thomas next, and Matthew, too; James the Less and James the Greater; Simon the Zealot, and Judas the traitor.
+Or think of ‘BAPTISM’; Bartholemew, Andrew, Peter, Philip, Thomas, I (J) for James, James, John, Jude, and Judas, Simon, and Matthew.
+Lord, bless the Twelve Apostles who carried Your light. Grant us their courage, faith, and devotion, and may we follow their example, spreading Your truth with love, humility, and steadfast hearts. Amen.
 
 ---
 
-## Corpus Christi
+## Third Tuesday of the Month at SJSP’s
 
-6th–7th June 2026
-
----
-
-## Spiritual Communion
-
-On this Feast of Corpus Christi it might be an opportune time to remind ourselves of the Act of Spiritual Communion for the times when we are unable to receive Holy Communion in actuality: My Jesus, I believe that You are present in the Most Holy Sacrament. I love You above all things, and I desire to receive You into my soul. Since I cannot at this moment receive You sacramentally, come at least spiritually into my heart. I embrace You as if You were already there and unite myself wholly to You. Never permit me to be separated from You. Amen.
+This Tuesday 16th June:  
+Holy Hour with Rosary & Benediction:  
+St. Joseph’s at 6:30pm
 
 ---
 
@@ -40,19 +40,19 @@ Sunday 12th July at 3pm at SJ’s: forms to suggest your favourite hymn to be su
 
 ## St Joseph's & St Peters Sunday Lunch
 
-1st November 1pm at The Bedford Hotel. We are now taking bookings, please pick up a leaflet after mass, select your menu choices and return the form with your payment as soon as possible. Teresa Mallabone & Pete Rickards will accept forms at St Peters & Susan Brown at St Joseph’s, or pass to a member of the Social committee or to FrP.
+1st November 1pm at The Bedford Hotel. We are now taking bookings, please pick up a leaflet after mass, select your menu choices and return the form with your payment as soon as possible.  Teresa Mallabone & Pete Rickards will accept forms at St Peters & Susan Brown at St Joseph’s, or pass to a member of the Social committee or to FrP.
 
 ---
 
-## New Catenian President
+## World Cup Sweepstake
 
-Message from Peter Welsby, Publicity Officer for Lytham St. Anne’s Catenian: In April, Lytham St. Anne’s Circle, Circle 89, installed a new President, former Grand Present, Tony Godden. He will continue the charitable work of the association initiating enjoyable social occasions for its members and families during his term of office. Brother Peter Welsby held the post of president for the past three years, successfully leading the circle in providing significant donations to Trinity hospice gathered at various social events.
+£10 per team! Please contact Si Cox on 07900 225364 if you would like a team Or, come into the hall after 9.15am mass for further details! All proceeds to Parish Funds!
 
 ---
 
-## Sacred Hearts of Jesus and Mary
+## A Prayer for Vocations, based on This Sunday’s Gospel
 
-This Friday 12th is the Feast of the Most Sacred Heart of Jesus, and Saturday is the Memorial of the Immaculate Heart of Mary. Both present in the Home at Nazareth, this is the beautiful Prayer for Consecration of Families: Most holy Hearts of Jesus and Mary, united in perfect love, as you look upon us with mercy and caring, we consecrate our hearts, our lives, our family to you. We know the beautiful example of your home in Nazareth was meant to be a model for each of our families. We hope to have, with your help, the unity and strong, enduring love you gave to one another. May our home be filled with joy. May sincere affection, patience, tolerance and mutual respect be freely given to all. May our prayers be filled with the needs of others, not just ourselves and may we always be close to your sacraments. Bless those who are present, as well as those who are absent, both the living and the dead; may peace be among us and when we are tested, grant us the Christian acceptance of God's will. Keep our family close to your Hearts; may your special protection be with us always. Most Sacred Hearts of Jesus and Mary, hear our prayer.
+Lord Jesus, as You went about the towns and villages, You looked on the crowds and had compassion for them because they were like sheep without a shepherd. You told us that the harvest is rich but the labourers are few, and commanded us to pray to the Lord of the harvest to send labourers into His fields. We beg of You to manifest in Your Church the Spirit Whom You so abundantly bestowed upon Your Apostles. Call, we pray, very many to the priesthood and to the religious life. Inspire dedicated men and women to lay down their lives in service to Your people. Send us strong and courageous spiritual shepherds, fearless in proclaiming Your truth. May their hearts be on fire with divine love, and may they lead Your flock with grace, hope, and courage. Amen.
 
 ---
 
@@ -63,7 +63,7 @@ Up and Coming Social Events for our Two Parishes are displayed on our noticeboar
 - Songs of Praise and Strawberry Tea: Sunday 12th July at 3pm at SJ’s
 - Family BBQ: Sunday 6th September in SJ’s Grounds
 - Preston band Concert: Saturday 19th September at 7:30pm at SP’s
-- Race Night: Saturday 3rd October at 7:30pm at SJ’s
+- Race Night: Saturday 3rd October at 7:430pm at SJ’s
 - Sunday Lunch at the Bedford: Sunday 1st November
 - Christmas Fair: Sunday 6th December at SP’s
 - Fr. P.’s Family Nativity: Sunday 20th December at 3pm SJ’s
@@ -72,34 +72,17 @@ Up and Coming Social Events for our Two Parishes are displayed on our noticeboar
 
 ## Collection Count
 
-For April: with grateful thanks
+for May: with grateful thanks
 
-Gift Aid £222.50 Non Gift Aid £1101.33 SO £2951.00
+Gift Aid £501  Non Gift Aid £2034:88  SO £3081
 
-St. Joseph’s Care £279.55 Specials Gift Aid £46.81 Non Gift Aid £134.05. Easter Flowers £25
+St. Joseph’s Care £436:67 Specials Gift Aid £78:50
+
+Non Gift Aid £17.00  Easter Flowers £25 Burkina Faso £430:00
 
 ---
 
 <!-- Permanent bottom notices: keep these sections in weekly updates -->
-
-## Social Events
-
-There is a box at the back of church for suggestions for social and fundraising events for our parishes.
-
-All ideas welcome… a meal out? Afternoon tea?  
-Fr P performing his one-man version of *Cats*?
-
----
-
-## Chaplaincy Volunteer Role
-
-Are you interested in offering compassionate spiritual and emotional support to patients and families at Blackpool Hospital?
-
-For details about joining the RC Chaplaincy volunteer team contact:  
-Ian Baxter (Lead Chaplain)  
-📧 [i.baxter@nhs.net](mailto:i.baxter@nhs.net)
-
----
 
 ## Parish Email Address
 

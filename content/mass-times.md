@@ -6,40 +6,6 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week
 
-### Weekend: Corpus Christi 'A'
-
-**Saturday 6th**  
-6pm — St. Joseph’s  
-Mass: In Loving Memory of Mary O’Reilly
-
-**Sunday 7th**  
-9:15am — St. Joseph’s  
-Mass: People of the Parishes  
-10:30am — St. Peter’s  
-Mass: Chris Hall
-
----
-
-**Monday 8th**  
-9am — St. Peter’s  
-Mass: Joan Woodcock Birthday Remembrance followed by Exposition and Confessions till 10am  
-2pm — St. Joseph’s  
-Funeral Service for William Eric Garside
-
-**Tuesday 9th**  
-10am — St. Joseph’s  
-Mass: Arthur Horton preceded by Exposition and Confessions till 9:55am
-
-**Wednesday 10th**  
-9am — St. Peter’s  
-Mass: Sylvester King
-
-**Thursday 11th**  
-10am — St. Joseph’s  
-Mass: Victoria Trzeciak Rozanska
-
----
-
 ### Weekend: Eleventh Sunday in Ordinary Time 'A'
 
 **Saturday 13th**  
@@ -48,9 +14,42 @@ Mass: Patrick and Bernadette Farish
 
 **Sunday 14th**  
 9:15am — St. Joseph’s  
-Mass: People of the Parishes  
+Mass: People of the Parishes
 10:30am — St. Peter’s  
 Mass: Frank and Winnie Mulligan
+
+---
+
+**Monday 15th**  
+9am — St. Peter’s  
+Mass: Harry and Emily Illingworth followed by Exposition and Confessions till 10am
+
+**Tuesday 16th**  
+10am — St. Joseph’s  
+Mass: For A and L preceded by Exposition and Confessions till 9:55am
+6:30pm — St. Joseph’s  
+Holy Hour with Rosary and Benediction
+
+**Wednesday 17th**  
+9am — St. Peter’s  
+Mass: For a Successful Operation and Recovery
+
+**Thursday 18th**  
+No Mass Today.
+
+---
+
+### Weekend: Twelfth Sunday in Ordinary Time 'A'
+
+**Saturday 20th**  
+6pm — St. Joseph’s  
+Mass: People of the Parishes
+
+**Sunday 21st**  
+9:15am — St. Joseph’s  
+Mass: Andrew Quinn
+10:30am — St. Peter’s  
+Mass: Judith Cross
 
 ---
 
