@@ -6,39 +6,6 @@ slug: "feasts-intentions"
 
 ## Feasts and Intentions this week
 
-### Weekend: Eleventh Sunday in Ordinary Time 'A'
-
-**Saturday 13th**  
-6pm — St. Joseph’s  
-Mass: Patrick and Bernadette Farish
-
-**Sunday 14th**  
-9:15am — St. Joseph’s  
-Mass: People of the Parishes
-10:30am — St. Peter’s  
-Mass: Frank and Winnie Mulligan
-
----
-
-**Monday 15th**  
-9am — St. Peter’s  
-Mass: Harry and Emily Illingworth followed by Exposition and Confessions till 10am
-
-**Tuesday 16th**  
-10am — St. Joseph’s  
-Mass: For A and L preceded by Exposition and Confessions till 9:55am
-6:30pm — St. Joseph’s  
-Holy Hour with Rosary and Benediction
-
-**Wednesday 17th**  
-9am — St. Peter’s  
-Mass: For a Successful Operation and Recovery
-
-**Thursday 18th**  
-No Mass Today.
-
----
-
 ### Weekend: Twelfth Sunday in Ordinary Time 'A'
 
 **Saturday 20th**  
@@ -50,6 +17,40 @@ Mass: People of the Parishes
 Mass: Andrew Quinn
 10:30am — St. Peter’s  
 Mass: Judith Cross
+
+---
+
+**Monday 22nd**  
+9am — St. Peter’s  
+Mass: Dec’d of Stephenson & Spafford Fam. followed by Exposition and Confessions till 10am
+
+**Tuesday 23rd**  
+10am — St. Joseph’s  
+Mass: Yvonne Battersby preceded by Exposition and Confessions till 9:55am
+11:15am — St. Peter’s  
+Funeral Service for Gerard Butler
+
+**Wednesday 24th**  
+9am — St. Peter’s  
+Mass: John Hallion
+
+**Thursday 25th**  
+10am — St. Joseph’s  
+Mass: Zoe McLaughlin
+
+---
+
+### Weekend: The Feast of Saints Peter and Paul
+
+**Saturday 27th**  
+6pm — St. Joseph’s  
+Mass: People of the Parish
+
+**Sunday 28th**  
+9:15am — St. Joseph’s  
+Mass: Robert Coward
+10:30am — St. Peter’s  
+Mass: In Loving Memory of Genevieve Borovicka
 
 ---
 

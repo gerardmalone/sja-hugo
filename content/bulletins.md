@@ -13,6 +13,9 @@ Please note that if you send information for the weekly bulletin via e-mail ([sj
 
 All bulletin queries should be directed to **Fr. Peter**. If there is a limited amount of space, notices may have to be abbreviated. Wherever possible a notice will be published in full. Notices can only be included up to a maximum of **3 weeks**.
 
+**Twelfth Sunday in Ordinary Time**  
+[21st June 2026](/bulletins/Bulletin210626.pdf)  
+
 **Eleventh Sunday in Ordinary Time**  
 [14th June 2026](/bulletins/Bulletin140626.pdf)  
 
@@ -24,6 +27,3 @@ All bulletin queries should be directed to **Fr. Peter**. If there is a limited 
 
 **Pentecost Sunday**  
 [24th May 2026](/bulletins/Bulletin240526.pdf)  
-
-**Seventh Sunday of Easter**  
-[17th May 2026](/bulletins/Bulletin170526.pdf)  
