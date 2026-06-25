@@ -2,45 +2,13 @@
 title: "Mass Times & Intentions"
 draft: false
 slug: "feasts-intentions"
+aliases:
+  - "/mass-times/"
 ---
 
 ## Feasts and Intentions this week
 
-### Weekend: Twelfth Sunday in Ordinary Time 'A'
-
-**Saturday 20th**  
-6pm — St. Joseph’s  
-Mass: People of the Parishes
-
-**Sunday 21st**  
-9:15am — St. Joseph’s  
-Mass: Andrew Quinn
-10:30am — St. Peter’s  
-Mass: Judith Cross
-
----
-
-**Monday 22nd**  
-9am — St. Peter’s  
-Mass: Dec’d of Stephenson & Spafford Fam. followed by Exposition and Confessions till 10am
-
-**Tuesday 23rd**  
-10am — St. Joseph’s  
-Mass: Yvonne Battersby preceded by Exposition and Confessions till 9:55am
-11:15am — St. Peter’s  
-Funeral Service for Gerard Butler
-
-**Wednesday 24th**  
-9am — St. Peter’s  
-Mass: John Hallion
-
-**Thursday 25th**  
-10am — St. Joseph’s  
-Mass: Zoe McLaughlin
-
----
-
-### Weekend: The Feast of Saints Peter and Paul
+### Weekend: Eleventh Sunday in Ordinary Time 'A'
 
 **Saturday 27th**  
 6pm — St. Joseph’s  
@@ -51,6 +19,42 @@ Mass: People of the Parish
 Mass: Robert Coward
 10:30am — St. Peter’s  
 Mass: In Loving Memory of Genevieve Borovicka
+
+---
+
+**Monday 29th**  
+9am — St. Peter’s  
+Mass: John Gerard Nolan followed by Exposition and Confessions till 10am
+
+**Tuesday 30th**  
+10am — St. Joseph’s  
+Mass: Repose of the Soul of David Steichan preceded by Exposition and Confessions till 9:55am
+
+**Wednesday 1st**  
+10am — Saltcotes  
+Mass: Deceased of the O’Dea Family
+
+**Thursday 2nd**  
+10am — St. Joseph’s  
+Mass: Alice and Aurora
+
+**Friday 3rd**  
+2pm — St. Joseph’s  
+Mass: and Anointing of the Sick John McKenzie
+
+---
+
+### Weekend: Fourteenth Sunday in Ordinary Time 'A'
+
+**Saturday 4th**  
+6pm — St. Joseph’s  
+Mass: Martin Amriding
+
+**Sunday 5th**  
+9:15am — St. Joseph’s  
+Mass: People of the Parishes
+10:30am — St. Peter’s  
+Mass: Rosemarie Szollar
 
 ---
 
