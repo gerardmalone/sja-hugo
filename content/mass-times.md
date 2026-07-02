@@ -8,42 +8,6 @@ aliases:
 
 ## Feasts and Intentions this week
 
-### Weekend: Eleventh Sunday in Ordinary Time 'A'
-
-**Saturday 27th**  
-6pm — St. Joseph’s  
-Mass: People of the Parish
-
-**Sunday 28th**  
-9:15am — St. Joseph’s  
-Mass: Robert Coward
-10:30am — St. Peter’s  
-Mass: In Loving Memory of Genevieve Borovicka
-
----
-
-**Monday 29th**  
-9am — St. Peter’s  
-Mass: John Gerard Nolan followed by Exposition and Confessions till 10am
-
-**Tuesday 30th**  
-10am — St. Joseph’s  
-Mass: Repose of the Soul of David Steichan preceded by Exposition and Confessions till 9:55am
-
-**Wednesday 1st**  
-10am — Saltcotes  
-Mass: Deceased of the O’Dea Family
-
-**Thursday 2nd**  
-10am — St. Joseph’s  
-Mass: Alice and Aurora
-
-**Friday 3rd**  
-2pm — St. Joseph’s  
-Mass: and Anointing of the Sick John McKenzie
-
----
-
 ### Weekend: Fourteenth Sunday in Ordinary Time 'A'
 
 **Saturday 4th**  
@@ -54,7 +18,43 @@ Mass: Martin Amriding
 9:15am — St. Joseph’s  
 Mass: People of the Parishes
 10:30am — St. Peter’s  
-Mass: Rosemarie Szollar
+Mass: Rosmarie Szollar
+
+---
+
+**Monday 6th**  
+9am — St. Peter’s  
+Mass: A Special Intention followed by Exposition and Confessions till 10am
+7pm — St. Joseph’s  
+Vespers and Benediction
+
+**Tuesday 7th**  
+10am — St. Joseph’s  
+Mass: James David Cartmell preceded by Exposition and Confessions till 9:55am
+
+**Wednesday 8th**  
+9am — St. Peter’s  
+Mass: Catherine King
+6pm — St. Peter’s  
+Mass: with our Year 6 Leavers Roseanne and Patrick Scott
+
+**Thursday 9th**  
+10am — St. Joseph’s  
+Mass: Philip Waters
+
+---
+
+### Weekend: Fifteenth Sunday in Ordinary Time 'A'
+
+**Saturday 11th**  
+6pm — St. Joseph’s  
+Mass: Bill Cookson
+
+**Sunday 12th**  
+9:15am — St. Joseph’s  
+Mass: Emmanuel Zammit
+10:30am — St. Peter’s  
+Mass: People of the Parishes
 
 ---
 

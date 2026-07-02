@@ -13,6 +13,9 @@ Please note that if you send information for the weekly bulletin via e-mail ([sj
 
 All bulletin queries should be directed to **Fr. Peter**. If there is a limited amount of space, notices may have to be abbreviated. Wherever possible a notice will be published in full. Notices can only be included up to a maximum of **3 weeks**.
 
+**Fourteenth Sunday in Ordinary Time**  
+[5th July 2026](/bulletins/Bulletin050726.pdf)  
+
 **The Feast of Saints Peter and Paul**  
 [28th June 2026](/bulletins/Bulletin280626.pdf)  
 
@@ -24,6 +27,3 @@ All bulletin queries should be directed to **Fr. Peter**. If there is a limited 
 
 **The Most Holy Body & Blood of Christ**  
 [7th June 2026](/bulletins/Bulletin070626.pdf)  
-
-**The Most Holy Trinity**  
-[31st May 2026](/bulletins/Bulletin310526.pdf)  

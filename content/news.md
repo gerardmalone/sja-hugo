@@ -2,15 +2,15 @@
 title: "News"
 draft: false
 ---
-## The Feast of Saints Peter and Paul — Sunday 28th June 2026
+## Fourteenth Sunday in Ordinary Time — Sunday 5th July 2026
 
 ## Catholic Voice
 
-Latest copy (June) can be found [by clicking this link](https://issuu.com/cathcom/docs/lancaster_voice_june_2026).
+Latest copy (July) can be found [by clicking this link](https://issuu.com/cathcom/docs/lancaster_voice_july_2026).
 
 ## Message from Father Peter
 
-the prayer on the Newsletter last week seemed to bring some smiles – if a little ruefully as we empathised with the thoughts of the old Nun. This weekend I thought I’d bring you another Old Prayer, but one which is much more well known, the prayer of the Medieval Bishop and Saint, Richard of Chichester. He was born at the end of the twelfth century, and having been orphaned at a young age had to work on his brothers’ land before his own inheritance came through, and a suitable marriage to a noble lady was arranged for him. Richard gave up both his inheritance and the offer of marriage in order to devote his life to study and to the Church; he studied at Oxford before teaching there and throughout Europe, before studying for the Priesthood, and eventually becoming Bishop of Chichester in 1244 (although apparently the King, Henry III, was not happy with his appointment, and all sorts of ecclesiastical wrangles ensued). He died on the April 3rd 1253, and was buried in Chichester. The prayer for which he is famous is, Thanks be to Thee, my Lord Jesus Christ, for all the benefits Thou hast given me, for all the pains and insults Thou hast borne for me. O most merciful Redeemer, friend and brother, May I know Thee more clearly, Love Thee more dearly, Follow Thee more nearly, which he allegedly recited on his deathbed – although he apparently recited it in Latin so bravo to the translator who gave us the lovely clearly/dearly/nearly rhyme. Famously the latter half of the prayer was set to music by Stephen Schwartz for his musical ‘Godspell’ which is a folksy retelling of the Gospel of St. Matthew, as the song ‘Day By Day’ which has been covered by artists as varied as Cilla Black, the Seekers, and Shirley Bassey. I wonder if they knew they were singing a five hundred year old prayer? It still makes a lovely prayer for us today - day by day.
+Saturday 11th is the Feast of St. Benedict, Patron of Europe, and founder of western Monasticism, who founded his Monastery in Monte Cassino in Italy, and whose Monastic Rule is a great today still today. But there are actually six Patrons of Europe altogether. St. Bridget of Sweden lived in the fourteenth century, and having been married and had eight children, was widowed at a young age, and founded a religious Order, devoted to the saving presence of Christ on the Cross, now known as the ‘Bridgettines’. St. Catherine of Sienna, again of the fourteenth century, chose not to marry the men chosen by her parents, but nor did she want a cloistered life of silence, and so joined the Dominicans where in a very active life, supported Pope Gregory XI in various religious and political endeavours, and did so much before dying at the age of just thirty-three. From the twentieth century we have St. Theresa Benedicta of the Cross, better known as Edith Stein, who was brought up a Jew, before being baptised and becoming a Carmelite Nun, and during the Second World War was sent to Auschwitz, where it is believe she was killed in the Gas Chambers. And going right back to ninth century, we have Saints Cyril and Methodius, two brothers who were born in Greece, but are known as the Apostles to the Slavs, and did so much work, liturgically and spiritually, with Cyril being martyred. And here is a Prayer for Europe: Father of mankind, Lord of history, watch over Europe to whom you have sent philosophers, legislators, wise people, our forerunners in faith of your Son, who has died and has risen again. Watch over these peoples, evangelized by Peter and Paul, by the prophets, by the monks, by the saints; watch over these regions watered by the blood of the martyrs. Watch over the peoples united by so many ties but also divided, over time, by hatred and war. Help us work for a Europe of the Spirit founded on eternal values, a Europe capable of ethnic and ecumenical reconciliations, ready to welcome the stranger, respectful of each person’s dignity. Grant that we assume our duty with hope to inspire and promote an understanding among peoples which ensures in all the continents, justice and bread, freedom and peace. Amen. Incidentally, last time I went to Europe none of my electronic gadgets worked until I said a prayer – apparently they needed a higher power. I’ll get my coat…
 
 ---
 
@@ -18,11 +18,9 @@ the prayer on the Newsletter last week seemed to bring some smiles – if a litt
 
 Please join us for these wonderful liturgies!
 
-- Wednesday 1st July: Mass at Saltcotes Cemetery Chapel at 10am.
+- Monday 6th July: Evening Prayer and Benediction at St. Joseph’s at 7pm
 
-- Friday 3rd July: First Friday Mass & Anointing of the Sick at St. Joseph’s at 2pm, followed by Refreshments in the Parish Hall.
-
-Tomorrow Monday at 9am at SP’s we will celebrate a whole School Mass for our Patronal Feast of Sains Peter and Paul.
+Mass this Wednesday Evening at St. Peter’s 6pm for our Year Six class who will be moving on to pastures new. Everyone welcome to come and celebrate.
 
 ---
 
@@ -32,27 +30,21 @@ Contributions are most welcome, and still most necessary. Please bring stuff to 
 
 ---
 
-## Congratulations
-
-Congratulations to our old friend Christopher Sumner who has been Ordained Deacon in Rome for this Diocese of Lancaster and for Stephen Bamber who was ordained Priest for the Diocese today in Lancaster Cathedral. May the Lord bless them in their future ministry.
-
----
-
-## Lytham Club Day 2026
-
-Ecumenical Songs of Praise at Lytham Hall at 3pm. Everyone welcome to join together for fellowship.
-
----
-
 ## Songs for Club Day with Lytham Community Choir
 
-An Evening of Uplifting Music! Saturday 11th July at 7pm at St. Peter’s. See the poster for further details.
+An Evening of Uplifting Music! Next Saturday 11th July at 7pm at St. Peter’s. See the poster for further details.
 
 ---
 
-## Songs of Praise and Strawberry Tea
+## SJSP Songs of Praise
 
-Sunday 12th July at 3pm at SJ’s: forms are being collated regarding the great choice of hymns (enough for several Sons of Praise!) Tickets for the Strawberry Tea are available after Masses this weekend. If could help with preparing the hall and serving the Cream Tea please ring Ann using the number in this week's [bulletin](/bulletins/)
+with your favourite hymns chosen by you!
+
+Sunday 12th July at 3pm at SJ’s:
+
+Followed by a Strawberry Tea
+
+Tickets for the Strawberry Tea are available after Masses this weekend.
 
 ---
 
@@ -62,15 +54,15 @@ Thursday 16th July at 6:30pm at St. Winefride’s House, Bispham, followed by re
 
 ---
 
-## Burkino Faso 2026
+## Congratulations Deacon William!
 
-the collection continues and envelopes are available at the back of Church.
+Our congratulations, best wishes and prayers go to our retired Deacon, William Riley, as he celebrates the Silver Jubilee of his ordination to the Permanent Diaconate on Monday of this week. He was one of five Deacons ordained at Lancaster Cathedral by Bishop Patrick O’Donoghue on 6th July 2001. We renew our thanks to Deacon William for his years of service in St Peter’s Parish and wish him, his wife Dorothy and daughter Emma every grace and blessing on this happy occasion. Ad multos annos!
 
 ---
 
 ## Foundation Governor Vacancies
 
-Foundation Governor Vacancies at St Cuthbert’s Catholic Academy, Blackpool and Christ the King Catholic Academy, Blackpool. Blessed Edward Bamber catholic Acadamy are seeking committed practising Catholics to join our two Governing Boards as Foundation Governors. This rewarding voluntary role offers an opportunity to support the strategic leadership of the schools, promote its Catholic ethos, and help ensure the best outcomes for all pupils. No previous governance experience is required, as training and support will be provided. If you are passionate about Catholic education and want to make a positive difference in our school communities, we would love to hear from you.
+Foundation Governor Vacancies at St Cuthbert’s Catholic Academy, Blackpool and Christ the King Catholic Academy, Blackpool. Blessed Edward Bamber Catholic Acadamy are seeking committed practising Catholics to join our two Governing Boards as Foundation Governors. This rewarding voluntary role offers an opportunity to support the strategic leadership of the schools, promote its Catholic ethos, and help ensure the best outcomes for all pupils. No previous governance experience is required, as training and support will be provided. If you are passionate about Catholic education and want to make a positive difference in our school communities, we would love to hear from you. Please contact Cath Kelly (Chair of Governors) cathikelly@aol.com
 
 ---
 
@@ -92,23 +84,15 @@ Up and Coming Social Events for our Two Parishes
 
 for May: with grateful thanks
 
-Gift Aid £501 Non Gift Aid £2034:88 SO £3081
+Gift Aid £159 Non Gift Aid £675:21 SO £2973
 
-St. Joseph’s Care £436:67 Specials Gift Aid £78:50
-
-Non Gift Aid £17.00 Easter Flowers £25 Burkina Faso £430:00
+St. Joseph’s Care £128:11 Burkina Faso £165
 
 ---
 
 ## Please Pray
 
-Please pray for all who have died recently, and those whose anniversaries occur about this time Winnifred Hickson, Jenny Gregg, Patricia Costello, Martine Porter, Andrew Boardman, David Long, Joe Waters, Ellen Moore and Ray Woods.
-
----
-
-## Sick and Housebound
-
-Please pray for the sick and housebound of the Parish, especially: Paul Bunyan, Michael Cookson, Andrew Cox, Damian Crean, Ann Cullen & The Cullen Family, Theresa and Denis Flannigan, Rosaline Fox, Cathy Gaughan, Patrick Gilligan, Pat Gleason, Pat Heeny, Christopher Hunter, Peter Jones, Sr Kay, Caroline Ledward, Margaret Long, Maureen Lundy, Pat Marion, Joan McCombe, Zoe Mc Laughlin, Paul Meskell, Anne Meyer, George Morgan, Pat Moss, Molly Murphy, Zivile Petraviciute, Bob Osachuk, Paul Robinson, Val Sunderland, Alison Singleton, Margaret Spillane, Susan Standing, Mandi Taylor, Sr Michaela Toulmin (Hyning), Alan Watkins, Brenda Wilmot, Phil Winstanley, Kath Woods, Albert Zammit.
+Please pray for all who have died recently, especially Michael Walter Wood and Yvonne Rayton, and those whose anniversaries occur about this time Ray Todd, Betty Boyd, Tony Ivison, Padraig Toner, Fr. Harry Holden, Stuart Burns, Jennifer Rhodes, Caroline Glancy, Edward Mather, Hedley Haigh, Elizabeth Gunns, Bill Cookson and Ann Murray.
 
 ---
 
@@ -120,7 +104,7 @@ CHILDREN’S LITURGY at Sunday Morning Mass!
 
 ## Coffee & Bacon Butties
 
-COFFEE & BACON BUTTIES after 9.15am Mass this week. (Who needs pies?)
+COFFEE & BACON BUTTIES after 9.15am Mass this week. (You know you want to.)
 
 ---
 
@@ -156,15 +140,15 @@ every Thursday after 10am Mass in Church, for this beautiful prayer. All welcome
 
 ## Rotas
 
-Rotas for weekend 4th/5th July
+Rotas for weekend 11th/12th July
 
-Readers Sat 6pm: David Warwick Sun. 9.15am: Wanda Kruszynska
+Readers Sat 6pm: K/ T Godden Sun. 9.15am: Rosemary Page
 
-Meet and Greet Sat 6pm: M & D Ghee
+Meet and Greet Sat 6pm: Sheila and Paul
 
-Sun 9.15am: T Cookson and M Golightly
+Sun 9.15am: M Cookson and M Reid
 
-9:15am Minister Jake
+9:15am Minister Nikola
 
 ---
 
