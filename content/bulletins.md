@@ -13,6 +13,9 @@ Please note that if you send information for the weekly bulletin via e-mail ([sj
 
 All bulletin queries should be directed to **Fr. Peter**. If there is a limited amount of space, notices may have to be abbreviated. Wherever possible a notice will be published in full. Notices can only be included up to a maximum of **3 weeks**.
 
+**Fifteenth Sunday in Ordinary Time**  
+[12th July 2026](/bulletins/Bulletin120726.pdf)  
+
 **Fourteenth Sunday in Ordinary Time**  
 [5th July 2026](/bulletins/Bulletin050726.pdf)  
 
@@ -24,6 +27,3 @@ All bulletin queries should be directed to **Fr. Peter**. If there is a limited 
 
 **Eleventh Sunday in Ordinary Time**  
 [14th June 2026](/bulletins/Bulletin140626.pdf)  
-
-**The Most Holy Body & Blood of Christ**  
-[7th June 2026](/bulletins/Bulletin070626.pdf)  

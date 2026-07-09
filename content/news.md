@@ -2,7 +2,7 @@
 title: "News"
 draft: false
 ---
-## Fourteenth Sunday in Ordinary Time — Sunday 5th July 2026
+## Fifteenth Sunday in Ordinary Time — Sunday 12th July 2026
 
 ## Catholic Voice
 
@@ -10,29 +10,11 @@ Latest copy (July) can be found [by clicking this link](https://issuu.com/cathco
 
 ## Message from Father Peter
 
-Saturday 11th is the Feast of St. Benedict, Patron of Europe, and founder of western Monasticism, who founded his Monastery in Monte Cassino in Italy, and whose Monastic Rule is a great today still today. But there are actually six Patrons of Europe altogether. St. Bridget of Sweden lived in the fourteenth century, and having been married and had eight children, was widowed at a young age, and founded a religious Order, devoted to the saving presence of Christ on the Cross, now known as the ‘Bridgettines’. St. Catherine of Sienna, again of the fourteenth century, chose not to marry the men chosen by her parents, but nor did she want a cloistered life of silence, and so joined the Dominicans where in a very active life, supported Pope Gregory XI in various religious and political endeavours, and did so much before dying at the age of just thirty-three. From the twentieth century we have St. Theresa Benedicta of the Cross, better known as Edith Stein, who was brought up a Jew, before being baptised and becoming a Carmelite Nun, and during the Second World War was sent to Auschwitz, where it is believe she was killed in the Gas Chambers. And going right back to ninth century, we have Saints Cyril and Methodius, two brothers who were born in Greece, but are known as the Apostles to the Slavs, and did so much work, liturgically and spiritually, with Cyril being martyred. And here is a Prayer for Europe: Father of mankind, Lord of history, watch over Europe to whom you have sent philosophers, legislators, wise people, our forerunners in faith of your Son, who has died and has risen again. Watch over these peoples, evangelized by Peter and Paul, by the prophets, by the monks, by the saints; watch over these regions watered by the blood of the martyrs. Watch over the peoples united by so many ties but also divided, over time, by hatred and war. Help us work for a Europe of the Spirit founded on eternal values, a Europe capable of ethnic and ecumenical reconciliations, ready to welcome the stranger, respectful of each person’s dignity. Grant that we assume our duty with hope to inspire and promote an understanding among peoples which ensures in all the continents, justice and bread, freedom and peace. Amen. Incidentally, last time I went to Europe none of my electronic gadgets worked until I said a prayer – apparently they needed a higher power. I’ll get my coat…
-
----
-
-## First Week of the Month at SJSP’s
-
-Please join us for these wonderful liturgies!
-
-- Monday 6th July: Evening Prayer and Benediction at St. Joseph’s at 7pm
-
-Mass this Wednesday Evening at St. Peter’s 6pm for our Year Six class who will be moving on to pastures new. Everyone welcome to come and celebrate.
-
----
-
-## The Food Bank
-
-Contributions are most welcome, and still most necessary. Please bring stuff to Masses or to the Presbytery,
-
----
-
-## Songs for Club Day with Lytham Community Choir
-
-An Evening of Uplifting Music! Next Saturday 11th July at 7pm at St. Peter’s. See the poster for further details.
+As we have our very own jolly Songs of Praise this weekend, followed by a Strawberry Cream Tea in the Hall at SJs, I thought it might be another occasion when the invoking of some Patron saints might be appropriate.
+Saint Dorothy of Caesarea is the Patron Saint of strawberries – well, not just strawberries, but fruit, florists and gardeners in general. She is a virgin martyr from the fourth century, and before her execution sent her headdress to a pagan lawyer who had been mocking her, who found it to be filled with a heavenly scent of fruits. As a Patroness of Gardeners, it is an Italian tradition to bless gardens and trees on her Feast Day of February 6th.
+For the Patron Saint of Cream, and rather Dairy Workers in general, we go to Saint Brigid of Kildare, a fifth century Irish Abbess. There are lots of miracles attributed to her – one of which involves her turning water into beer!
+And when it comes to Tea, we look to Don Justo Takayama Ukon, who was a Japanese Samurai, who converted to Catholicism, and used the ancient Japanese tea ceremonies as a form of Christian prayer. He has been beatified, but as yet has not been canonised - so you could always seek the intercession of St. Drogo, who is Patron saint of Coffee.
+CAFOD provide us with this lovely Grace Before Breaking Bread – perhaps we can say the prayer before we break scones, or any other food and drink, for that matter. Generous God, your Spirit hovered over the waters, you breathed life into the earth and created a world of plenty. Look on us here as we break bread together, and guide us to take only what we need so that all your people may have enough. Father of all, there are many among us who go hungry. Help us to listen and respond as one family, so that, as we break bread together, we may glimpse your Kingdom here on earth -  a Kingdom of welcome and plenty for all. Amen. Incidentally I saw some people building a new bridge near me. Every lunch break they would sit down for afternoon tea complete with tablecloth and napkins. It was very civil engineering. I’ll get my coat – and my napkin.
 
 ---
 
@@ -40,29 +22,49 @@ An Evening of Uplifting Music! Next Saturday 11th July at 7pm at St. Peter’s. 
 
 with your favourite hymns chosen by you!
 
-Sunday 12th July at 3pm at SJ’s:
+Sunday 12th July at 3pm at SJ’s
 
 Followed by a Strawberry Tea
 
 Tickets for the Strawberry Tea are available after Masses this weekend.
 
----
-
-## Holy Mass of Blessed Edward Bamber
-
-Thursday 16th July at 6:30pm at St. Winefride’s House, Bispham, followed by refreshments. All Welcome.
+Incidentally regarding the Hymns for our Songs of Praise: Thank you so much to those who have chosen favourite hymns for our Songs of Praise this Sunday at 3pm. Unfortunately, it won’t be possible to include all the hymn choices as there were so many – if we were to sing them all, we would be in church until next Sunday! We will make sure that those not included on Sunday will feature in Masses in the following weeks.
 
 ---
 
-## Congratulations Deacon William!
+## End of Year School Mass
 
-Our congratulations, best wishes and prayers go to our retired Deacon, William Riley, as he celebrates the Silver Jubilee of his ordination to the Permanent Diaconate on Monday of this week. He was one of five Deacons ordained at Lancaster Cathedral by Bishop Patrick O’Donoghue on 6th July 2001. We renew our thanks to Deacon William for his years of service in St Peter’s Parish and wish him, his wife Dorothy and daughter Emma every grace and blessing on this happy occasion. Ad multos annos!
+This Wednesday morning at St. Peter’s the whole of St. Peter’s School will be joining us for Mass as we celebrate the end of a wonderful blessed year.
 
 ---
 
-## Foundation Governor Vacancies
+## School Uniforms Needed During August
 
-Foundation Governor Vacancies at St Cuthbert’s Catholic Academy, Blackpool and Christ the King Catholic Academy, Blackpool. Blessed Edward Bamber Catholic Acadamy are seeking committed practising Catholics to join our two Governing Boards as Foundation Governors. This rewarding voluntary role offers an opportunity to support the strategic leadership of the schools, promote its Catholic ethos, and help ensure the best outcomes for all pupils. No previous governance experience is required, as training and support will be provided. If you are passionate about Catholic education and want to make a positive difference in our school communities, we would love to hear from you. Please contact Cath Kelly (Chair of Governors) cathikelly@aol.com
+Fylde Food Bank in partnership with Lytham Rotary Club is collecting good quality, clean school uniforms for secondary and primary schools. There will be a box at the back of church for contributions. Thank you for your support
+
+---
+
+## Lytham Catenians President's Mass
+
+On Saturday 25th July, Lytham Catenians will celebrate their annual President's Mass at St Joseph's at 6pm. The Catenians are a Catholic men's social organisation which aims to strengthen family life through friendship and faith. As well as enjoying themselves they also support vocations, charities, and young people financially and developmentally. For further information about the Catenians contact Tony Godden after Mass or email tonygodden@btinternet.com
+
+---
+
+## Burkino Faso 2026
+
+the collection continues and envelopes are available at the back of Church.
+
+---
+
+## The Food Bank
+
+Contributions are most welcome, and still most necessary. Please bring stuff to Masses or the Presbytery any time.
+
+---
+
+## Feast of St Bonaventure
+
+Wednesday 15th July is the Feast of St Bonaventure, who was born near Viterbo, Italy, and became a member of the Friars Minor. He studied in Paris and become known as the Seraphic Doctor. He received his degree with St Thomas Aquinas. He preached with great energy and wrote many books on Catholic doctrine. He was a successor of St Francis and managed to sort out serious disputes within the Franciscan order. Later he was appointed bishop of Albano. He died in 1274 while carrying out his work of helping to effect the reunion between the Greeks and Rome.
 
 ---
 
@@ -70,7 +72,6 @@ Foundation Governor Vacancies at St Cuthbert’s Catholic Academy, Blackpool and
 
 Up and Coming Social Events for our Two Parishes
 
-- Songs of Praise and Strawberry Tea: Sunday 12th July at 3pm at SJ’s
 - Family BBQ: Sunday 6th September in SJ’s Grounds
 - Preston band Concert: Saturday 19th September at 7:30pm at SP’s
 - Race Night: Saturday 3rd October at 7:430pm at SJ’s
@@ -92,7 +93,7 @@ St. Joseph’s Care £128:11 Burkina Faso £165
 
 ## Please Pray
 
-Please pray for all who have died recently, especially Michael Walter Wood and Yvonne Rayton, and those whose anniversaries occur about this time Ray Todd, Betty Boyd, Tony Ivison, Padraig Toner, Fr. Harry Holden, Stuart Burns, Jennifer Rhodes, Caroline Glancy, Edward Mather, Hedley Haigh, Elizabeth Gunns, Bill Cookson and Ann Murray.
+Please pray for all who have died recently, especially Trevor Wilmot, Michael Walter Wood and Yvonne Rayton, and those whose anniversaries occur about this time: Mark Rae, Anne Moscroft Schiaro, Baby Jeannette Hartley, Fr. John Hawkins, Baby Annie Elaine Grounds, Margaret Callaghan, Kathleen Southern and Frederick Lee
 
 ---
 
@@ -104,7 +105,7 @@ CHILDREN’S LITURGY at Sunday Morning Mass!
 
 ## Coffee & Bacon Butties
 
-COFFEE & BACON BUTTIES after 9.15am Mass this week. (You know you want to.)
+COFFEE & BACON BUTTIES after 9.15am Mass this week. (No scones till this afternoon.)
 
 ---
 
@@ -140,15 +141,15 @@ every Thursday after 10am Mass in Church, for this beautiful prayer. All welcome
 
 ## Rotas
 
-Rotas for weekend 11th/12th July
+Rotas for weekend 18th/19th July
 
-Readers Sat 6pm: K/ T Godden Sun. 9.15am: Rosemary Page
+Readers Sat 6pm: Richard Golding Sun. 9.15am: Susan Brown
 
-Meet and Greet Sat 6pm: Sheila and Paul
+Meet and Greet Sat 6pm: P Huskinson and D Warwick
 
-Sun 9.15am: M Cookson and M Reid
+Sun 9.15am: W & E Doyle
 
-9:15am Minister Nikola
+9:15am Minister Dean
 
 ---
 

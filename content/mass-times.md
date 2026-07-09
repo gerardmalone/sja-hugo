@@ -8,42 +8,6 @@ aliases:
 
 ## Feasts and Intentions this week
 
-### Weekend: Fourteenth Sunday in Ordinary Time 'A'
-
-**Saturday 4th**  
-6pm — St. Joseph’s  
-Mass: Martin Amriding
-
-**Sunday 5th**  
-9:15am — St. Joseph’s  
-Mass: People of the Parishes
-10:30am — St. Peter’s  
-Mass: Rosmarie Szollar
-
----
-
-**Monday 6th**  
-9am — St. Peter’s  
-Mass: A Special Intention followed by Exposition and Confessions till 10am
-7pm — St. Joseph’s  
-Vespers and Benediction
-
-**Tuesday 7th**  
-10am — St. Joseph’s  
-Mass: James David Cartmell preceded by Exposition and Confessions till 9:55am
-
-**Wednesday 8th**  
-9am — St. Peter’s  
-Mass: Catherine King
-6pm — St. Peter’s  
-Mass: with our Year 6 Leavers Roseanne and Patrick Scott
-
-**Thursday 9th**  
-10am — St. Joseph’s  
-Mass: Philip Waters
-
----
-
 ### Weekend: Fifteenth Sunday in Ordinary Time 'A'
 
 **Saturday 11th**  
@@ -55,6 +19,40 @@ Mass: Bill Cookson
 Mass: Emmanuel Zammit
 10:30am — St. Peter’s  
 Mass: People of the Parishes
+
+---
+
+**Monday 13th**  
+9am — St. Peter’s  
+Mass: Kathleen Leeming followed by Exposition and Confessions till 10am
+
+**Tuesday 14th**  
+10am — St. Joseph’s  
+Mass: Michael Renwick preceded by Exposition and Confessions till 9:55am
+12:30pm — St. Peter’s  
+Nuptial Mass for Jacob and Tara
+
+**Wednesday 15th**  
+9am — St. Peter’s  
+Mass: with the School Andrew Towler
+
+**Thursday 16th**  
+10am — St. Joseph’s  
+Mass: Joe Waters
+
+---
+
+### Weekend: Sixteenth Sunday in Ordinary Time 'A'
+
+**Saturday 18th**  
+6pm — St. Joseph’s  
+Mass: Frances Brocklesby
+
+**Sunday 19th**  
+9:15am — St. Joseph’s  
+Mass: People of the Parishes
+10:30am — St. Peter’s  
+Mass: Pauline O’Grady
 
 ---
 
