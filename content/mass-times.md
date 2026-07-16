@@ -8,40 +8,6 @@ aliases:
 
 ## Feasts and Intentions this week
 
-### Weekend: Fifteenth Sunday in Ordinary Time 'A'
-
-**Saturday 11th**  
-6pm — St. Joseph’s  
-Mass: Bill Cookson
-
-**Sunday 12th**  
-9:15am — St. Joseph’s  
-Mass: Emmanuel Zammit
-10:30am — St. Peter’s  
-Mass: People of the Parishes
-
----
-
-**Monday 13th**  
-9am — St. Peter’s  
-Mass: Kathleen Leeming followed by Exposition and Confessions till 10am
-
-**Tuesday 14th**  
-10am — St. Joseph’s  
-Mass: Michael Renwick preceded by Exposition and Confessions till 9:55am
-12:30pm — St. Peter’s  
-Nuptial Mass for Jacob and Tara
-
-**Wednesday 15th**  
-9am — St. Peter’s  
-Mass: with the School Andrew Towler
-
-**Thursday 16th**  
-10am — St. Joseph’s  
-Mass: Joe Waters
-
----
-
 ### Weekend: Sixteenth Sunday in Ordinary Time 'A'
 
 **Saturday 18th**  
@@ -50,9 +16,46 @@ Mass: Frances Brocklesby
 
 **Sunday 19th**  
 9:15am — St. Joseph’s  
-Mass: People of the Parishes
+Mass: People of the Parish  
 10:30am — St. Peter’s  
 Mass: Pauline O’Grady
+
+---
+
+**Monday 20th**  
+9am — St. Peter’s  
+Mass: John Goggins followed by Exposition and Confessions till 10am  
+11:30am — Lytham Crematorium Service for Michael Walter Wood
+
+**Tuesday 21st**  
+10am — St. Joseph’s  
+Mass: for Recovery after Operation preceded by Exposition and Confessions till 9:55am  
+6:30pm — St. Peter’s  
+Rosary and Benediction
+
+**Wednesday 22nd**  
+9am — St. Peter’s  
+Mass: Repose of the Soul of Sr. Claire Murphy
+
+**Thursday 23rd**  
+10am — St. Joseph’s  
+Mass: John and Isobel Morrison Birthday Remembrance  
+11:30am — St. Peter’s  
+Funeral Service for Michael May
+
+---
+
+### Weekend: Seventeenth Sunday in Ordinary Time 'A'
+
+**Saturday 25th**  
+6pm — St. Joseph’s  
+Mass: L.S.A. Catenians Members and Families
+
+**Sunday 26th**  
+9:15am — St. Joseph’s  
+Mass: People of the Parish; Niamh Garnett  
+10:30am — St. Peter’s  
+Mass: Jimmy McGettigan
 
 ---
 

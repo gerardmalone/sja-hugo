@@ -2,7 +2,7 @@
 title: "News"
 draft: false
 ---
-## Fifteenth Sunday in Ordinary Time — Sunday 12th July 2026
+## Sixteenth Sunday in Ordinary Time — Sunday 19th July 2026
 
 ## Catholic Voice
 
@@ -10,31 +10,19 @@ Latest copy (July) can be found [by clicking this link](https://issuu.com/cathco
 
 ## Message from Father Peter
 
-As we have our very own jolly Songs of Praise this weekend, followed by a Strawberry Cream Tea in the Hall at SJs, I thought it might be another occasion when the invoking of some Patron saints might be appropriate.
-Saint Dorothy of Caesarea is the Patron Saint of strawberries – well, not just strawberries, but fruit, florists and gardeners in general. She is a virgin martyr from the fourth century, and before her execution sent her headdress to a pagan lawyer who had been mocking her, who found it to be filled with a heavenly scent of fruits. As a Patroness of Gardeners, it is an Italian tradition to bless gardens and trees on her Feast Day of February 6th.
-For the Patron Saint of Cream, and rather Dairy Workers in general, we go to Saint Brigid of Kildare, a fifth century Irish Abbess. There are lots of miracles attributed to her – one of which involves her turning water into beer!
-And when it comes to Tea, we look to Don Justo Takayama Ukon, who was a Japanese Samurai, who converted to Catholicism, and used the ancient Japanese tea ceremonies as a form of Christian prayer. He has been beatified, but as yet has not been canonised - so you could always seek the intercession of St. Drogo, who is Patron saint of Coffee.
-CAFOD provide us with this lovely Grace Before Breaking Bread – perhaps we can say the prayer before we break scones, or any other food and drink, for that matter. Generous God, your Spirit hovered over the waters, you breathed life into the earth and created a world of plenty. Look on us here as we break bread together, and guide us to take only what we need so that all your people may have enough. Father of all, there are many among us who go hungry. Help us to listen and respond as one family, so that, as we break bread together, we may glimpse your Kingdom here on earth -  a Kingdom of welcome and plenty for all. Amen. Incidentally I saw some people building a new bridge near me. Every lunch break they would sit down for afternoon tea complete with tablecloth and napkins. It was very civil engineering. I’ll get my coat – and my napkin.
+Tuesday 21st is the Feast Day of St. Lawrence of Brindisi, and until I was just googling about his life, I never realised that I actually say a prayer of St, Lawrence every single day – without fail. St. Lawrence was one of the very first Capuchin monks, and branch of the Order of St. Francis, from whom due to the colour of their brown robes with a white hood we get the word ‘cappuccino’ for the over-priced coffees we drink these days. He was very academic - it is said that he memorised the whole of Bible in its original languages - and used his learning throughout Europe around the time of the Reformation. He was made a Doctor of the Church in 1959. So what about his prayer? Well, when I was in Rome, after the evening meal, everyone would go into the chapel and sing the Marian Anthem of the Church Season (which I wrote about on a message a few weeks ago), the Salve Regina, and so on, after which the cantor would say: Nos cum prole pia to which we would all reply: benedicat Virgo Maria. It’s a little childlike rhyme, which St. Lawrence would say when he was saying his Marian devotions, which means ‘May the Virgin Mary bless us with her pious offspring’, though it is given an English rhyming translation as: Mary, with Her loving Son, bless us each and every one. I still say it after I’ve said the Marian Anthem at the end of night prayer every night. And yet having said it literally thousands of times, I never knew it came from St. Lawrence. Every day’s a school day! It’s a lovely little prayer, and perhaps along with an Act of Contrition, you might like to make it a part of your nighttime routine; Nos cum prole pia; benedicat Virgo Maria. Incidentally, Someone stole my cappuccino cup from the sacristy today. I’m just off down to the police station now to look at a few mug shots. I’ll get my coat… and my skinny latte…
 
 ---
 
-## SJSP Songs of Praise
+## Songs of Praise and Strawberry Tea
 
-with your favourite hymns chosen by you!
-
-Sunday 12th July at 3pm at SJ’s
-
-Followed by a Strawberry Tea
-
-Tickets for the Strawberry Tea are available after Masses this weekend.
-
-Incidentally regarding the Hymns for our Songs of Praise: Thank you so much to those who have chosen favourite hymns for our Songs of Praise this Sunday at 3pm. Unfortunately, it won’t be possible to include all the hymn choices as there were so many – if we were to sing them all, we would be in church until next Sunday! We will make sure that those not included on Sunday will feature in Masses in the following weeks.
+many thanks to everyone who was involved in last Sunday afternoon’s lovely celebration. It was wonderful to see so many people, and for everyone to enjoy the scones and tea afterwards. Special thanks to all our musicians, organists and singers who led the celebration, and everyone involved in the hall afterwards, not least Eileen for making the scones, and the Ukulele Orchestra for leading the festivities. I think it could become an annual event!
 
 ---
 
-## End of Year School Mass
+## School Holidays
 
-This Wednesday morning at St. Peter’s the whole of St. Peter’s School will be joining us for Mass as we celebrate the end of a wonderful blessed year.
+and so our schools complete another lovely year, and we thank them and bless them for all their ministry with our children. It’s been a joy and a privilege for me to celebrate weekly class masses as well as whole school masses for HolyDays and other festivities. Mrs. Gilli-Ross, our indefatigable Head Teacher writes to us: As another wonderful school year comes to an end, I would like to thank God for the many blessings we have received. Our children have achieved so much and embraced a wealth of enriching experiences, growing not only in their learning but also in faith, confidence, and kindness. We are incredibly proud of each and every one of them. We are truly blessed to have such a dedicated and caring staff team, whose commitment makes our school such a special place. We are also so grateful for the strong relationship we continue to share with our parish, where God's love and His Word are lived out so beautifully. Thank you to everyone for always making us feel so welcome, and a special thank you to Father Peter for his kindness, encouragement, and the genuine care he shows to both our children and staff. We wish our whole parish community a happy, peaceful, and restful summer. And Amen to that!
 
 ---
 
@@ -46,7 +34,7 @@ Fylde Food Bank in partnership with Lytham Rotary Club is collecting good qualit
 
 ## Lytham Catenians President's Mass
 
-On Saturday 25th July, Lytham Catenians will celebrate their annual President's Mass at St Joseph's at 6pm. The Catenians are a Catholic men's social organisation which aims to strengthen family life through friendship and faith. As well as enjoying themselves they also support vocations, charities, and young people financially and developmentally. For further information about the Catenians contact Tony Godden after Mass or email tonygodden@btinternet.com
+Next Saturday 25th July, Lytham Catenians will celebrate their annual President's Mass at St Joseph's at 6pm. The Catenians are a Catholic men's social organisation which aims to strengthen family life through friendship and faith. As well as enjoying themselves they also support vocations, charities, and young people financially and developmentally. For further information about the Catenians contact Tony Godden after Mass or email tonygodden@btinternet.com
 
 ---
 
@@ -62,9 +50,9 @@ Contributions are most welcome, and still most necessary. Please bring stuff to 
 
 ---
 
-## Feast of St Bonaventure
+## Feast of St James
 
-Wednesday 15th July is the Feast of St Bonaventure, who was born near Viterbo, Italy, and became a member of the Friars Minor. He studied in Paris and become known as the Seraphic Doctor. He received his degree with St Thomas Aquinas. He preached with great energy and wrote many books on Catholic doctrine. He was a successor of St Francis and managed to sort out serious disputes within the Franciscan order. Later he was appointed bishop of Albano. He died in 1274 while carrying out his work of helping to effect the reunion between the Greeks and Rome.
+Saturday 25th is the Feast of St. James. James the Greater was the son of Zebedee and brother of St John. He was a Galilean by birth and by trade a fisherman with his father and brother. Jesus referred to the brothers as Boanerges, or 'Sons of Thunder' - possibly because they were fiery and impetuous. With Peter and John he formed the special trio among the Apostles - they witnessed the transfiguration and the agony in the garden. He was the first of the apostles to die for his faith. According to Spanish tradition he visited Spain.
 
 ---
 
@@ -93,7 +81,7 @@ St. Joseph’s Care £128:11 Burkina Faso £165
 
 ## Please Pray
 
-Please pray for all who have died recently, especially Trevor Wilmot, Michael Walter Wood and Yvonne Rayton, and those whose anniversaries occur about this time: Mark Rae, Anne Moscroft Schiaro, Baby Jeannette Hartley, Fr. John Hawkins, Baby Annie Elaine Grounds, Margaret Callaghan, Kathleen Southern and Frederick Lee
+Please pray for all who have died recently, especially Brenda Hue, Jack Gledhill, Michael Walter Wood, Michael May, Margaret Plant, and Yvonne Rayton, and those whose anniversaries occur about this time: Marion shaw, Edward Burke, Sheila Norman and Louise Sykes
 
 ---
 
@@ -105,7 +93,7 @@ CHILDREN’S LITURGY at Sunday Morning Mass!
 
 ## Coffee & Bacon Butties
 
-COFFEE & BACON BUTTIES after 9.15am Mass this week. (No scones till this afternoon.)
+COFFEE & BACON BUTTIES after 9.15am Mass this week. (No scones left from last Sunday?)
 
 ---
 
@@ -141,15 +129,15 @@ every Thursday after 10am Mass in Church, for this beautiful prayer. All welcome
 
 ## Rotas
 
-Rotas for weekend 18th/19th July
+Rotas for weekend 25th/26th July
 
-Readers Sat 6pm: Richard Golding Sun. 9.15am: Susan Brown
+Readers Sat 6pm: Catherine Ralston Sun. 9.15am: Anne Wormleighton
 
-Meet and Greet Sat 6pm: P Huskinson and D Warwick
+Meet and Greet Sat 6pm: Ellie Sullivan and Stephanie Gilluly
 
-Sun 9.15am: W & E Doyle
+Sun 9.15am: P Benning and M Herron
 
-9:15am Minister Dean
+9:15am Minister Catherine
 
 ---
 
