@@ -8,7 +8,7 @@
     {{ if .Description }}
       {{ $description = .Description | plainify }}
     {{ else if .IsPage }}
-      {{ $description = .Summary | plainify }}
+      {{ $description = printf "%s | %s" .Title site.Title }}
     {{ else }}
       {{ $description = "Worship, parish news, bulletins, and community care from St Joseph's Roman Catholic Church in Ansdell." }}
     {{ end }}

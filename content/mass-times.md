@@ -8,64 +8,61 @@ aliases:
 
 ## Feasts and Intentions this week
 
-### Weekend: Sixteenth Sunday in Ordinary Time 'A'
-
-**Saturday 18th**  
-6pm — St. Joseph’s  
-Mass: Frances Brocklesby
-
-**Sunday 19th**  
-9:15am — St. Joseph’s  
-Mass: People of the Parish  
-10:30am — St. Peter’s  
-Mass: Pauline O’Grady
-
----
-
-**Monday 20th**  
-9am — St. Peter’s  
-Mass: John Goggins followed by Exposition and Confessions till 10am  
-11:30am — Lytham Crematorium Service for Michael Walter Wood
-
-**Tuesday 21st**  
-10am — St. Joseph’s  
-Mass: for Recovery after Operation preceded by Exposition and Confessions till 9:55am  
-6:30pm — St. Peter’s  
-Rosary and Benediction
-
-**Wednesday 22nd**  
-9am — St. Peter’s  
-Mass: Repose of the Soul of Sr. Claire Murphy
-
-**Thursday 23rd**  
-10am — St. Joseph’s  
-Mass: John and Isobel Morrison Birthday Remembrance  
-11:30am — St. Peter’s  
-Funeral Service for Michael May
-
----
-
 ### Weekend: Seventeenth Sunday in Ordinary Time 'A'
 
 **Saturday 25th**  
 6pm — St. Joseph’s  
-Mass: L.S.A. Catenians Members and Families
+Mass: L.S.A. Catenians, Members and Families
 
 **Sunday 26th**  
 9:15am — St. Joseph’s  
-Mass: People of the Parish; Niamh Garnett  
+Mass: People of the Parishes and Niamh Garnett  
 10:30am — St. Peter’s  
 Mass: Jimmy McGettigan
 
 ---
 
+**Monday 27th**  
+9am — St. Peter’s  
+Mass: Joan Woodcock  
+10am — Holy Family Warton  
+Requiem Mass for Yvonne Rayton
+
+**Tuesday 28th**  
+10am — St. Joseph’s  
+Mass: Thomas and Nora Johnson preceded by Exposition and Confessions till 9:55am
+
+**Wednesday 29th**  
+9am — St. Peter’s  
+Mass: Nellie and William Holland
+
+**Thursday 30th**  
+11am — St. Joseph’s  
+Requiem Mass for Margaret Plant
+
+---
+
+### Weekend: Eighteenth Sunday in Ordinary Time 'A'
+
+**Saturday 1st**  
+6pm — St. Joseph’s  
+Mass: Pat Ormond
+
+**Sunday 2nd**  
+9:15am — St. Joseph’s  
+Mass: People of the Parishes  
+10:30am — St. Peter’s  
+Mass: In Loving Memory of Norah Shortt
+
+---
+
 ## Sacrament of Reconciliation
 
-Sacrament of Reconciliation with Exposition this week.
-
-Monday 9:30-9:55am at St. Peter’s and Tuesday 9:30-9:50am at St. Joseph’s
+Sacrament of Reconciliation with Exposition this week: Tuesday 9:30-9:50am at St. Joseph’s
 
 Confession is also available by arrangement with Fr. Peter. Tel. 737037
+
+This Sunday’s Readings: We are reminded today that the kingdom of God brings both great joy and eternal life, but first we must seek to obtain it.
 
 ---
 
