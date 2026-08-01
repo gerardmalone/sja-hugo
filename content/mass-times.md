@@ -8,40 +8,6 @@ aliases:
 
 ## Feasts and Intentions this week
 
-### Weekend: Seventeenth Sunday in Ordinary Time 'A'
-
-**Saturday 25th**  
-6pm — St. Joseph’s  
-Mass: L.S.A. Catenians, Members and Families
-
-**Sunday 26th**  
-9:15am — St. Joseph’s  
-Mass: People of the Parishes and Niamh Garnett  
-10:30am — St. Peter’s  
-Mass: Jimmy McGettigan
-
----
-
-**Monday 27th**  
-9am — St. Peter’s  
-Mass: Joan Woodcock  
-10am — Holy Family Warton  
-Requiem Mass for Yvonne Rayton
-
-**Tuesday 28th**  
-10am — St. Joseph’s  
-Mass: Thomas and Nora Johnson preceded by Exposition and Confessions till 9:55am
-
-**Wednesday 29th**  
-9am — St. Peter’s  
-Mass: Nellie and William Holland
-
-**Thursday 30th**  
-11am — St. Joseph’s  
-Requiem Mass for Margaret Plant
-
----
-
 ### Weekend: Eighteenth Sunday in Ordinary Time 'A'
 
 **Saturday 1st**  
@@ -56,13 +22,49 @@ Mass: In Loving Memory of Norah Shortt
 
 ---
 
+**Monday 3rd**  
+9am — St. Peter’s  
+Mass: Recovery from Surgery followed by Exposition and Confessions till 10am
+
+**Tuesday 4th**  
+11am — St. Joseph’s  
+Requiem Mass for Jack Gledhill
+
+**Wednesday 5th**  
+10am — Saltcotes  
+Mass: 50th Birthday Ints. Dan and Anya
+
+**Thursday 6th**  
+10am — St. Joseph’s  
+Mass: Gwen and Bayne Spedding Hobbs
+
+**Friday 7th**  
+2pm — St. Joseph’s  
+Mass and Anointing of the Sick: Mark William Pollard B’day Remembrance
+
+---
+
+### Weekend: Nineteenth Sunday in Ordinary Time 'A'
+
+**Saturday 8th**  
+6pm — St. Joseph’s  
+Mass: Alan Hesketh
+
+**Sunday 9th**  
+9:15am — St. Joseph’s  
+Mass: People of the Parishes  
+10:30am — St. Peter’s  
+Mass: Sister Julian Breakell
+
+---
+
 ## Sacrament of Reconciliation
 
-Sacrament of Reconciliation with Exposition this week: Tuesday 9:30-9:50am at St. Joseph’s
+Sacrament of Reconciliation with Exposition this week.
+
+Monday 9:30-9:55am at St. Peter’s and Tuesday 9:30-9:50am at St. Joseph’s
 
 Confession is also available by arrangement with Fr. Peter. Tel. 737037
-
-This Sunday’s Readings: We are reminded today that the kingdom of God brings both great joy and eternal life, but first we must seek to obtain it.
 
 ---
 
