@@ -2,27 +2,15 @@
 title: "News"
 draft: false
 ---
-## Eighteenth Sunday in Ordinary Time — Sunday 2nd August 2026
+## Nineteenth Sunday in Ordinary Time — Sunday 9th August 2026
 
 ## Catholic Voice
 
 Latest copy (July) can be found [by clicking this link](https://issuu.com/cathcom/docs/lancaster_voice_july_2026).
 
-## Message from Father Peter
+## Message from Deacon Michael
 
-This Friday we celebrate the Diocesan Feast of the Lancaster Martyrs, fourteen martyrs who were actually martyred at Lancaster on the hill above the Cathedral including St. Edmond Arrowsmith SJ, St. Ambrose Barlow OSB, Blessed James Bell, John Finch, Richard Hayhurst, Robert Nutter OP, Edward Thwing, Thursaton Hunt, Robert Middleton SJ, John Thules, Roger Wrenno, Edward Bamber, John Woodcock OFM, and Thomas Whittaker. The last three were the last group of Lancaster Martyrs, murdered on 7th August 1646. I guess the most local to us (though Geography is not my strong point) would be Blessed Edward Bamber, who was born just up the road in Carleton, near the Crematorium. He was a seminarian in St. Omer, France, and at the English College of St. Gregory in Seville, Spain, where he was ordained a priest in 1626. Upon returning to England, disembarking in the port of Plymouth, he was stopped and incarcerated, but immediately released. For sixteen years he served the Catholic Mission, mainly in Lancashire. Imprisoned again between 1643 and 1646, he lay three years in prison before his trial, in which two devious anti-Catholics swore that they had seen him baptise and marry, which was considered sufficient proof of his priesthood. On 7th August 1646, Edward Bamber and two other priests were executed in Lancaster.  Edward was the first to suffer, and at his execution he threw a handful of money into the crowd and reconciled a man condemned for the murder of his brother, giving him absolution on the gallows, before being hung, drawn and quartered. A very gruesome end for our very own local saint.  We pray that our witness to Christ may be strong and faithful, and pray for vocations to the priesthood and active laity, in the footsteps of our martyrs.  Almighty Father, mindful of the cheerfulness and courage with which our martyrs faced a barbarous death, may those who died on the hill above Lancaster, justified in the court of conscience, grieving for England which they prayer God soon to convert, be our patrons now in heaven that our lives may witness to the faith they professed. Through Christ Our Lord.
-
----
-
-## First Week of the Month at SJSP’s
-
-Please join us for these wonderful liturgies!
-
-- Wednesday 5th August: Mass at Saltcotes Cemetery Chapel at 10am.
-
-- Friday 7th August: First Friday Mass & Anointing of the Sick at St. Joseph’s at 2pm, followed by Refreshments in the Parish Hall.
-
-First Monday and Third Wednesday Benediction will return in September
+On Monday of this week, we keep the feast of St Lawrence, a patron saint of deacons. Lawrence was born in AD 225, in Huesca, in the region of Spain later known as Aragon. He met the future Pope Sixtus II, in Caesaraugusta (Zaragoza ) and they travelled together to Rome. When Sixtus became pope in AD 257 he ordained Lawrence as a deacon and later appointed him as Archdeacon of Rome. This was a position of great trust which included the care of the treasury and riches of the church and the distribution of alms to the poor. At the beginning of August AD 258, the Emperor Valerian issued an edict that all bishops, priests and deacons should immediately be put to death. Pope Sixtus II was captured whilst saying Mass on 6th August and was executed. After the death of Sixtus, the prefect of Rome demanded that Lawence hand over the riches of the church and St Ambrose of Milan relates that Lawrence asked for three days in which to gather together the wealth. In those three days he actually worked swiftly to distribute as much Church property as he could to the poor and needy. On the third day when ordered to deliver the treasures of the Church, he brought forward the poor, the crippled, the blind and the suffering and declared that ‘these were the true treasures of the Church’. The prefect was so angry that he had a gridiron prepared with hot coals beneath it and had Lawrence placed on it to roast him to death. This cruel martyrdom of St Lawrence has been famously depicted by many artists over the centuries including Rubens, Titian and Veronese. St Lawrence, deacon and model of charity, you dedicated your life to serving the poor and needy, recognising in each person the sacred presence of God. Inspire us to follow your example to see Christ in our most vulnerable brothers and sisters and to respond with a generous heart to the needs of those who suffer. May your example inspire us to be devoted disciples, ready to give of ourselves for the good of others, and to bear witness to the Gospel through our actions. St Lawrence, beloved of Heaven, we entrust our prayers and intentions to you. Amen.
 
 ---
 
@@ -56,6 +44,12 @@ the collection continues and envelopes are available at the back of Church.
 
 ---
 
+## Feast of the Assumption of the Blessed Virgin Mary
+
+Next Sunday is the Feast of the Assumption of the Blessed Virgin Mary, transferred from the Saturday 15th.
+
+---
+
 ## Family Barbecue
 
 In the grounds of SJs.
@@ -83,17 +77,17 @@ Up and Coming Social Events for our Two Parishes
 
 ## Collection Count
 
-for June: with grateful thanks
+for July: with grateful thanks
 
-Gift Aid £342 Non Gift Aid £1272:07 SO £2973
+Gift Aid £529:80 Non Gift Aid £2279:45 SO £3098
 
-St. Joseph’s Care £310:02 Burkina Faso £595
+St. Joseph’s Care £386:31 Burkina Faso £250
 
 ---
 
 ## Please Pray
 
-Please pray for all who have died recently, especially Jack Gledhill, and those whose anniversaries occur about this time: Teresa Crilly, Joseph Stricktland, Jessie Mc Dermott, Alan Morris, Brid, Jose, Teresa Bialecki, Joseph Ainsworth, Eileen Mary Ayres, Alan Hesketh, Kathleen Donellan.
+Please pray for all who have died recently, especially Samantha Cornall-Saunders, Hilary Plum, and Robert James Tierney, and those whose anniversaries occur about this time: Sheila Burdett, Valerie Robinson, Joyce Clarke, Ann Teresa Keighley, Bobby Kelly, John Nolan, Robert Worthington, Steven Challiner and Elizabeth Flannagan.
 
 ---
 
@@ -105,7 +99,7 @@ CHILDREN’S LITURGY at Sunday Morning Mass!
 
 ## Coffee & Bacon Butties
 
-COFFEE & BACON BUTTIES after 9.15am Mass this week. (The extraordinary from the ordinary.)
+COFFEE & BACON BUTTIES after 9.15am Mass this week. (Gets you out of any difficulties.)
 
 ---
 
@@ -141,15 +135,15 @@ every Thursday after 10am Mass in Church, for this beautiful prayer. All welcome
 
 ## Rotas
 
-Rotas for weekend 8th /9th August
+Rotas for weekend 15th /16th August
 
-Readers Sat 6pm: Edwina Gillett Sun. 9.15am: Maria Hall
+Readers Sat 6pm: Stephanie Gilully Sun. 9.15am: Rosemary Page
 
-Meet and Greet Sat 6pm: C Williams and M Taylor
+Meet and Greet Sat 6pm: O& J Baker
 
-Sun 9.15am: W and E Doyle
+Sun 9.15am: T Cookson and M Golightly
 
-9:15am Minister Susan
+9:15am Minister Jake
 
 ---
 

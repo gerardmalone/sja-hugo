@@ -8,42 +8,6 @@ aliases:
 
 ## Feasts and Intentions this week
 
-### Weekend: Eighteenth Sunday in Ordinary Time 'A'
-
-**Saturday 1st**  
-6pm — St. Joseph’s  
-Mass: Pat Ormond
-
-**Sunday 2nd**  
-9:15am — St. Joseph’s  
-Mass: People of the Parishes  
-10:30am — St. Peter’s  
-Mass: In Loving Memory of Norah Shortt
-
----
-
-**Monday 3rd**  
-9am — St. Peter’s  
-Mass: Recovery from Surgery followed by Exposition and Confessions till 10am
-
-**Tuesday 4th**  
-11am — St. Joseph’s  
-Requiem Mass for Jack Gledhill
-
-**Wednesday 5th**  
-10am — Saltcotes  
-Mass: 50th Birthday Ints. Dan and Anya
-
-**Thursday 6th**  
-10am — St. Joseph’s  
-Mass: Gwen and Bayne Spedding Hobbs
-
-**Friday 7th**  
-2pm — St. Joseph’s  
-Mass and Anointing of the Sick: Mark William Pollard B’day Remembrance
-
----
-
 ### Weekend: Nineteenth Sunday in Ordinary Time 'A'
 
 **Saturday 8th**  
@@ -55,6 +19,39 @@ Mass: Alan Hesketh
 Mass: People of the Parishes  
 10:30am — St. Peter’s  
 Mass: Sister Julian Breakell
+
+---
+
+**Monday 10th**  
+9am — St. Peter’s  
+Mass: Mary Josephine Buckley followed by Exposition and Confessions till 10am
+
+**Tuesday 11th**  
+10am — St. Joseph’s  
+Mass: John Nolan preceded by Exposition and Confessions till 9:55am
+
+**Wednesday 12th**  
+9am — St. Peter’s  
+Mass: Francis (Frankie) Spedding Hobbs  
+2pm — Lytham Crematorium Service for Robert James Tierney
+
+**Thursday 13th**  
+10am — St. Joseph’s  
+Mass: Christina Garnett
+
+---
+
+### Weekend: The Assumption of the Blessed Virgin Mary
+
+**Saturday 15th**  
+6pm — St. Joseph’s  
+Mass: Harry Whitehead
+
+**Sunday 16th**  
+9:15am — St. Joseph’s  
+Mass: Barbara Delaney  
+10:30am — St. Peter’s  
+Mass: People of the Parishes
 
 ---
 
