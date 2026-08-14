@@ -2,15 +2,29 @@
 title: "News"
 draft: false
 ---
-## Nineteenth Sunday in Ordinary Time — Sunday 9th August 2026
+## The Assumption of the Blessed Virgin Mary — Sunday 16th August 2026
 
 ## Catholic Voice
 
 Latest copy (July) can be found [by clicking this link](https://issuu.com/cathcom/docs/lancaster_voice_july_2026).
 
-## Message from Deacon Michael
+## Message from Father Peter
 
-On Monday of this week, we keep the feast of St Lawrence, a patron saint of deacons. Lawrence was born in AD 225, in Huesca, in the region of Spain later known as Aragon. He met the future Pope Sixtus II, in Caesaraugusta (Zaragoza ) and they travelled together to Rome. When Sixtus became pope in AD 257 he ordained Lawrence as a deacon and later appointed him as Archdeacon of Rome. This was a position of great trust which included the care of the treasury and riches of the church and the distribution of alms to the poor. At the beginning of August AD 258, the Emperor Valerian issued an edict that all bishops, priests and deacons should immediately be put to death. Pope Sixtus II was captured whilst saying Mass on 6th August and was executed. After the death of Sixtus, the prefect of Rome demanded that Lawence hand over the riches of the church and St Ambrose of Milan relates that Lawrence asked for three days in which to gather together the wealth. In those three days he actually worked swiftly to distribute as much Church property as he could to the poor and needy. On the third day when ordered to deliver the treasures of the Church, he brought forward the poor, the crippled, the blind and the suffering and declared that ‘these were the true treasures of the Church’. The prefect was so angry that he had a gridiron prepared with hot coals beneath it and had Lawrence placed on it to roast him to death. This cruel martyrdom of St Lawrence has been famously depicted by many artists over the centuries including Rubens, Titian and Veronese. St Lawrence, deacon and model of charity, you dedicated your life to serving the poor and needy, recognising in each person the sacred presence of God. Inspire us to follow your example to see Christ in our most vulnerable brothers and sisters and to respond with a generous heart to the needs of those who suffer. May your example inspire us to be devoted disciples, ready to give of ourselves for the good of others, and to bear witness to the Gospel through our actions. St Lawrence, beloved of Heaven, we entrust our prayers and intentions to you. Amen.
+This Sunday’s first reading from the Book of Apocalypse is one that people tend to remember from today’s Feast of the Assumption of the Blessed Virgin Mary, which, if it were not on a Sunday would be a HolyDay of Obligation, with its mentions of a Red Dragon with Seven Heads and so on. St. John wrote the Book of Apocalypse or Revelation because God commissioned him to ‘write the things which you have seen, and the things which are, and the things which will take place after this’ (1:19). Despite a simple premise Apocalypse is one of the hardest and most complicated - and possibly controversial - books of the New Testament. It’s full of elegant poetry and dramatic imagery, which has been open to different interpretations through the ages. But however it is interpreted, and whether it refers to past, present at the time of its writing, or future events, it does make clear that the sacrificial death of Christ on the cross has brought our redemption, and whatever we are facing, or whatever we might have to face, Christ is with us, and this is made clear in its descriptions of the End of Time, where Christ is triumphant over all his enemies, and a new Heaven and Earth replaces the old order. Today’s reading symbolically speaks of Mary and the History of Israel - the twelve stars representing the Twelve Old Testament Tribes - with Christ being born, and various attempts to destroy Him and his followers (the dragon with seven heads). We have time in the wilderness, but we are assured of God’s protection - and the last line celebrates the salvation, the Kingdom and the authority of Christ. As St. John writes in this final and latest book of the New Testament, Worthy is the Lamb, who was slain, to receive power and wealth and wisdom and strength and honour and glory and praise. To Him who sits on the throne and to the Lamb be praise and honour and glory and power for ever and ever. Amen.
+
+---
+
+## Feast of the Assumption
+
+God our Father, by bringing Mary, body and soul, to heavenly glory, you give us new hope. May we never doubt that you will hear and answer our prayers. We ask this through Christ our Lord.
+
+---
+
+## CTEW Parish Levy
+
+Over the last three weeks of August there will be a retiring collection to raise our Catholic trust of England and Wales National Levey which each parish has to pay. The levy for St. Joseph’s is £1300:71. Your generosity would be much appreciated.
+
+The Catholic Trust for England and Wales (CaTEW) is a registered charity and is the legal entity for the Catholic Bishops' Conference of England and Wales (CBCEW). It supports the legal, financial and charitable activities of the Bishops’ Conference, its departments, agencies and offices. It provides guidance and support at local level as well as advancement and direction of national policy. Fuller information on the work of CaTEW is contained in their annual trustees’ report and financial accounts, which can be viewed (and downloaded) at the Charity Commission Website www.charitycommission.gov.uk. Details of the work of the Bishops’ Conference can be found at their website www.cbcew.org.uk
 
 ---
 
@@ -22,7 +36,7 @@ Fr. Philip will be on pilgrimage in Lourdes in September and is willing to take 
 
 ## August Collection for School Stuff to help children
 
-For the past three years each August we have had a box at the back of the Church for ‘school stuff’ which can be passed on to our schools for children and families that need a little help in the new school year, and it is always gratefully received. This year we’d ask especially for Scientific Calculators, Geometry Sets and ‘Filled’ Pencil Cases. All donations gratefully accepted, and boxes are at the back of Church. Many thanks in anticipation.
+For the past three years each August we have had a box at the back of the Church for ‘school stuff’ which can be passed on to our schools for children and families that need a little help in the new school year, and it is always gratefully received. This year we’d ask especially for ‘Filled’ Pencil Cases for our younger children, and Scientific Calculators, and Geometry Sets. All donations gratefully accepted, and boxes are at the back of Church. Many thanks in anticipation.
 
 ---
 
@@ -44,9 +58,9 @@ the collection continues and envelopes are available at the back of Church.
 
 ---
 
-## Feast of the Assumption of the Blessed Virgin Mary
+## CAFOD school volunteers needed!
 
-Next Sunday is the Feast of the Assumption of the Blessed Virgin Mary, transferred from the Saturday 15th.
+Could you visit your local Catholic school to talk about the work of CAFOD? We are looking for volunteers to deliver school assemblies and workshops and inspire children and young people to make a difference and take action. For further information please contact Anna Letizia using the number in this week's [bulletin](/bulletins/) or email aletizia@cafod.org.uk
 
 ---
 
@@ -62,12 +76,18 @@ Tickets available after Masses
 
 ---
 
+## Preston Concert Band
+
+At St. Peters on Saturday 19th September
+
+Tickets are now on sale after mass for an evening of entertaining music and fun accompanied by a glass of prosecco. £10 per ticket.
+
+---
+
 ## Save the Date(s)!
 
 Up and Coming Social Events for our Two Parishes
 
-- Family BBQ: Sunday 6th September in SJ’s Grounds
-- Preston band Concert: Saturday 19th September at 7:30pm at SP’s
 - Race Night: Saturday 3rd October at 7:430pm at SJ’s
 - Sunday Lunch at the Bedford: Sunday 1st November
 - Christmas Fair: Sunday 6th December at SP’s
@@ -87,7 +107,7 @@ St. Joseph’s Care £386:31 Burkina Faso £250
 
 ## Please Pray
 
-Please pray for all who have died recently, especially Samantha Cornall-Saunders, Hilary Plum, and Robert James Tierney, and those whose anniversaries occur about this time: Sheila Burdett, Valerie Robinson, Joyce Clarke, Ann Teresa Keighley, Bobby Kelly, John Nolan, Robert Worthington, Steven Challiner and Elizabeth Flannagan.
+Please pray for all who have died recently, especially Hilary Plum, and those whose anniversaries occur about this time: Jasna Dajic, John Scally, Barbara Delaney, Colin Butterworth, Patricia Reed and Annabel Evans.
 
 ---
 
@@ -99,7 +119,7 @@ CHILDREN’S LITURGY at Sunday Morning Mass!
 
 ## Coffee & Bacon Butties
 
-COFFEE & BACON BUTTIES after 9.15am Mass this week. (Gets you out of any difficulties.)
+COFFEE & BACON BUTTIES after 9.15am Mass this week. (Better than All Bran. Seriously.)
 
 ---
 
@@ -135,15 +155,15 @@ every Thursday after 10am Mass in Church, for this beautiful prayer. All welcome
 
 ## Rotas
 
-Rotas for weekend 15th /16th August
+Rotas for weekend 22nd /23rd August
 
-Readers Sat 6pm: Stephanie Gilully Sun. 9.15am: Rosemary Page
+Readers Sat 6pm: Ellie Sullian Sun. 9.15am: Maria Hall
 
-Meet and Greet Sat 6pm: O& J Baker
+Meet and Greet Sat 6pm: P Huskinson and D Warwick
 
-Sun 9.15am: T Cookson and M Golightly
+Sun 9.15am: M Cookson and M Reid
 
-9:15am Minister Jake
+9:15am Minister Nikola
 
 ---
 

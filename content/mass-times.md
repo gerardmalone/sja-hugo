@@ -8,39 +8,6 @@ aliases:
 
 ## Feasts and Intentions this week
 
-### Weekend: Nineteenth Sunday in Ordinary Time 'A'
-
-**Saturday 8th**  
-6pm — St. Joseph’s  
-Mass: Alan Hesketh
-
-**Sunday 9th**  
-9:15am — St. Joseph’s  
-Mass: People of the Parishes  
-10:30am — St. Peter’s  
-Mass: Sister Julian Breakell
-
----
-
-**Monday 10th**  
-9am — St. Peter’s  
-Mass: Mary Josephine Buckley followed by Exposition and Confessions till 10am
-
-**Tuesday 11th**  
-10am — St. Joseph’s  
-Mass: John Nolan preceded by Exposition and Confessions till 9:55am
-
-**Wednesday 12th**  
-9am — St. Peter’s  
-Mass: Francis (Frankie) Spedding Hobbs  
-2pm — Lytham Crematorium Service for Robert James Tierney
-
-**Thursday 13th**  
-10am — St. Joseph’s  
-Mass: Christina Garnett
-
----
-
 ### Weekend: The Assumption of the Blessed Virgin Mary
 
 **Saturday 15th**  
@@ -52,6 +19,39 @@ Mass: Harry Whitehead
 Mass: Barbara Delaney  
 10:30am — St. Peter’s  
 Mass: People of the Parishes
+
+---
+
+**Monday 17th**  
+9am — St. Peter’s  
+Mass: Special Intentions (Dave S) followed by Exposition and Confessions till 10am
+
+**Tuesday 18th**  
+10am — St. Joseph’s  
+Mass: Repose of the Soul of Fr. Galvin preceded by Exposition and Confessions till 9:55am
+
+**Wednesday 19th**  
+9am — St. Peter’s  
+Mass: Repose of the soul of Mary Gallagher
+
+**Thursday 20th**  
+10am — St. Joseph’s  
+Mass: Margaret Plant  
+1:15pm — Lytham Crematorium Service for Hilary Plum
+
+---
+
+### Weekend: Twenty-First Sunday in Ordinary Time 'A'
+
+**Saturday 22nd**  
+6pm — St. Joseph’s  
+Mass: People of the Parishes
+
+**Sunday 23rd**  
+9:15am — St. Joseph’s  
+Mass: John Andrew Murray  
+10:30am — St. Peter’s  
+Mass: Stephen and His Family
 
 ---
 
