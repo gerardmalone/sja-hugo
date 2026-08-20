@@ -8,39 +8,6 @@ aliases:
 
 ## Feasts and Intentions this week
 
-### Weekend: The Assumption of the Blessed Virgin Mary
-
-**Saturday 15th**  
-6pm — St. Joseph’s  
-Mass: Harry Whitehead
-
-**Sunday 16th**  
-9:15am — St. Joseph’s  
-Mass: Barbara Delaney  
-10:30am — St. Peter’s  
-Mass: People of the Parishes
-
----
-
-**Monday 17th**  
-9am — St. Peter’s  
-Mass: Special Intentions (Dave S) followed by Exposition and Confessions till 10am
-
-**Tuesday 18th**  
-10am — St. Joseph’s  
-Mass: Repose of the Soul of Fr. Galvin preceded by Exposition and Confessions till 9:55am
-
-**Wednesday 19th**  
-9am — St. Peter’s  
-Mass: Repose of the soul of Mary Gallagher
-
-**Thursday 20th**  
-10am — St. Joseph’s  
-Mass: Margaret Plant  
-1:15pm — Lytham Crematorium Service for Hilary Plum
-
----
-
 ### Weekend: Twenty-First Sunday in Ordinary Time 'A'
 
 **Saturday 22nd**  
@@ -55,11 +22,44 @@ Mass: Stephen and His Family
 
 ---
 
+**Monday 24th**  
+9am — St. Peter’s  
+Mass: John Szulc followed by Exposition and Confessions till 10am
+
+**Tuesday 25th**  
+11am — St. Joseph’s  
+Requiem Mass for Patricia Earnshaw / In thanksgiving after an operation
+
+**Wednesday 26th**  
+9am — St. Peter’s  
+Mass: In Thanksgiving
+
+**Thursday 27th**  
+10am — St. Joseph’s  
+Mass: Nigel Ogden  
+1:15pm — Carleton Crematorium Service for Samantha Cornall-Saunders
+
+---
+
+### Weekend: Twenty-Second Sunday in Ordinary Time 'A'
+
+**Saturday 29th**  
+6pm — St. Joseph’s  
+Mass: David and Leesa Baxendale / People of the Parishes
+
+**Sunday 30th**  
+9:15am — St. Joseph’s  
+Mass: Tony and Damian Crean  
+10:30am — St. Peter’s  
+Mass: Deceased Family and Friends of Smeed Family
+
+---
+
 ## Sacrament of Reconciliation
 
 Sacrament of Reconciliation with Exposition this week.
 
-Monday 9:30-9:55am at St. Peter’s and Tuesday 9:30-9:50am at St. Joseph’s
+Monday 9:30-9:55am at St. Peter’s
 
 Confession is also available by arrangement with Fr. Peter. Tel. 737037
 

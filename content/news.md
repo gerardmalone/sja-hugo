@@ -2,7 +2,7 @@
 title: "News"
 draft: false
 ---
-## The Assumption of the Blessed Virgin Mary — Sunday 16th August 2026
+## Twenty-First Sunday in Ordinary Time — Sunday 23rd August 2026
 
 ## Catholic Voice
 
@@ -10,21 +10,13 @@ Latest copy (July) can be found [by clicking this link](https://issuu.com/cathco
 
 ## Message from Father Peter
 
-This Sunday’s first reading from the Book of Apocalypse is one that people tend to remember from today’s Feast of the Assumption of the Blessed Virgin Mary, which, if it were not on a Sunday would be a HolyDay of Obligation, with its mentions of a Red Dragon with Seven Heads and so on. St. John wrote the Book of Apocalypse or Revelation because God commissioned him to ‘write the things which you have seen, and the things which are, and the things which will take place after this’ (1:19). Despite a simple premise Apocalypse is one of the hardest and most complicated - and possibly controversial - books of the New Testament. It’s full of elegant poetry and dramatic imagery, which has been open to different interpretations through the ages. But however it is interpreted, and whether it refers to past, present at the time of its writing, or future events, it does make clear that the sacrificial death of Christ on the cross has brought our redemption, and whatever we are facing, or whatever we might have to face, Christ is with us, and this is made clear in its descriptions of the End of Time, where Christ is triumphant over all his enemies, and a new Heaven and Earth replaces the old order. Today’s reading symbolically speaks of Mary and the History of Israel - the twelve stars representing the Twelve Old Testament Tribes - with Christ being born, and various attempts to destroy Him and his followers (the dragon with seven heads). We have time in the wilderness, but we are assured of God’s protection - and the last line celebrates the salvation, the Kingdom and the authority of Christ. As St. John writes in this final and latest book of the New Testament, Worthy is the Lamb, who was slain, to receive power and wealth and wisdom and strength and honour and glory and praise. To Him who sits on the throne and to the Lamb be praise and honour and glory and power for ever and ever. Amen.
+In today’s Gospel the Apostles Simon is given the new name Peter, which of course comes from the Greek meaning ‘rock’, and we are told ‘upon this rock I will build my church’. But while none of the other Apostles are actually renamed by Christ - other than Saul who becomes Paul and considered himself to be an Apostle - the other Apostles all have interesting names which derive from Hebrew, or Greek, and in some cases Aramaic, the language which would Have been most regularly used by Jesus. James, the Son of Zebedee is really ‘Jacob’, from the Old Testament Patriarch, whose name means ‘supplanter’ or ‘one who cheats’, which goes back to his origin story in Genesis; his brother’s John name means ‘God given’ or ‘grace’. (Incidentally, their Dad’s name, Zebedee, means ‘gift’). Andrew comes from the Greek meaning ‘courageous’. Philip means ‘one who likes horses’, which is very nice, and as he is Patron Saint of Cars and Drivers gives extra meaning to ‘horsepower’. Sort of… Anyway, Bartholomew means Son of a Ploughman’ - the Jewish prefix ‘Bart’ means ‘son of’ (like the O’ in Irish or the Mac in Scottish). Thomas, as referred to in the Gospel, is the Aramaic for Twin, which is where he sometimes gates the name ‘Didymus’, which is the Greek for twin. Matthew - and Matthias who replaced Judas - means ‘Gift of God’, and then we have another James, this time the Son of Alphaeus. Jude, means ‘Praise Yahweh’, and his surname, which distinguishes him from Judas Iscariot, Thaddeus, is one of a number of names, like Theodore which speak of a close relationship with God. Simon means ‘one who hears’ which is appropriate for the Simon who was renamed Peter, but also Simon the Zealot. There was a political party at the time of Jesus known as the ‘Zealots’, but his nickname might have just meant he was a very zealous, enthusiastic forthright character. Finally, Judas, ‘Praise God’ like Jude, with Iscariot meaning coming from town of Kerioth. All our names have meaning, but perhaps the most important name we all receive at our Baptism is that of Christ when we become Christians. May the most holy, most sacred, most adorable, most incomprehensible, and unutterable Name of God be always praised, blessed, loved, adored, and glorified in Heaven, on Earth, and under the Earth, by all the creatures of God, and by the Sacred Heart of Our Lord Jesus Christ, in the Most Holy Sacrament of the Altar. Amen.
 
 ---
 
-## Feast of the Assumption
+## Student for the Priesthood
 
-God our Father, by bringing Mary, body and soul, to heavenly glory, you give us new hope. May we never doubt that you will hear and answer our prayers. We ask this through Christ our Lord.
-
----
-
-## CTEW Parish Levy
-
-Over the last three weeks of August there will be a retiring collection to raise our Catholic trust of England and Wales National Levey which each parish has to pay. The levy for St. Joseph’s is £1300:71. Your generosity would be much appreciated.
-
-The Catholic Trust for England and Wales (CaTEW) is a registered charity and is the legal entity for the Catholic Bishops' Conference of England and Wales (CBCEW). It supports the legal, financial and charitable activities of the Bishops’ Conference, its departments, agencies and offices. It provides guidance and support at local level as well as advancement and direction of national policy. Fuller information on the work of CaTEW is contained in their annual trustees’ report and financial accounts, which can be viewed (and downloaded) at the Charity Commission Website www.charitycommission.gov.uk. Details of the work of the Bishops’ Conference can be found at their website www.cbcew.org.uk
+on Monday we are pleased to welcome Harry Rawcliffe, a student for the priesthood who will be joining our Parishes for a few weeks before continuing his training after the Holidays. You will be seeing him pottering around the Parishes. Please pray for Harry and all our Seminarians on their journey to discovering God’s vocation for them.
 
 ---
 
@@ -36,13 +28,7 @@ Fr. Philip will be on pilgrimage in Lourdes in September and is willing to take 
 
 ## August Collection for School Stuff to help children
 
-For the past three years each August we have had a box at the back of the Church for ‘school stuff’ which can be passed on to our schools for children and families that need a little help in the new school year, and it is always gratefully received. This year we’d ask especially for ‘Filled’ Pencil Cases for our younger children, and Scientific Calculators, and Geometry Sets. All donations gratefully accepted, and boxes are at the back of Church. Many thanks in anticipation.
-
----
-
-## School Uniforms Needed During August
-
-Fylde Food Bank in partnership with Lytham Rotary Club is collecting good quality, clean school uniforms for secondary and primary schools. There is a big box at the back of church for contributions. Thank you for your support.
+This year we’d ask especially for Scientific Calculators, Geometry Sets and ‘Filled’ Pencil Cases. All donations gratefully accepted, and boxes are at the back of Church. Many thanks in anticipation.
 
 ---
 
@@ -64,21 +50,31 @@ Could you visit your local Catholic school to talk about the work of CAFOD? We a
 
 ---
 
+## House for Families with Albino Sufferers
+
+you’ll remember that Lent 2025 we collected enough money to buy three houses for Malawi: a report on the houses is on the noticeboard. Continued blessings for everyone who supported the funding.
+
+---
+
+## A Prayer to St. Monica
+
+one of the Patron Saints of Mothers, whose Feast Day is on Thursday. Blessed Monica, mother of St. Augustine, we give thanks to our Father in Heaven Who looked with mercy upon your tears over your wayward son. His conversion and heroic sanctification were the fruit of your prayers. Dear St. Monica we now ask you to pray with us for all those sons and daughters that have wandered away from God, and to add your prayers to those of all mothers who are worried over their children. Pray also for us that, following your example, we may, in the company of our children, one day enjoy the eternal vision of our Father in Heaven. Amen.
+
+---
+
 ## Family Barbecue
 
 In the grounds of SJs.
 
 12noon on the 6th September
 
-£6 for adults, £3 for children. Music and Entertainment for all!
-
-Tickets available after Masses
+£6 for adults, £3 for children. Music and Entertainment for all! Tickets available after Masses
 
 ---
 
 ## Preston Concert Band
 
-At St. Peters on Saturday 19th September
+At St. Peters on Saturday 19th September at 7:30pm
 
 Tickets are now on sale after mass for an evening of entertaining music and fun accompanied by a glass of prosecco. £10 per ticket.
 
@@ -107,7 +103,7 @@ St. Joseph’s Care £386:31 Burkina Faso £250
 
 ## Please Pray
 
-Please pray for all who have died recently, especially Hilary Plum, and those whose anniversaries occur about this time: Jasna Dajic, John Scally, Barbara Delaney, Colin Butterworth, Patricia Reed and Annabel Evans.
+Please pray for all who have died recently, especially Fr. Val Farrell, Samantha Cornall-Saunders and Patricia Earnshaw, and those whose anniversaries occur about this time: Patrick Carragher, Tony Crean, Michael Joseph Meyler and Jack Dempsey Pickles.
 
 ---
 
@@ -119,7 +115,7 @@ CHILDREN’S LITURGY at Sunday Morning Mass!
 
 ## Coffee & Bacon Butties
 
-COFFEE & BACON BUTTIES after 9.15am Mass this week. (Better than All Bran. Seriously.)
+COFFEE & BACON BUTTIES after 9.15am Mass this week. (Well Coffee. And Tea. And Toast.)
 
 ---
 
@@ -155,15 +151,15 @@ every Thursday after 10am Mass in Church, for this beautiful prayer. All welcome
 
 ## Rotas
 
-Rotas for weekend 22nd /23rd August
+Rotas for weekend 29th /30th August
 
-Readers Sat 6pm: Ellie Sullian Sun. 9.15am: Maria Hall
+Readers Sat 6pm: David Warwick Sun. 9.15am: Susan Brown
 
-Meet and Greet Sat 6pm: P Huskinson and D Warwick
+Meet and Greet Sat 6pm: Ellie Sullivan and Stephanie Gilluly
 
-Sun 9.15am: M Cookson and M Reid
+Sun 9.15am: W & E Doyle
 
-9:15am Minister Nikola
+9:15am Minister Dean
 
 ---
 
