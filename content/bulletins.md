@@ -13,6 +13,9 @@ Please note that if you send information for the weekly bulletin via e-mail ([sj
 
 All bulletin queries should be directed to **Fr. Peter**. If there is a limited amount of space, notices may have to be abbreviated. Wherever possible a notice will be published in full. Notices can only be included up to a maximum of **3 weeks**.
 
+**Twenty-Second Sunday in Ordinary Time**  
+[30th August 2026](/bulletins/Bulletin300826.pdf)  
+
 **Twenty-First Sunday in Ordinary Time**  
 [23rd August 2026](/bulletins/Bulletin230826.pdf)  
 
@@ -24,6 +27,3 @@ All bulletin queries should be directed to **Fr. Peter**. If there is a limited 
 
 **Eighteenth Sunday in Ordinary Time**  
 [2nd August 2026](/bulletins/Bulletin020826.pdf)  
-
-**Seventeenth Sunday in Ordinary Time**  
-[26th July 2026](/bulletins/Bulletin260726.pdf)  

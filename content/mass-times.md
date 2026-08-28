@@ -8,39 +8,6 @@ aliases:
 
 ## Feasts and Intentions this week
 
-### Weekend: Twenty-First Sunday in Ordinary Time 'A'
-
-**Saturday 22nd**  
-6pm — St. Joseph’s  
-Mass: People of the Parishes
-
-**Sunday 23rd**  
-9:15am — St. Joseph’s  
-Mass: John Andrew Murray  
-10:30am — St. Peter’s  
-Mass: Stephen and His Family
-
----
-
-**Monday 24th**  
-9am — St. Peter’s  
-Mass: John Szulc followed by Exposition and Confessions till 10am
-
-**Tuesday 25th**  
-11am — St. Joseph’s  
-Requiem Mass for Patricia Earnshaw / In thanksgiving after an operation
-
-**Wednesday 26th**  
-9am — St. Peter’s  
-Mass: In Thanksgiving
-
-**Thursday 27th**  
-10am — St. Joseph’s  
-Mass: Nigel Ogden  
-1:15pm — Carleton Crematorium Service for Samantha Cornall-Saunders
-
----
-
 ### Weekend: Twenty-Second Sunday in Ordinary Time 'A'
 
 **Saturday 29th**  
@@ -55,11 +22,47 @@ Mass: Deceased Family and Friends of Smeed Family
 
 ---
 
+**Monday 31st**  
+9am — St. Peter’s  
+Mass: Stephen and Family followed by Exposition and Confessions till 10am
+
+**Tuesday 1st**  
+10am — St. Joseph’s  
+Mass: Bobby Kelly preceded by Exposition and Confessions till 9:55am
+
+**Wednesday 2nd**  
+10am — Saltcotes  
+Mass: Special Intention (CN)
+
+**Thursday 3rd**  
+10am — St. Joseph’s  
+Mass: John Scally
+
+**Friday 4th**  
+2pm — St. Joseph’s  
+Mass and Anointing of the Sick: Liam Herron
+
+---
+
+### Weekend: Twenty-Third Sunday in Ordinary Time 'A'
+
+**Saturday 5th**  
+6pm — St. Joseph’s  
+Mass: Bernhard Joslowski
+
+**Sunday 6th**  
+9:15am — St. Joseph’s  
+Mass: Intentions of Joshua Stephen Foster  
+10:30am — St. Peter’s  
+Mass: People of the Parishes
+
+---
+
 ## Sacrament of Reconciliation
 
 Sacrament of Reconciliation with Exposition this week.
 
-Monday 9:30-9:55am at St. Peter’s
+Monday 9:30-9:55am at St. Peter’s and Tuesday 9:30-9:50am at St. Joseph’s
 
 Confession is also available by arrangement with Fr. Peter. Tel. 737037
 

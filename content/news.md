@@ -2,27 +2,51 @@
 title: "News"
 draft: false
 ---
-## Twenty-First Sunday in Ordinary Time — Sunday 23rd August 2026
+## Twenty-Second Sunday in Ordinary Time — Sunday 30th August 2026
 
 ## Catholic Voice
 
 Latest copy (July) can be found [by clicking this link](https://issuu.com/cathcom/docs/lancaster_voice_july_2026).
 
-## Message from Father Peter
+## Message from Harry Rawcliffe, a Student for the Priesthood of our Diocese
 
-In today’s Gospel the Apostles Simon is given the new name Peter, which of course comes from the Greek meaning ‘rock’, and we are told ‘upon this rock I will build my church’. But while none of the other Apostles are actually renamed by Christ - other than Saul who becomes Paul and considered himself to be an Apostle - the other Apostles all have interesting names which derive from Hebrew, or Greek, and in some cases Aramaic, the language which would Have been most regularly used by Jesus. James, the Son of Zebedee is really ‘Jacob’, from the Old Testament Patriarch, whose name means ‘supplanter’ or ‘one who cheats’, which goes back to his origin story in Genesis; his brother’s John name means ‘God given’ or ‘grace’. (Incidentally, their Dad’s name, Zebedee, means ‘gift’). Andrew comes from the Greek meaning ‘courageous’. Philip means ‘one who likes horses’, which is very nice, and as he is Patron Saint of Cars and Drivers gives extra meaning to ‘horsepower’. Sort of… Anyway, Bartholomew means Son of a Ploughman’ - the Jewish prefix ‘Bart’ means ‘son of’ (like the O’ in Irish or the Mac in Scottish). Thomas, as referred to in the Gospel, is the Aramaic for Twin, which is where he sometimes gates the name ‘Didymus’, which is the Greek for twin. Matthew - and Matthias who replaced Judas - means ‘Gift of God’, and then we have another James, this time the Son of Alphaeus. Jude, means ‘Praise Yahweh’, and his surname, which distinguishes him from Judas Iscariot, Thaddeus, is one of a number of names, like Theodore which speak of a close relationship with God. Simon means ‘one who hears’ which is appropriate for the Simon who was renamed Peter, but also Simon the Zealot. There was a political party at the time of Jesus known as the ‘Zealots’, but his nickname might have just meant he was a very zealous, enthusiastic forthright character. Finally, Judas, ‘Praise God’ like Jude, with Iscariot meaning coming from town of Kerioth. All our names have meaning, but perhaps the most important name we all receive at our Baptism is that of Christ when we become Christians. May the most holy, most sacred, most adorable, most incomprehensible, and unutterable Name of God be always praised, blessed, loved, adored, and glorified in Heaven, on Earth, and under the Earth, by all the creatures of God, and by the Sacred Heart of Our Lord Jesus Christ, in the Most Holy Sacrament of the Altar. Amen.
+It’s a joy to be with you for the next few weeks! While we’re just down the road from where I grew up in Preston, my journey here was rather more circuitous. The route took me through Oxford University, central Africa and New York for brief stints of work, several years as a secondary school chaplain in Essex and, most recently, my first year of priestly formation at the Royal English College in Valladolid, Spain. Throughout that time, I have been trying my best to listen to ‘the still, small voice’ of the Holy Spirit and to let Him be in the driving seat of my life - with varying levels of success!
+
+It was several years ago that the idea of priesthood first rose in my heart, but it took time for the idea to take root and for me to grow in confidence that this was indeed a call from God, at least to explore the possibility of becoming a priest.  The Sacraments of Christ and His Church have been hugely significant in my life; it would be a joy and a privilege to bring them to others as a priest. It is important that those in formation for the priesthood and religious life remain free to follow the voice of the Lord wherever it may lead. That being said, I am one year in and all of the lights are green!
+
+I’m looking forward to meeting you all and living parish life with you over the coming weeks, before I head to the English College in Rome to continue my formation. Please pray for me and for all young people discerning God’s call in their lives.
+
+Saints Joseph and Peter, pray for us.
+
+---
+
+## First Week of the Month at SJSP’s
+
+Please join us for these wonderful liturgies!
+
+- Wednesday 2nd September: Mass at Saltcotes Cemetery Chapel at 10am.
+
+- Friday 4th September: First Friday Mass & Anointing of the Sick at St. Joseph’s at 2pm, followed by Refreshments in the Parish Hall.
+
+- Monday 7th September: Evening Prayer and Benediction at St. Joseph’s at 7pm
 
 ---
 
 ## Student for the Priesthood
 
-on Monday we are pleased to welcome Harry Rawcliffe, a student for the priesthood who will be joining our Parishes for a few weeks before continuing his training after the Holidays. You will be seeing him pottering around the Parishes. Please pray for Harry and all our Seminarians on their journey to discovering God’s vocation for them.
+This weekend we are pleased to welcome Harry Rawcliffe, a student for the priesthood who is with us for a few weeks before continuing his training after the Holidays. You will be seeing him pottering around the Parishes. Please pray for Harry and all our Seminarians on their journey to discovering God’s vocation for them. And read about his journey to the priesthood overleaf…
 
 ---
 
-## Petitions to Our Lady of Lourdes
+## CTEW Parish Levy
 
-Fr. Philip will be on pilgrimage in Lourdes in September and is willing to take any petitions to the Grotto. 1. Place your written petition in an envelope. 2. Seal the envelope. 3. On the front of the envelope write "Lourdes Petition". 4. Place it in the box in front of the Lady Altar at church. 5. Do NOT include any money. 6 Closing date Sunday 30th August. Many thanks to Fr. Philip. Our Lady of Lourdes, pray for us.
+This last week of August there is a retiring collection to raise our Catholic trust of England and Wales National Levey which each parish has to pay. The levy for St. Joseph’s is £1300:71. Your generosity would be much appreciated.
+
+---
+
+## Last Sunday for Petitions to Our Lady of Lourdes
+
+This is the Last Sunday for Petitions to Our Lady of Lourdes: Fr. Philip will be on pilgrimage in Lourdes in September and is willing to take any petitions to the Grotto. 1. Place your written petition in an envelope. 2. Seal the envelope. 3. On the front of the envelope write "Lourdes Petition". 4. Place it in the box in front of the Lady Altar at church. 5. Do NOT include any money. 6 Closing date Sunday 30th August. Many thanks to Fr. Philip. Our Lady of Lourdes, pray for us.
 
 ---
 
@@ -44,29 +68,11 @@ the collection continues and envelopes are available at the back of Church.
 
 ---
 
-## CAFOD school volunteers needed!
-
-Could you visit your local Catholic school to talk about the work of CAFOD? We are looking for volunteers to deliver school assemblies and workshops and inspire children and young people to make a difference and take action. For further information please contact Anna Letizia using the number in this week's [bulletin](/bulletins/) or email aletizia@cafod.org.uk
-
----
-
-## House for Families with Albino Sufferers
-
-you’ll remember that Lent 2025 we collected enough money to buy three houses for Malawi: a report on the houses is on the noticeboard. Continued blessings for everyone who supported the funding.
-
----
-
-## A Prayer to St. Monica
-
-one of the Patron Saints of Mothers, whose Feast Day is on Thursday. Blessed Monica, mother of St. Augustine, we give thanks to our Father in Heaven Who looked with mercy upon your tears over your wayward son. His conversion and heroic sanctification were the fruit of your prayers. Dear St. Monica we now ask you to pray with us for all those sons and daughters that have wandered away from God, and to add your prayers to those of all mothers who are worried over their children. Pray also for us that, following your example, we may, in the company of our children, one day enjoy the eternal vision of our Father in Heaven. Amen.
-
----
-
 ## Family Barbecue
 
 In the grounds of SJs.
 
-12noon on the 6th September
+NEXT Sunday 12noon on the 6th September
 
 £6 for adults, £3 for children. Music and Entertainment for all! Tickets available after Masses
 
@@ -87,7 +93,7 @@ Up and Coming Social Events for our Two Parishes
 - Race Night: Saturday 3rd October at 7:430pm at SJ’s
 - Sunday Lunch at the Bedford: Sunday 1st November
 - Christmas Fair: Sunday 6th December at SP’s
-- Fr. P.’s Family Nativity: Sunday 20th December at 3pm SJ’s
+- SJSP Family Nativity: Sunday 20th December at 3pm SJ’s
 
 ---
 
@@ -103,7 +109,7 @@ St. Joseph’s Care £386:31 Burkina Faso £250
 
 ## Please Pray
 
-Please pray for all who have died recently, especially Fr. Val Farrell, Samantha Cornall-Saunders and Patricia Earnshaw, and those whose anniversaries occur about this time: Patrick Carragher, Tony Crean, Michael Joseph Meyler and Jack Dempsey Pickles.
+Please pray for all who have died recently, especially Fr. Val Farrell, and Haydn Wood, and those whose anniversaries occur about this time: Mary Chesworth, Cecily Shaw, Catherine Reid, Elizabeth Kirkham, Jean Marie Brennan, Bridget Myra, Joan Berry, Barbara Sanderson, Maurice McSherry, Christopher Thompson, Liam Herron, Ted Gillett and Isabel Edmundson
 
 ---
 
@@ -115,7 +121,7 @@ CHILDREN’S LITURGY at Sunday Morning Mass!
 
 ## Coffee & Bacon Butties
 
-COFFEE & BACON BUTTIES after 9.15am Mass this week. (Well Coffee. And Tea. And Toast.)
+COFFEE & BACON BUTTIES after 9.15am Mass this week. (Croissants are never enough.)
 
 ---
 
@@ -151,15 +157,15 @@ every Thursday after 10am Mass in Church, for this beautiful prayer. All welcome
 
 ## Rotas
 
-Rotas for weekend 29th /30th August
+Rotas for weekend 5th /6th September
 
-Readers Sat 6pm: David Warwick Sun. 9.15am: Susan Brown
+Readers Sat 6pm: Anna Murgatroyd Sun. 9.15am: Anne Wormleighton
 
-Meet and Greet Sat 6pm: Ellie Sullivan and Stephanie Gilluly
+Meet and Greet Sat 6pm:
 
-Sun 9.15am: W & E Doyle
+Sun 9.15am:
 
-9:15am Minister Dean
+9:15am Minister Catherine
 
 ---
 
