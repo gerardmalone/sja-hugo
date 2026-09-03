@@ -2,57 +2,75 @@
 title: "News"
 draft: false
 ---
-## Twenty-Second Sunday in Ordinary Time — Sunday 30th August 2026
+## Twenty-Third Sunday in Ordinary Time — Sunday 6th September 2026
 
 ## Catholic Voice
 
 Latest copy (July) can be found [by clicking this link](https://issuu.com/cathcom/docs/lancaster_voice_july_2026).
 
-## Message from Harry Rawcliffe, a Student for the Priesthood of our Diocese
+## Message from Father Peter
 
-It’s a joy to be with you for the next few weeks! While we’re just down the road from where I grew up in Preston, my journey here was rather more circuitous. The route took me through Oxford University, central Africa and New York for brief stints of work, several years as a secondary school chaplain in Essex and, most recently, my first year of priestly formation at the Royal English College in Valladolid, Spain. Throughout that time, I have been trying my best to listen to ‘the still, small voice’ of the Holy Spirit and to let Him be in the driving seat of my life - with varying levels of success!
+Last week, apropos nothing, a Parishioner gave me a copy of a poem called ‘the Spiritual Railway’. The poem is beautifully inscribed on the tombstone, in Ely Cathedral in Cambridgeshire, of 30-year-old William Pickering and 24-year-old Richard Edgar who both died on Christmas Eve, December 24th 1845, in a railway accident on the Ely-Norwich railway line, which had only opened six months earlier. Although it might seem quaint and Victorian, bear in mind that railways were quite a new thing at the time of writing, so the poem uses what were at the time really modern references to put across a Christian message - just like Christ used the things round about him in Palestine in his stories and Parables. It makes a rather lovely prayer - perhaps especially when we are travelling.
 
-It was several years ago that the idea of priesthood first rose in my heart, but it took time for the idea to take root and for me to grow in confidence that this was indeed a call from God, at least to explore the possibility of becoming a priest.  The Sacraments of Christ and His Church have been hugely significant in my life; it would be a joy and a privilege to bring them to others as a priest. It is important that those in formation for the priesthood and religious life remain free to follow the voice of the Lord wherever it may lead. That being said, I am one year in and all of the lights are green!
-
-I’m looking forward to meeting you all and living parish life with you over the coming weeks, before I head to the English College in Rome to continue my formation. Please pray for me and for all young people discerning God’s call in their lives.
-
-Saints Joseph and Peter, pray for us.
+> The Line to heaven by Christ was made  
+> With heavenly truth the Rails are laid,
+>
+> From Earth to Heaven the Line extends,  
+> To Life Eternal where it ends.
+>
+> Repentance is the Station then  
+> Where Passengers are taken in,
+>
+> No Fee for them is there to pay,  
+> For Jesus is himself the way.
+>
+> God’s Word is the first Engineer  
+> It points the way to Heaven so dear,
+>
+> Through tunnels dark and dreary here  
+> It does the way to Glory steer.
+>
+> God’s Love the Fire, his Truth the Steam,  
+> Which drives the Engine and the Train,
+>
+> All you who would to Glory ride,  
+> Must come to Christ, in him abide.
+>
+> In First and Second, and Third Class,  
+> Repentance, Faith and Holiness,
+>
+> You must the way to Glory gain  
+> Or you with Christ will not remain.
+>
+> Come then poor Sinners, now’s the time  
+> At any Station on the Line,
+>
+> If you’ll repent and turn from sin  
+> The Train will stop and take you in.
 
 ---
 
-## First Week of the Month at SJSP’s
+## Evening Prayer and Benediction
 
-Please join us for these wonderful liturgies!
-
-- Wednesday 2nd September: Mass at Saltcotes Cemetery Chapel at 10am.
-
-- Friday 4th September: First Friday Mass & Anointing of the Sick at St. Joseph’s at 2pm, followed by Refreshments in the Parish Hall.
-
-- Monday 7th September: Evening Prayer and Benediction at St. Joseph’s at 7pm
+Monday 7th September: Evening Prayer and Benediction at St. Joseph’s at 7pm
 
 ---
 
-## Student for the Priesthood
+## Blessing of BackPacks for the New School Year
 
-This weekend we are pleased to welcome Harry Rawcliffe, a student for the priesthood who is with us for a few weeks before continuing his training after the Holidays. You will be seeing him pottering around the Parishes. Please pray for Harry and all our Seminarians on their journey to discovering God’s vocation for them. And read about his journey to the priesthood overleaf…
-
----
-
-## CTEW Parish Levy
-
-This last week of August there is a retiring collection to raise our Catholic trust of England and Wales National Levey which each parish has to pay. The levy for St. Joseph’s is £1300:71. Your generosity would be much appreciated.
-
----
-
-## Last Sunday for Petitions to Our Lady of Lourdes
-
-This is the Last Sunday for Petitions to Our Lady of Lourdes: Fr. Philip will be on pilgrimage in Lourdes in September and is willing to take any petitions to the Grotto. 1. Place your written petition in an envelope. 2. Seal the envelope. 3. On the front of the envelope write "Lourdes Petition". 4. Place it in the box in front of the Lady Altar at church. 5. Do NOT include any money. 6 Closing date Sunday 30th August. Many thanks to Fr. Philip. Our Lady of Lourdes, pray for us.
+Next Sunday 13th at all Masses. All welcome to have their school stuff, stationary, pencil cases, sports kits or whatever, blessed for the New Academic Year.
 
 ---
 
 ## August Collection for School Stuff to help children
 
-This year we’d ask especially for Scientific Calculators, Geometry Sets and ‘Filled’ Pencil Cases. All donations gratefully accepted, and boxes are at the back of Church. Many thanks in anticipation.
+Huge thanks for everything that was brought in for the collection most of which has now been distributed to our schools. Check out the noticeboards for a picture of all the stuff laid out – we could have opened a stationary shop!
+
+---
+
+## Red Mission Boxes
+
+The Autumn collection from the boxes will take place during September. Please bring your box to church and leave it in the sacristy. The boxes will be returned to the sacristy for collection after emptying.
 
 ---
 
@@ -68,16 +86,6 @@ the collection continues and envelopes are available at the back of Church.
 
 ---
 
-## Family Barbecue
-
-In the grounds of SJs.
-
-NEXT Sunday 12noon on the 6th September
-
-£6 for adults, £3 for children. Music and Entertainment for all! Tickets available after Masses
-
----
-
 ## Preston Concert Band
 
 At St. Peters on Saturday 19th September at 7:30pm
@@ -86,11 +94,25 @@ Tickets are now on sale after mass for an evening of entertaining music and fun 
 
 ---
 
+## Feast of the Birthday of our Lady
+
+Tuesday is the Feast of the Birthday of our Lady. Perhaps tomorrow we could prayer this prayer in our homes with our families:
+
+Heavenly Father, on this blessed day, we rejoice in the birth of the Holy Mother of Jesus, our Blessed Mother Mary. We thank You for the gift of her life, her faith, and her unending love that guides us to Your Son.
+
+O Blessed Virgin Mary, dearest Mother, on this joyful day of your birth, we thank God for the gift of your life. Through you came the Light of the world, our Lord Jesus Christ.
+
+Mother, intercede for our family. Protect our home, grant us peace and strength, and lead us always on the path of holiness. Teach us to live with the same humility and love that filled your heart.
+
+Hail Mary, full of grace, the Lord is with thee. Blessed art thou among women, and blessed is the fruit of thy womb, Jesus. Holy Mary, Mother of God, pray for us sinners, now and at the hour of our death. Amen.
+
+---
+
 ## Save the Date(s)!
 
 Up and Coming Social Events for our Two Parishes
 
-- Race Night: Saturday 3rd October at 7:430pm at SJ’s
+- Race Night: Saturday 3rd October at 7:30pm at SJ’s
 - Sunday Lunch at the Bedford: Sunday 1st November
 - Christmas Fair: Sunday 6th December at SP’s
 - SJSP Family Nativity: Sunday 20th December at 3pm SJ’s
@@ -99,17 +121,17 @@ Up and Coming Social Events for our Two Parishes
 
 ## Collection Count
 
-for July: with grateful thanks
+for August: with grateful thanks
 
-Gift Aid £529:80 Non Gift Aid £2279:45 SO £3098
+Gift Aid £529:80 Non Gift Aid £1427:39 SO £3148
 
-St. Joseph’s Care £386:31 Burkina Faso £250
+St. Joseph’s Care £139:96 Burkina Faso £55
 
 ---
 
 ## Please Pray
 
-Please pray for all who have died recently, especially Fr. Val Farrell, and Haydn Wood, and those whose anniversaries occur about this time: Mary Chesworth, Cecily Shaw, Catherine Reid, Elizabeth Kirkham, Jean Marie Brennan, Bridget Myra, Joan Berry, Barbara Sanderson, Maurice McSherry, Christopher Thompson, Liam Herron, Ted Gillett and Isabel Edmundson
+Please pray for all who have died recently, especially Fr. Val Farrell, and Haydn Wood, and those whose anniversaries occur about this time: James Joseph Cunliffe, Peter Page, Kathleen Judge, Tony Bolton, William George Dillon and James Joseph Fowler
 
 ---
 
@@ -121,7 +143,7 @@ CHILDREN’S LITURGY at Sunday Morning Mass!
 
 ## Coffee & Bacon Butties
 
-COFFEE & BACON BUTTIES after 9.15am Mass this week. (Croissants are never enough.)
+COFFEE & BACON BUTTIES after 9.15am Mass this week. (I didn’t get one last week as there was such a rush!)
 
 ---
 
@@ -157,15 +179,15 @@ every Thursday after 10am Mass in Church, for this beautiful prayer. All welcome
 
 ## Rotas
 
-Rotas for weekend 5th /6th September
+Rotas for weekend 12th /13th September
 
-Readers Sat 6pm: Anna Murgatroyd Sun. 9.15am: Anne Wormleighton
+Readers Sat 6pm: K/T Godden Sun. 9.15am: James Wormleighton
 
-Meet and Greet Sat 6pm:
+Meet and Greet Sat 6pm: C. Williams and M Taylor
 
-Sun 9.15am:
+Sun 9.15am: M Cookson and M Reid
 
-9:15am Minister Catherine
+9:15am Minister Wanda
 
 ---
 

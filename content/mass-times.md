@@ -8,53 +8,52 @@ aliases:
 
 ## Feasts and Intentions this week
 
-### Weekend: Twenty-Second Sunday in Ordinary Time 'A'
-
-**Saturday 29th**  
-6pm — St. Joseph’s  
-Mass: David and Leesa Baxendale / People of the Parishes
-
-**Sunday 30th**  
-9:15am — St. Joseph’s  
-Mass: Tony and Damian Crean  
-10:30am — St. Peter’s  
-Mass: Deceased Family and Friends of Smeed Family
-
----
-
-**Monday 31st**  
-9am — St. Peter’s  
-Mass: Stephen and Family followed by Exposition and Confessions till 10am
-
-**Tuesday 1st**  
-10am — St. Joseph’s  
-Mass: Bobby Kelly preceded by Exposition and Confessions till 9:55am
-
-**Wednesday 2nd**  
-10am — Saltcotes  
-Mass: Special Intention (CN)
-
-**Thursday 3rd**  
-10am — St. Joseph’s  
-Mass: John Scally
-
-**Friday 4th**  
-2pm — St. Joseph’s  
-Mass and Anointing of the Sick: Liam Herron
-
----
-
 ### Weekend: Twenty-Third Sunday in Ordinary Time 'A'
 
 **Saturday 5th**  
 6pm — St. Joseph’s  
-Mass: Bernhard Joslowski
+Mass: For a Successful Outcome (C.N)
 
 **Sunday 6th**  
 9:15am — St. Joseph’s  
 Mass: Intentions of Joshua Stephen Foster  
 10:30am — St. Peter’s  
 Mass: People of the Parishes
+
+---
+
+**Monday 7th**  
+9am — St. Peter’s  
+Mass: John Gerard Nolan followed by Exposition and Confessions till 10am  
+11:30am — Carleton Crematorium Service for baby Leo  
+7pm — St. Joseph’s  
+Vespers and Benediction
+
+**Tuesday 8th**  
+10am — St. Joseph’s  
+Mass: Kath Wilding preceded by Exposition and Confessions till 9:55am
+
+**Wednesday 9th**  
+9am — St. Peter’s  
+Mass: In Memory of Isobel and John Morrison
+
+**Thursday 10th**  
+10am — St. Joseph’s  
+Mass: Peter Page
+
+---
+
+### Weekend: Twenty-Fourth Sunday in Ordinary Time 'A'
+
+**Saturday 12th**  
+6pm — St. Joseph’s  
+Mass: Repose of the Soul of Patricia Earnshaw
+
+**Sunday 13th**  
+9:15am — St. Joseph’s  
+Mass: People of the Parishes  
+10:30am — St. Peter’s  
+Mass: In Memory of Mark William Pollard
 
 ---
 
