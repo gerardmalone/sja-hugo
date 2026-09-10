@@ -8,41 +8,6 @@ aliases:
 
 ## Feasts and Intentions this week
 
-### Weekend: Twenty-Third Sunday in Ordinary Time 'A'
-
-**Saturday 5th**  
-6pm — St. Joseph’s  
-Mass: For a Successful Outcome (C.N)
-
-**Sunday 6th**  
-9:15am — St. Joseph’s  
-Mass: Intentions of Joshua Stephen Foster  
-10:30am — St. Peter’s  
-Mass: People of the Parishes
-
----
-
-**Monday 7th**  
-9am — St. Peter’s  
-Mass: John Gerard Nolan followed by Exposition and Confessions till 10am  
-11:30am — Carleton Crematorium Service for baby Leo  
-7pm — St. Joseph’s  
-Vespers and Benediction
-
-**Tuesday 8th**  
-10am — St. Joseph’s  
-Mass: Kath Wilding preceded by Exposition and Confessions till 9:55am
-
-**Wednesday 9th**  
-9am — St. Peter’s  
-Mass: In Memory of Isobel and John Morrison
-
-**Thursday 10th**  
-10am — St. Joseph’s  
-Mass: Peter Page
-
----
-
 ### Weekend: Twenty-Fourth Sunday in Ordinary Time 'A'
 
 **Saturday 12th**  
@@ -54,6 +19,44 @@ Mass: Repose of the Soul of Patricia Earnshaw
 Mass: People of the Parishes  
 10:30am — St. Peter’s  
 Mass: In Memory of Mark William Pollard
+
+---
+
+**Monday 14th**  
+9am — St. Peter’s  
+Mass: In Loving Memory of Mary Chesworth followed by Exposition and Confessions till 10am  
+1pm — St. Joseph’s  
+Requiem Mass for Haydn Wood
+
+**Tuesday 15th**  
+10am — St. Joseph’s  
+Mass: William and Mary Murray preceded by Exposition and Confessions till 9:55am  
+6:30pm — St. Peter’s  
+Holy Hour with Rosary and Benediction
+
+**Wednesday 16th**  
+9am — St. Peter’s  
+Mass: Joe Ainsworth
+
+**Thursday 17th**  
+10am — St. Joseph’s  
+Mass: John Szulc
+
+---
+
+### Weekend: Twenty-Fifth Sunday in Ordinary Time 'A'
+
+**Saturday 19th**  
+1pm — St. Peter’s  
+Wedding Service for Harry and Alice  
+6pm — St. Joseph’s  
+Mass: Bernhard Joslowski
+
+**Sunday 20th**  
+9:15am — St. Joseph’s  
+Mass: Ron Rawstron Birthday Remembrance  
+10:30am — St. Peter’s  
+Mass: People of the Parishes
 
 ---
 

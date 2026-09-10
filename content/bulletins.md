@@ -13,6 +13,9 @@ Please note that if you send information for the weekly bulletin via e-mail ([sj
 
 All bulletin queries should be directed to **Fr. Peter**. If there is a limited amount of space, notices may have to be abbreviated. Wherever possible a notice will be published in full. Notices can only be included up to a maximum of **3 weeks**.
 
+**Twenty-Fourth Sunday in Ordinary Time**  
+[13th September 2026](/bulletins/Bulletin130926.pdf)  
+
 **Twenty-Third Sunday in Ordinary Time**  
 [6th September 2026](/bulletins/Bulletin060926.pdf)  
 
@@ -24,6 +27,3 @@ All bulletin queries should be directed to **Fr. Peter**. If there is a limited 
 
 **The Assumption of the Blessed Virgin Mary**  
 [16th August 2026](/bulletins/Bulletin160826.pdf)  
-
-**Nineteenth Sunday in Ordinary Time**  
-[9th August 2026](/bulletins/Bulletin090826.pdf)  

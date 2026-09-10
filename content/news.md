@@ -2,7 +2,7 @@
 title: "News"
 draft: false
 ---
-## Twenty-Third Sunday in Ordinary Time — Sunday 6th September 2026
+## Twenty-Fourth Sunday in Ordinary Time — Sunday 13th September 2026
 
 ## Catholic Voice
 
@@ -10,55 +10,19 @@ Latest copy (July) can be found [by clicking this link](https://issuu.com/cathco
 
 ## Message from Father Peter
 
-Last week, apropos nothing, a Parishioner gave me a copy of a poem called ‘the Spiritual Railway’. The poem is beautifully inscribed on the tombstone, in Ely Cathedral in Cambridgeshire, of 30-year-old William Pickering and 24-year-old Richard Edgar who both died on Christmas Eve, December 24th 1845, in a railway accident on the Ely-Norwich railway line, which had only opened six months earlier. Although it might seem quaint and Victorian, bear in mind that railways were quite a new thing at the time of writing, so the poem uses what were at the time really modern references to put across a Christian message - just like Christ used the things round about him in Palestine in his stories and Parables. It makes a rather lovely prayer - perhaps especially when we are travelling.
-
-> The Line to heaven by Christ was made  
-> With heavenly truth the Rails are laid,
->
-> From Earth to Heaven the Line extends,  
-> To Life Eternal where it ends.
->
-> Repentance is the Station then  
-> Where Passengers are taken in,
->
-> No Fee for them is there to pay,  
-> For Jesus is himself the way.
->
-> God’s Word is the first Engineer  
-> It points the way to Heaven so dear,
->
-> Through tunnels dark and dreary here  
-> It does the way to Glory steer.
->
-> God’s Love the Fire, his Truth the Steam,  
-> Which drives the Engine and the Train,
->
-> All you who would to Glory ride,  
-> Must come to Christ, in him abide.
->
-> In First and Second, and Third Class,  
-> Repentance, Faith and Holiness,
->
-> You must the way to Glory gain  
-> Or you with Christ will not remain.
->
-> Come then poor Sinners, now’s the time  
-> At any Station on the Line,
->
-> If you’ll repent and turn from sin  
-> The Train will stop and take you in.
-
----
-
-## Evening Prayer and Benediction
-
-Monday 7th September: Evening Prayer and Benediction at St. Joseph’s at 7pm
+A couple of weeks ago I was sent what looked like a piece of Medieval Plainchant music, with what I presumed was a text in Latin that I didn’t know. The Latin went: Iolene, Iolene, Iolene, Te oro, quaeso, ne virum abripias. Iolene, Iolene, Iolene, Iolene, ne aufer, quia sola id potes facere. Pulchritudo tua est sine pare, Flammis similis capilli rufi, Ebur cutis est, et verides occulos habes. Risus tuus est veris halitus, Vox mollis ut aestiva pluvial, Nex possum tecum, Iolene contendere, and so on. For those whose Latin is not what it might be, you might work it out if I tell you that the plainchant was marked for the feast of ‘Dolliae de Tennesia’ – Dolly of Tennessee. It’s actually the lyrics of the Dolly Parton song ‘Jolene’ which somebody transformed into Gregorian chant! It got me thinking that there might be one of two other Latin phases which might be useful if we are ever in the upper echelons of the Vatican, or transported back to AD 26, such as: Ad eundum quo nemo ante iit which translates as ‘To boldly go where no man has gone before’ for Star Trek fans, or for Star Wars fans: Sit vis nobiscum, ‘May the force be with you’. If you are chit chatting with a Roman you might ask, Vidistine nuper imagines moventes bonas? which is ‘Seen any good movies lately?’ And if you are into tongue twisters, how about, ‘How much wood would a woodchuck chuck if a woodchuck could chuck wood?’ Quantum materiae materietur marmota monax si marmota monax materiam possit materiari? If you can’t understand what a Roman is saying, you can apologise by saying, Te audire no possum. Musa sapientum fixa est in aure or ‘I can’t hear you. I have a banana in my ear.’ And, to conclude, after a good trip there is always the classic: Veni, vidi, vici. I came, I saw, I conquered.
 
 ---
 
 ## Blessing of BackPacks for the New School Year
 
-Next Sunday 13th at all Masses. All welcome to have their school stuff, stationary, pencil cases, sports kits or whatever, blessed for the New Academic Year.
+This Sunday 13th at all Masses. All welcome to have their school stuff, stationery, pencil cases, sports kits or whatever, blessed for the New Academic Year.
+
+---
+
+## Third Tuesday of the Month at SJSP’s
+
+This Tuesday 15th September: Holy Hour with Rosary & Benediction: St. Peter’s at 6:30pm
 
 ---
 
@@ -80,31 +44,35 @@ Contributions are most welcome, and still most necessary. Please bring stuff to 
 
 ---
 
-## Burkino Faso 2026
+## Mass for Healthcare Workers
 
-the collection continues and envelopes are available at the back of Church.
+All those working in healthcare (doctors, nurses, pharmacists, receptionists, porters, chaplains and many more) are invited to Mass with our Bishop on Saturday 17th October at 12.15 in Lancaster Cathedral, with a cup of tea in the social centre afterwards.
+
+---
+
+## Burkina Faso
+
+Our annual appeal is now closed and we will let you have a final total by the end of September. Many thanks for your continued support of the Bernardine Community in Burkina Faso. E. Gillett
 
 ---
 
 ## Preston Concert Band
 
-At St. Peters on Saturday 19th September at 7:30pm
+At St. Peter’s on Saturday 19th September at 7:30pm
 
 Tickets are now on sale after mass for an evening of entertaining music and fun accompanied by a glass of prosecco. £10 per ticket.
 
 ---
 
-## Feast of the Birthday of our Lady
+## SJSP Race Night!
 
-Tuesday is the Feast of the Birthday of our Lady. Perhaps tomorrow we could prayer this prayer in our homes with our families:
+An evening of fun and games and racing
 
-Heavenly Father, on this blessed day, we rejoice in the birth of the Holy Mother of Jesus, our Blessed Mother Mary. We thank You for the gift of her life, her faith, and her unending love that guides us to Your Son.
+Saturday 3rd October in SJ’s Hall at 7pm
 
-O Blessed Virgin Mary, dearest Mother, on this joyful day of your birth, we thank God for the gift of your life. Through you came the Light of the world, our Lord Jesus Christ.
+Tickets £6 adults £3 children available after Masses
 
-Mother, intercede for our family. Protect our home, grant us peace and strength, and lead us always on the path of holiness. Teach us to live with the same humility and love that filled your heart.
-
-Hail Mary, full of grace, the Lord is with thee. Blessed art thou among women, and blessed is the fruit of thy womb, Jesus. Holy Mary, Mother of God, pray for us sinners, now and at the hour of our death. Amen.
+Food Provided, BYO Drink!
 
 ---
 
@@ -112,10 +80,9 @@ Hail Mary, full of grace, the Lord is with thee. Blessed art thou among women, a
 
 Up and Coming Social Events for our Two Parishes
 
-- Race Night: Saturday 3rd October at 7:30pm at SJ’s
 - Sunday Lunch at the Bedford: Sunday 1st November
-- Christmas Fair: Sunday 6th December at SP’s
-- SJSP Family Nativity: Sunday 20th December at 3pm SJ’s
+- Christmas Fair: Sunday 6th December at SP’s after 10:30am Mass
+- SJSP Magical Musical Nativity: Sunday 20th December at 3pm SJ’s
 
 ---
 
@@ -131,7 +98,7 @@ St. Joseph’s Care £139:96 Burkina Faso £55
 
 ## Please Pray
 
-Please pray for all who have died recently, especially Fr. Val Farrell, and Haydn Wood, and those whose anniversaries occur about this time: James Joseph Cunliffe, Peter Page, Kathleen Judge, Tony Bolton, William George Dillon and James Joseph Fowler
+Please pray for all who have died recently, especially Haydn Wood, and those whose anniversaries occur about this time: John Craig, Sheila Noon Basil Karam, Marie Gillett and Joan Hulse.
 
 ---
 
@@ -143,7 +110,7 @@ CHILDREN’S LITURGY at Sunday Morning Mass!
 
 ## Coffee & Bacon Butties
 
-COFFEE & BACON BUTTIES after 9.15am Mass this week. (I didn’t get one last week as there was such a rush!)
+COFFEE & BACON BUTTIES after 9.15am Mass this week. (No left over burgers from the BBQ though.)
 
 ---
 
@@ -167,7 +134,7 @@ Cards and gifts for different occasions available, including first communion car
 
 ## Lectio Divina
 
-no meetings until September.
+10L30am On Wednesday’s in SJ’s Hall.
 
 ---
 
@@ -179,9 +146,9 @@ every Thursday after 10am Mass in Church, for this beautiful prayer. All welcome
 
 ## Rotas
 
-Rotas for weekend 12th /13th September
+Rotas for weekend 19th /20th September
 
-Readers Sat 6pm: K/T Godden Sun. 9.15am: James Wormleighton
+Readers Sat 6pm: Sun Richard Golding 9.15am: Rosemary Page
 
 Meet and Greet Sat 6pm: C. Williams and M Taylor
 
