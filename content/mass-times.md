@@ -8,53 +8,47 @@ aliases:
 
 ## Feasts and Intentions this week
 
-### Weekend: Twenty-Fourth Sunday in Ordinary Time 'A'
-
-**Saturday 12th**  
-6pm — St. Joseph’s  
-Mass: Repose of the Soul of Patricia Earnshaw
-
-**Sunday 13th**  
-9:15am — St. Joseph’s  
-Mass: People of the Parishes  
-10:30am — St. Peter’s  
-Mass: In Memory of Mark William Pollard
-
----
-
-**Monday 14th**  
-9am — St. Peter’s  
-Mass: In Loving Memory of Mary Chesworth followed by Exposition and Confessions till 10am  
-1pm — St. Joseph’s  
-Requiem Mass for Haydn Wood
-
-**Tuesday 15th**  
-10am — St. Joseph’s  
-Mass: William and Mary Murray preceded by Exposition and Confessions till 9:55am  
-6:30pm — St. Peter’s  
-Holy Hour with Rosary and Benediction
-
-**Wednesday 16th**  
-9am — St. Peter’s  
-Mass: Joe Ainsworth
-
-**Thursday 17th**  
-10am — St. Joseph’s  
-Mass: John Szulc
-
----
-
 ### Weekend: Twenty-Fifth Sunday in Ordinary Time 'A'
 
 **Saturday 19th**  
-1pm — St. Peter’s  
-Wedding Service for Harry and Alice  
 6pm — St. Joseph’s  
 Mass: Bernhard Joslowski
 
 **Sunday 20th**  
 9:15am — St. Joseph’s  
 Mass: Ron Rawstron Birthday Remembrance  
+10:30am — St. Peter’s  
+Mass: People of the Parishes
+
+---
+
+**Monday 21st**  
+9am — St. Peter’s  
+Mass: Marriage Blessings Jane and Louis followed by Exposition and Confessions till 10am
+
+**Tuesday 22nd**  
+10am — St. Joseph’s  
+Mass: Repose of the soul of Vivian Lloyd preceded by Exposition and Confessions till 9:55am
+
+**Wednesday 23rd**  
+9am — St. Peter’s  
+Mass: Mary Chesworth Birthday Remembrance
+
+**Thursday 24th**  
+10am — St. Joseph’s  
+Mass: Thomas McNulty
+
+---
+
+### Weekend: Twenty-Sixth Sunday in Ordinary Time 'A'
+
+**Saturday 26th**  
+6pm — St. Joseph’s  
+Mass: In Memory of Roseanne Scott
+
+**Sunday 27th**  
+9:15am — St. Joseph’s  
+Mass: Alan Hesketh Birthday Remembrance  
 10:30am — St. Peter’s  
 Mass: People of the Parishes
 
