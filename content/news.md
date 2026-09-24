@@ -2,7 +2,7 @@
 title: "News"
 draft: false
 ---
-## Twenty-Fifth Sunday in Ordinary Time — Sunday 20th September 2026
+## Twenty-Sixth Sunday in Ordinary Time — Sunday 27th September 2026
 
 ## Catholic Voice
 
@@ -10,13 +10,15 @@ Latest copy (September) can be found [by clicking this link](https://issuu.com/c
 
 ## Message from Father Peter
 
-Last week, when Student Harry was telling about the formation of priests and the discovering of one’s true calling by the Lord, he mentioned a prayerful discipline called the ‘Daily Examen’. This is a short, daily prayer practice of reflecting back on the day, and being conscience of how God has been present in each moment, but perhaps in particular some moments you may wish to call to mind, and helps you come to a deeper awareness of God and gratitude for having Him in our lives. It was created by Saint Ignatius of Loyola in his Spiritual Exercises – he believed it to be a direct revelation from God, and hoped that more people would come to knowledge of the practice and use it in their own lives. The reflection comes in five parts: 1. Firstly become aware of God’s presence, now in the present, but also reflecting on how is with you throughout every moment of your past. 2. Secondly, review the day, with gratitude – which perhaps differs from an examination of conscience in which you reflect that for which you are sorrowful. Here, you reflect upon that for which you are most grateful, the events, the people, your interactions, not forgetting small things such as someone’s smile, or the meal you ate at lunchtime. 3. Pay attention to your emotions – making this a very ‘modern’ practice! Ask yourself why you were feeling so, and what God might lead you to through these times. 4. Choose one feature of the day and pray about it; make it a focus of prayer, rather than getting overwhelmed by so many things to prayer about. Nothing is too insignificant; it is what matters to you and what you feel needs prayer. 5. Finally, look forward to tomorrow, grateful for another day in your life filled with the presence of God, and making a hopeful prayer to God for whatever is to happen. Throughout it all St. Ignatius says you should see and speak to God like a friend, holding your hand or lifting you up throughout the good and bad times, and always, always with you. As Ignatius prayed: Take, Lord, receive all my liberty, my memory, my understanding, and my whole will. All that I have and all that I possess, you have given it to me. To you, Lord, I return it. All is yours; do with it what you will. Give me only your love and your grace; that is enough for me. Amen.
+This week is very much ‘Angel Week’ in the Church’s Liturgical calendar, as we have two really rather lovely angelic Feasts to celebrate.
 
----
+On Tuesday we celebrate the Archangels, glorying in God’s love and care in reminding ourselves of the heavenly ministrations of these three extra special messengers of God, the Archangels. The word ‘Angel’ or course means ‘Messenger’, but the individual names of the Archangels also point out their individual ministries. Michael, whose name means ‘one like God’ is known as the captain of the heavenly army who brought victory of Satan, and now protects the Church against its enemies. Gabriel, whose name means ‘power of God’, is known to us as God’s announcing Angel, bring news of the birth of John the Baptist to Zechariah, and the Lord Jesus to Mary. Raphael, whose name means ‘healing of God, brought healing to Tobias on his pilgrim journey recounted in the Book of Tobit, and today is venerated as Patron of the blind, travellers, doctors and nurses. God our Father,
 
-## Message from Student Harry
+the angels demonstrate your heavenly love and care for your people, through their strength, their messages, and their healing. As they continue to minister to you in the annals of heaven, so may their love and protection, bring us here on earth ever closer to you. Through Christ our Lord. Amen.
 
-Ciao a tutti voi! I’ve arrived safe and sound in Rome. Thank you, again, for your warm welcome and generosity over the last few weeks. I’ll be praying for you here, thank you for praying for me! Harry. So let’s keep on praying that Harry clearly hears and responds to the call of the Lord, and look forward to updates on his progress in the Eternal City.
+And then on Friday, at our Anointing Mass, we will be gratefully thinking about our Guardian Angels. As with our celebration of the three Archangels, today is a celebration of God’s love for us, but today we think especially of his individual love for each and every one us, through the help of our very own Guardian Angel, watching over us, and guiding and assisting us in the ways of righteousness. Devotion to our Guardian Angels goes back to the Middle Ages, and it is a lovely little reminder of God’s care for us today, and not something to be kept back in our schooldays. God our heavenly Father, as through our baptism you have called each one of us by name, so you have given us our own holy angel, to guard and protect us on our way to you. May we come to rejoice with them in heaven, where you live and reign for ever and ever. Amen.
+
+Incidentally, My Guardian Angel taught me trigonometry: it was a sine from God. Then the three Archangels taught me the same thing. This was a cosine from God. I’ll get my coat… and my halo…
 
 ---
 
@@ -32,33 +34,9 @@ Contributions are most welcome, and still most necessary. Please bring stuff to 
 
 ---
 
-## Burkina Faso
-
-Our annual appeal is now closed and we will let you have a final total by the end of September. Many thanks for your continued support of the Bernardine Community in Burkina Faso. E. Gillett
-
----
-
-## Diocesan Ladywell Pilgrimage
-
-Sat 26th Sept. Holy Mass St Mary’s 11am followed by procession of the Blessed Sacrament to the Shrine for Benediction.
-
----
-
-## Mass for Healthcare Workers
-
-doctors, nurses, pharmacists, receptionists, porters, chaplains and many more are invited to Mass with Bishop Paul on Saturday 17th Oct at 12.15 in Lancaster Cathedral. There will be a chance to meet up with other Catholic healthcare workers over a cup of tea in the social centre afterwards.
-
----
-
 ## Saint Bede's First Alumni Event
 
 Wednesday 30th September 2026 6:00pm - 7:00pm with the option of attending earlier at 5:30pm for a school tour. Catch up with fellow alumni, tour the school and hear from our current pupils! Please confirm your attendance by emailing abolton@stbedeslytham.lancs.sch.uk this is so we know how many attendees we will have.
-
----
-
-## Feast of Our Lady of Walsingham
-
-Thursday 24th is the Feast of Our Lady of Walsingham. O Blessed Virgin Mary, Mother of God and our most gentle Queen and Mother look down with mercy upon England your Dowry, and upon us all who greatly hope and trust in you. By you it was that Jesus Our Saviour and our hope, was given to the world: and he has given you to us that we may hope still more. Plead for us your children, whom you did receive at the foot of the cross, O sorrowful Mother, Intercede for our separated brethren, that with us in the one true fold they may be united to the Chief Shepherd, the Vicar of your Son. Pray for us all, Dear Mother, that by faith fruitful in good works we may all deserve to see and praise God, together with you in our heavenly home. Amen
 
 ---
 
@@ -66,11 +44,25 @@ Thursday 24th is the Feast of Our Lady of Walsingham. O Blessed Virgin Mary, Mot
 
 An evening of fun and games and racing
 
-Saturday 3rd October in SJ’s Hall at 7pm
+NEXT Saturday 3rd October in SJ’s Hall at 7pm
 
 Tickets £6 adults £3 children available after Masses
 
 Food Provided, BYO Drink!
+
+---
+
+## SJSP Sunday Lunch at The Bedford
+
+Sunday November 1st at 12noon
+
+If you would like to join us, forms and menus are available after masses.
+
+---
+
+## Feast of Saint Theresa of the Child Jesus
+
+As well as the two Feast Days of the Angels, mentioned overleaf, this Thursday October 1st is the Feast of Saint Theresa of the Child Jesus, otherwise known as St Theresa of Liseux, a Virgin and Doctor of the Church. The ‘Little Flower’ was only twenty-four when she died of tuberculosis, but in her short life became one of the world’s most loved Saints, due to her determination, simplicity, and sanctity. Saint Theresa joined the Carmelite convent in Liseux at the age of fifteen, following her sisters, and during her time of prayer and penance wrote her famous ‘Little Way’ which bore spiritual insights beyond her years. With Joan of Arc she is Patroness of France. God our heavenly Father, allow us to journey the little way of Saint Theresa, that, through her prayers and example, we may show the humility and simplicity of little children, trusting in your wisdom and love, and following the path that leads to you. Through Christ our Lord. Amen.
 
 ---
 
@@ -80,7 +72,7 @@ Up and Coming Social Events for our Two Parishes
 
 - Sunday Lunch at the Bedford: Sunday 1st November
 - Christmas Fair: Sunday 6th December at SP’s after 10:30am Mass
-- SJSP A New Musical Nativity: Sunday 20th December at 3pm SJ’s
+- SJSP Amazing Musical Nativity (Did you know that Mary had a cat?): Sunday 20th December at 3pm SJ’s
 
 ---
 
@@ -96,7 +88,7 @@ St. Joseph’s Care £139:96 Burkina Faso £55
 
 ## Please Pray
 
-Please pray for all who have died recently, especially Kim Eastham and Gary Philip Adnitt, and those whose anniversaries occur about this time: Fr. Michael Kirkham, Peter Thornton, Judy Halsall, Maureen Halsall, Deacon John Walton, Julia Octigan, Judith Simpson, Gerard Moss and Esther Morgan
+Please pray for all who have died recently, especially Kim Elizabeth Eastham and Glen Davidson, and those whose anniversaries occur about this time: John Baron, Brenda Windsor, Greta Turner, Vera Bullough, Michael Wren-Hilton, Robert Thatcher, Jim Cartmell, Fr. Kevin Lowry, Jack Donellan, Edmund Harrison and Brent Karam
 
 ---
 
@@ -108,7 +100,7 @@ CHILDREN’S LITURGY at Sunday Morning Mass!
 
 ## Coffee & Bacon Butties
 
-COFFEE & BACON BUTTIES after 9.15am Mass this week. (Form an orderly queue. FrP)
+COFFEE & BACON BUTTIES after 9.15am Mass this week. (Or tea. Or juice. FrP)
 
 ---
 
@@ -144,15 +136,15 @@ every Thursday after 10am Mass in Church, for this beautiful prayer. All welcome
 
 ## Rotas
 
-Rotas for weekend 26th /27th September
+Rotas for weekend 3rd /4th October
 
-Readers Sat 6pm: Sun. 9.15am:
+Readers Sat 6pm:Mary Wren Hilton Sun. 9.15am: Peter Benning
 
-Meet and Greet Sat 6pm: P Huskinson and D. Warwick
+Meet and Greet Sat 6pm: C. O’Neill and Stephanie Gilully
 
-Sun 9.15am: M Skene and M Lehman
+Sun 9.15am: T Cookson and M Golightly
 
-9:15am Minister Dean
+9:15am Minister Catherine
 
 ---
 

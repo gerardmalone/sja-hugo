@@ -8,43 +8,11 @@ aliases:
 
 ## Feasts and Intentions this week
 
-### Weekend: Twenty-Fifth Sunday in Ordinary Time 'A'
-
-**Saturday 19th**  
-6pm — St. Joseph’s  
-Mass: Bernhard Joslowski
-
-**Sunday 20th**  
-9:15am — St. Joseph’s  
-Mass: Ron Rawstron Birthday Remembrance  
-10:30am — St. Peter’s  
-Mass: People of the Parishes
-
----
-
-**Monday 21st**  
-9am — St. Peter’s  
-Mass: Marriage Blessings Jane and Louis followed by Exposition and Confessions till 10am
-
-**Tuesday 22nd**  
-10am — St. Joseph’s  
-Mass: Repose of the soul of Vivian Lloyd preceded by Exposition and Confessions till 9:55am
-
-**Wednesday 23rd**  
-9am — St. Peter’s  
-Mass: Mary Chesworth Birthday Remembrance
-
-**Thursday 24th**  
-10am — St. Joseph’s  
-Mass: Thomas McNulty
-
----
-
 ### Weekend: Twenty-Sixth Sunday in Ordinary Time 'A'
 
 **Saturday 26th**  
 6pm — St. Joseph’s  
-Mass: In Memory of Roseanne Scott
+Mass: In memory of Roseanne Scott
 
 **Sunday 27th**  
 9:15am — St. Joseph’s  
@@ -54,11 +22,48 @@ Mass: People of the Parishes
 
 ---
 
+**Monday 28th**  
+9am — St. Peter’s  
+Mass: Mary Horton  
+10am — Lytham Crematorium Service for Kim Elizabeth Eastham
+
+**Tuesday 29th**  
+10am — St. Joseph’s  
+Mass: Michael Wren-Hilton preceded by Exposition and Confessions till 9:55am
+
+**Wednesday 30th**  
+9am — St. Peter’s  
+Mass: Intentions of Catherine Nolan
+
+**Thursday 1st**  
+10am — St. Joseph’s  
+Mass: In memory of Ian Spedding
+
+**Friday 2nd**  
+2pm — St. Joseph’s  
+Mass and Anointing of the Sick: Intentions of Jeanette Coyle and Dawn Hill
+
+---
+
+### Weekend: Twenty-Seventh Sunday in Ordinary Time 'A'
+
+**Saturday 3rd**  
+6pm — St. Joseph’s  
+Mass: Joan and Michael McCombe
+
+**Sunday 4th**  
+9:15am — St. Joseph’s  
+Mass: People of the Parishes  
+10:30am — St. Peter’s  
+Mass: Damien Turner
+
+---
+
 ## Sacrament of Reconciliation
 
 Sacrament of Reconciliation with Exposition this week.
 
-Monday 9:30-9:55am at St. Peter’s and Tuesday 9:30-9:50am at St. Joseph’s
+Tuesday 9:30-9:50am at St. Joseph’s
 
 Confession is also available by arrangement with Fr. Peter. Tel. 737037
 
