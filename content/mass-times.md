@@ -8,43 +8,6 @@ aliases:
 
 ## Feasts and Intentions this week
 
-### Weekend: Twenty-Sixth Sunday in Ordinary Time 'A'
-
-**Saturday 26th**  
-6pm — St. Joseph’s  
-Mass: In memory of Roseanne Scott
-
-**Sunday 27th**  
-9:15am — St. Joseph’s  
-Mass: Alan Hesketh Birthday Remembrance  
-10:30am — St. Peter’s  
-Mass: People of the Parishes
-
----
-
-**Monday 28th**  
-9am — St. Peter’s  
-Mass: Mary Horton  
-10am — Lytham Crematorium Service for Kim Elizabeth Eastham
-
-**Tuesday 29th**  
-10am — St. Joseph’s  
-Mass: Michael Wren-Hilton preceded by Exposition and Confessions till 9:55am
-
-**Wednesday 30th**  
-9am — St. Peter’s  
-Mass: Intentions of Catherine Nolan
-
-**Thursday 1st**  
-10am — St. Joseph’s  
-Mass: In memory of Ian Spedding
-
-**Friday 2nd**  
-2pm — St. Joseph’s  
-Mass and Anointing of the Sick: Intentions of Jeanette Coyle and Dawn Hill
-
----
-
 ### Weekend: Twenty-Seventh Sunday in Ordinary Time 'A'
 
 **Saturday 3rd**  
@@ -59,13 +22,21 @@ Mass: Damien Turner
 
 ---
 
+**Monday 5th**  
+9am — St. Peter’s  
+Mass: James Hunter  
+7pm — St. Peter’s  
+Vespers
+
+**Thursday 8th**  
+10am — St. Joseph’s  
+Mass: Kevin and Edward Campbell
+
+---
+
 ## Sacrament of Reconciliation
 
-Sacrament of Reconciliation with Exposition this week.
-
-Tuesday 9:30-9:50am at St. Joseph’s
-
-Confession is also available by arrangement with Fr. Peter. Tel. 737037
+Fr. Philip is available for confessions after weekday masses.
 
 ---
 
