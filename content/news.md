@@ -2,7 +2,7 @@
 title: "News"
 draft: false
 ---
-## Twenty-Seventh Sunday in Ordinary Time — Sunday 4th October 2026
+## Twenty-Eighth Sunday in Ordinary Time — Sunday 11th October 2026
 
 ## Catholic Voice
 
@@ -14,19 +14,11 @@ Sunday Masses as usual
 
 Weekday Mass Schedule for this week.
 
-Monday 5th St. Peter’s 9am
+Wednesday 14th St. Peter’s 9am
 
-Thursday 8th St. Joseph’s 10am
+Thursday 15th St. Joseph’s 10am
 
 Fr. Philip is available for confessions after weekday masses.
-
----
-
-## First Week of the Month at SJSP’s
-
-Please join us for these wonderful liturgies!
-
-This Monday 5th October: Evening Prayer and Benediction at St. Peter’s at 7pm
 
 ---
 

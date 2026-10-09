@@ -8,29 +8,27 @@ aliases:
 
 ## Feasts and Intentions this week
 
-### Weekend: Twenty-Seventh Sunday in Ordinary Time 'A'
+### Weekend: Twenty-Eighth Sunday in Ordinary Time 'A'
 
-**Saturday 3rd**  
+**Saturday 10th**  
 6pm — St. Joseph’s  
-Mass: Joan and Michael McCombe
+Mass: People of the Parishes
 
-**Sunday 4th**  
+**Sunday 11th**  
 9:15am — St. Joseph’s  
-Mass: People of the Parishes  
+Mass: Joe Piscane  
 10:30am — St. Peter’s  
-Mass: Damien Turner
+Mass: The Repose of the Soul of Sr. Jean Newbold
 
 ---
 
-**Monday 5th**  
+**Wednesday 14th**  
 9am — St. Peter’s  
-Mass: James Hunter  
-7pm — St. Peter’s  
-Vespers
+Mass: In Memory of Seamus McLoughlin
 
-**Thursday 8th**  
+**Thursday 15th**  
 10am — St. Joseph’s  
-Mass: Kevin and Edward Campbell
+Mass: Kenneth and Margaret Hammond
 
 ---
 
