@@ -8,27 +8,31 @@ aliases:
 
 ## Feasts and Intentions this week
 
-### Weekend: Twenty-Eighth Sunday in Ordinary Time 'A'
+### Weekend: Twenty-Ninth Sunday in Ordinary Time 'A'
 
-**Saturday 10th**  
+**Saturday 17th**  
 6pm — St. Joseph’s  
-Mass: People of the Parishes
+Mass: Bernhard Joslowski
 
-**Sunday 11th**  
+**Sunday 18th**  
 9:15am — St. Joseph’s  
-Mass: Joe Piscane  
+Mass: People of the Parishes  
 10:30am — St. Peter’s  
-Mass: The Repose of the Soul of Sr. Jean Newbold
+Mass: Niamh Kate Garnett
 
 ---
 
-**Wednesday 14th**  
-9am — St. Peter’s  
-Mass: In Memory of Seamus McLoughlin
+**Tuesday 20th**  
+6:30pm — St. Joseph’s  
+Rosary and Benediction
 
-**Thursday 15th**  
+**Wednesday 21st**  
+9am — St. Peter’s  
+Mass: Dave Stewart
+
+**Thursday 22nd**  
 10am — St. Joseph’s  
-Mass: Kenneth and Margaret Hammond
+Mass: Irene Robert
 
 ---
 

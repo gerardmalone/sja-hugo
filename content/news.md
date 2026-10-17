@@ -2,7 +2,7 @@
 title: "News"
 draft: false
 ---
-## Twenty-Eighth Sunday in Ordinary Time — Sunday 11th October 2026
+## Twenty-Ninth Sunday in Ordinary Time — Sunday 18th October 2026
 
 ## Catholic Voice
 
@@ -14,23 +14,35 @@ Sunday Masses as usual
 
 Weekday Mass Schedule for this week.
 
-Wednesday 14th St. Peter’s 9am
+Wednesday 21st St. Peter’s 9am
 
-Thursday 15th St. Joseph’s 10am
+Thursday 22nd St. Joseph’s 10am
 
 Fr. Philip is available for confessions after weekday masses.
+
+---
+
+## Third Tuesday of the Month at SJSP’s
+
+This Tuesday 20th October: Holy Hour with Rosary & Benediction: St. Joseph’s at 6:30pm
+
+---
+
+## Month of the Holy Souls
+
+November is the Month of the Holy Souls; please place the names of your loved ones for our Holy Souls list in the box on the Sanctuary throughout November. Please take a November leaflet to follow the beautiful celebrations we have during this month.
+
+---
+
+## November Leaflet
+
+please take a copy of the November leaflet which outlines the beautiful services which we will be celebrating throughout this Month of the Holy Souls, which takes us right up to the First Sunday of Advent!
 
 ---
 
 ## Burkina Faso
 
 Our appeal this year has raised the sum £932.14. You will remember the parish, as part of our centenary celebrations in 2008/2009, promised on-going support by holding an appeal annually. Every single penny raised over the last 18 years has gone to help the Bernardine Sisters spread the Gospel in one of the most poorest countries in the world. So thank you for your continued and generous support.
-
----
-
-## Mass for Healthcare Workers
-
-doctors, nurses, pharmacists, receptionists, porters, chaplains and many more are invited to Mass with our bishop on Saturday 17th Oct at 12.15 in Lancaster Cathedral. There will be a chance to meet up with other Catholic healthcare workers over a cup of tea in the social centre afterwards.
 
 ---
 
@@ -52,11 +64,9 @@ Thinking of being a priest? Come to the Day of Discernment! The day is for singl
 
 ---
 
-## SJSP Sunday Lunch at The Bedford
+## Cathedral Spire
 
-Sunday November 1st at 12noon
-
-Last opportunity if you would like to join us, forms and menus are available after masses. Donations for raffle Prizes would be gratefully received, and can be left at the back of Church, please labelled clearly.
+if you wish to contribute to the Bishop’s appeal there is a website with more details about the works required and how to donate. Please take a look: www.saveourspire.com
 
 ---
 
@@ -66,7 +76,7 @@ Up and Coming Social Events for our Two Parishes
 
 - Sunday Lunch at the Bedford: Sunday 1st November
 - Christmas Fair: Sunday 6th December at SP’s after 10:30am Mass
-- SJSP Amazing Musical Nativity (Did you know the Innkeeper had a dog?): Sunday 20th December at 3pm SJ’s
+- SJSP Amazing Musical Nativity (Did you know that three camels have six humps between them?): Sunday 20th December at 3pm SJ’s
 
 ---
 
@@ -82,7 +92,7 @@ St. Joseph’s Care £139:96 Burkina Faso £55
 
 ## Please Pray
 
-Please pray for all who have died recently especially David Allman and those whose anniversaries occur about this time: Betty Tattersall, Gabrielle Tattersall, May Whittle, Betty McNamara, Judith Cross, Ronald Welsh, Claire Plant, Michael Wren Hilton, George Naticchi, Peter Kirkham, Margaret Devine, Joseph Pisacane, Colin Wright, Ken Hammond, Millie Edge, Mark Woods and Christine Daley
+Please pray for all who have died recently and those whose anniversaries occur about this time: Niamh Garnett, Mary Tyson, Deborha Walker, Joan Lenehan, Sister Miriam Cooney, David Eastwood, Annie Cartmell, Monsignor Greg Turner, Stuart Berry, Salvatore Mancini, Lottie Woods and Tony Gleeson.
 
 ---
 
@@ -94,7 +104,7 @@ CHILDREN’S LITURGY at Sunday Morning Mass!
 
 ## Coffee & Bacon Butties
 
-COFFEE & BACON BUTTIES after 9.15am Mass this week. (Kangaroo burgers? FrP)
+COFFEE & BACON BUTTIES after 9.15am Mass this week. (Kookaburra wings? FrP)
 
 ---
 
