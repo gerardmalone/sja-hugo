@@ -2,11 +2,11 @@
 title: "News"
 draft: false
 ---
-## Twenty-Ninth Sunday in Ordinary Time — Sunday 18th October 2026
+## Thirtieth Sunday in Ordinary Time — Sunday 25th October 2026
 
 ## Catholic Voice
 
-Latest copy (October) can be found [by clicking this link](https://issuu.com/cathcom/docs/lancaster_voice_october_2026).
+Latest copy (November) can be found [by clicking this link](https://issuu.com/cathcom/docs/lancaster_voice_november_2026).
 
 ## Mass Schedule and Confessions
 
@@ -14,17 +14,11 @@ Sunday Masses as usual
 
 Weekday Mass Schedule for this week.
 
-Wednesday 21st St. Peter’s 9am
+Wednesday 28th St. Peter’s 9am
 
-Thursday 22nd St. Joseph’s 10am
+Thursday 29th St. Joseph’s 10am
 
 Fr. Philip is available for confessions after weekday masses.
-
----
-
-## Third Tuesday of the Month at SJSP’s
-
-This Tuesday 20th October: Holy Hour with Rosary & Benediction: St. Joseph’s at 6:30pm
 
 ---
 
@@ -67,6 +61,12 @@ Thinking of being a priest? Come to the Day of Discernment! The day is for singl
 ## Cathedral Spire
 
 if you wish to contribute to the Bishop’s appeal there is a website with more details about the works required and how to donate. Please take a look: www.saveourspire.com
+
+---
+
+## Feast of Saints Simon and Jude
+
+October 28th is the Feast of the Apostles Saints Simon and Jude. The Apostle Simon was known as the ‘zealot’, possibly belong to a Jewish party said to be ‘zealous of the Law’, and is said to have preached in Egypt. Saint Jude, also known was Thaddeus, was his companion, and wrote one of the New Testament Pastoral Letters, an dpreached in Mesopotamia. Tradition tells us that together they travelled to Persia where they were both martyred. Saint Jude is a friend to many as Patron Saint of Hopeless Cases, especially with regard to the sick
 
 ---
 

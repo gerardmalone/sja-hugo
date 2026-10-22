@@ -8,31 +8,27 @@ aliases:
 
 ## Feasts and Intentions this week
 
-### Weekend: Twenty-Ninth Sunday in Ordinary Time 'A'
+### Weekend: Thirtieth Sunday in Ordinary Time 'A'
 
-**Saturday 17th**  
+**Saturday 24th**  
 6pm — St. Joseph’s  
-Mass: Bernhard Joslowski
+Mass: Mary, Arthur and Kathleen Horton
 
-**Sunday 18th**  
+**Sunday 25th**  
 9:15am — St. Joseph’s  
 Mass: People of the Parishes  
 10:30am — St. Peter’s  
-Mass: Niamh Kate Garnett
+Mass: Damien Turner
 
 ---
 
-**Tuesday 20th**  
-6:30pm — St. Joseph’s  
-Rosary and Benediction
+**Wednesday 28th**  
+9am — St Peter’s  
+Mass: Sr. Ann Devine
 
-**Wednesday 21st**  
-9am — St. Peter’s  
-Mass: Dave Stewart
-
-**Thursday 22nd**  
+**Thursday 29th**  
 10am — St. Joseph’s  
-Mass: Irene Robert
+Mass: Intentions of Harry
 
 ---
 
