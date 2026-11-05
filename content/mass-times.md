@@ -8,33 +8,57 @@ aliases:
 
 ## Feasts and Intentions this week
 
-### Weekend: Thirtieth Sunday in Ordinary Time 'A'
+### Weekend: Thirty-Second Sunday in Ordinary Time 'A'
 
-**Saturday 24th**  
+**Saturday 7th**  
 6pm — St. Joseph’s  
-Mass: Mary, Arthur and Kathleen Horton
+Mass: People of the Parishes
 
-**Sunday 25th**  
+**Sunday 8th**  
 9:15am — St. Joseph’s  
-Mass: People of the Parishes  
+Mass: Monsignor Peter Cookson and John Cookson  
 10:30am — St. Peter’s  
-Mass: Damien Turner
+Mass: Glen Davidson
 
 ---
 
-**Wednesday 28th**  
-9am — St Peter’s  
-Mass: Sr. Ann Devine
+**Monday 9th**  
+9am — St. Peter’s  
+Mass: For Stephen and his Family followed by Exposition and Confessions till 10am
 
-**Thursday 29th**  
+**Tuesday 10th**  
+11:30am — St. Joseph’s  
+Requiem Mass for Patricia Gleeson
+
+**Wednesday 11th**  
+9am — St Peter’s  
+Mass: Arthur Horton Birthday Remembrance
+
+**Thursday 12th**  
 10am — St. Joseph’s  
-Mass: Intentions of Harry
+Mass: Lottie Woods
+
+---
+
+### Weekend: Thirty-Third Sunday in Ordinary Time
+
+**Saturday 14th**  
+6pm — St. Joseph’s  
+Mass: John and Mary Jane MacDonald
+
+**Sunday 15th**  
+9:15am — St. Joseph’s  
+Mass: People of the Parishes  
+10:30am — St. Peter’s  
+Mass: John Gerard Nolan
 
 ---
 
 ## Sacrament of Reconciliation
 
-Fr. Philip is available for confessions after weekday masses.
+Sacrament of Reconciliation with Exposition this week: Monday 9:30-9:55am at St. Peter’s
+
+Confession is also available by arrangement with Fr. Peter. The number is in this week's [bulletin](/bulletins/).
 
 ---
 

@@ -2,41 +2,43 @@
 title: "News"
 draft: false
 ---
-## Thirtieth Sunday in Ordinary Time — Sunday 25th October 2026
+## Thirty-Second Sunday in Ordinary Time — Sunday 8th November 2026
 
 ## Catholic Voice
 
 Latest copy (November) can be found [by clicking this link](https://issuu.com/cathcom/docs/lancaster_voice_november_2026).
 
-## Mass Schedule and Confessions
+## This Weekend is Remembrance Sunday
 
-Sunday Masses as usual
+At all weekend Masses we remember those who gave their lives in the Service of Freedom, with the Act of Remembrance & The Silence, followed by the Last Post.
 
-Weekday Mass Schedule for this week.
+---
 
-Wednesday 28th St. Peter’s 9am
+## Parish Bereavement Sunday
 
-Thursday 29th St. Joseph’s 10am
-
-Fr. Philip is available for confessions after weekday masses.
+Next Sunday is our own Parish Bereavement Sunday; the names of all who have celebrated requiems and Funerals Services throughout the year at St. Joseph’s and St. Peter’s will be commemorated. May they rest in peace.
 
 ---
 
 ## Month of the Holy Souls
 
-November is the Month of the Holy Souls; please place the names of your loved ones for our Holy Souls list in the box on the Sanctuary throughout November. Please take a November leaflet to follow the beautiful celebrations we have during this month.
+November is the Month of the Holy Souls: your November Lists can be placed in the box on the sanctuary to be remembered throughout the month. O God, the author of mercy, the lover of the salvation of mankind; we address thy clemency, in behalf of our brethren, relations, and benefactors, who are departed this life, that by the intercession of blessed Mary, ever virgin, and of all the saints, thou wouldst receive them into the enjoyment of eternal happiness; through Christ our Lord. Amen.
 
 ---
 
-## November Leaflet
+## Lytham Christmas Light Switch On
 
-please take a copy of the November leaflet which outlines the beautiful services which we will be celebrating throughout this Month of the Holy Souls, which takes us right up to the First Sunday of Advent!
+**Next Saturday 14th November at 2pm**
+
+Please come and support our Two Choirs and the Ukulele Orchestra in leading a Christmas Sing-Along in the Piazza (outside Bosco) at 2pm on Saturday 14th November. We all had a very jolly time last year and everyone is welcome to help us do it again!
 
 ---
 
-## Burkina Faso
+## Ansdell Christmas Light Switch On
 
-Our appeal this year has raised the sum £932.14. You will remember the parish, as part of our centenary celebrations in 2008/2009, promised on-going support by holding an appeal annually. Every single penny raised over the last 18 years has gone to help the Bernardine Sisters spread the Gospel in one of the most poorest countries in the world. So thank you for your continued and generous support.
+**Saturday 21st November at 4pm**
+
+More information next week!
 
 ---
 
@@ -46,53 +48,28 @@ Contributions are most welcome, and still most necessary. Please bring stuff to 
 
 ---
 
-## SJSP Ukulele Orchestra
-
-still strumming away at St. Peter’s at 7pm on Monday evenings, and everyone welcome.
-
----
-
-## Day of Discernment
-
-Thinking of being a priest? Come to the Day of Discernment! The day is for single men 16 years or over who are considering priesthood: Saturday 31 October 10am - 3.30pm at St Peter's Cathedral, Balmoral Rd, Lancaster LA1 3BT. Enter at Cathedral House on Balmoral Rd. The day includes Mass, adoration, reflections and lunch with Bishop Paul. To book, email Heather: heather.watts@lrcd.org.uk or use the number in this week's [bulletin](/bulletins/). There is no charge for the day. As well as meeting the Bishop, you will have the opportunity to get to know how discernment works and who can assist you. You will also meet many others from across the Diocese of Lancaster exploring vocation to priesthood.
-
----
-
-## Cathedral Spire
-
-if you wish to contribute to the Bishop’s appeal there is a website with more details about the works required and how to donate. Please take a look: www.saveourspire.com
-
----
-
-## Feast of Saints Simon and Jude
-
-October 28th is the Feast of the Apostles Saints Simon and Jude. The Apostle Simon was known as the ‘zealot’, possibly belong to a Jewish party said to be ‘zealous of the Law’, and is said to have preached in Egypt. Saint Jude, also known was Thaddeus, was his companion, and wrote one of the New Testament Pastoral Letters, an dpreached in Mesopotamia. Tradition tells us that together they travelled to Persia where they were both martyred. Saint Jude is a friend to many as Patron Saint of Hopeless Cases, especially with regard to the sick
-
----
-
 ## Save the Date(s)!
 
 Up and Coming Social Events for our Two Parishes
 
-- Sunday Lunch at the Bedford: Sunday 1st November
 - Christmas Fair: Sunday 6th December at SP’s after 10:30am Mass
-- SJSP Amazing Musical Nativity (Did you know that three camels have six humps between them?): Sunday 20th December at 3pm SJ’s
+- SJSP Amazing Musical Nativity: Sunday 20th December at 3pm at SJ’s
 
 ---
 
 ## Collection Count
 
-for August: with grateful thanks
+for October: with grateful thanks
 
-Gift Aid £529:80 Non Gift Aid £1427:39 SO £3148
+Gift Aid £395 Non Gift Aid £1463:08 SO £2973
 
-St. Joseph’s Care £139:96 Burkina Faso £55
+St. Joseph’s Care £241:01
 
 ---
 
 ## Please Pray
 
-Please pray for all who have died recently and those whose anniversaries occur about this time: Niamh Garnett, Mary Tyson, Deborha Walker, Joan Lenehan, Sister Miriam Cooney, David Eastwood, Annie Cartmell, Monsignor Greg Turner, Stuart Berry, Salvatore Mancini, Lottie Woods and Tony Gleeson.
+Please pray for all who have died recently, especially Pat Gleeson, Lynn Clarke, Camillla Woolner, Sister Melanie, Norman Barnes, Gerladine McKay, and Barbara Waring; and those whose anniversaries occur about this time: Agnes Cross, Kath Warburton, Vera Hollway, Peggy Lawrenson, Terence Smith, Nora Johnson, Georgina Walmsley, Raymond Cross, Winifred McGuinness, Kenneth Blairsdale, Sheila Swift, Patricia Coyle, Ursula Cooper, Brian Finnegan, Elizabeth Whitehead, Stephen Kendrick, and Monsignor Peter Cookson
 
 ---
 
@@ -104,7 +81,7 @@ CHILDREN’S LITURGY at Sunday Morning Mass!
 
 ## Coffee & Bacon Butties
 
-COFFEE & BACON BUTTIES after 9.15am Mass this week. (Kookaburra wings? FrP)
+COFFEE & BACON BUTTIES after 9.15am Mass this week. (no Christmas Cake just yet. FrP)
 
 ---
 
@@ -135,6 +112,18 @@ Cards and gifts for different occasions available, including first communion car
 ## The Holy Rosary
 
 every Thursday after 10am Mass in Church, for this beautiful prayer. All welcome. Thursday at 10:30am in Church.
+
+---
+
+## Rotas
+
+Rotas for weekend 7-8th November
+
+Readers Sat 6pm: Anna Mrgatroyd 9.15am: Rosemary Page
+
+Meet and Greet Sat 6pm: P Huskinson and D. Warwick
+
+9.15am: T. Cookson and M Golightly. Euch. Minister: Wanda
 
 ---
 
