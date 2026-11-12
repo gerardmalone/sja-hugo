@@ -8,55 +8,60 @@ aliases:
 
 ## Feasts and Intentions this week
 
-### Weekend: Thirty-Second Sunday in Ordinary Time 'A'
-
-**Saturday 7th**  
-6pm — St. Joseph’s  
-Mass: People of the Parishes
-
-**Sunday 8th**  
-9:15am — St. Joseph’s  
-Mass: Monsignor Peter Cookson and John Cookson  
-10:30am — St. Peter’s  
-Mass: Glen Davidson
-
----
-
-**Monday 9th**  
-9am — St. Peter’s  
-Mass: For Stephen and his Family followed by Exposition and Confessions till 10am
-
-**Tuesday 10th**  
-11:30am — St. Joseph’s  
-Requiem Mass for Patricia Gleeson
-
-**Wednesday 11th**  
-9am — St Peter’s  
-Mass: Arthur Horton Birthday Remembrance
-
-**Thursday 12th**  
-10am — St. Joseph’s  
-Mass: Lottie Woods
-
----
-
 ### Weekend: Thirty-Third Sunday in Ordinary Time
 
 **Saturday 14th**  
 6pm — St. Joseph’s  
-Mass: John and Mary Jane MacDonald
+Mass: John and Mary Jane Macdonald
 
 **Sunday 15th**  
 9:15am — St. Joseph’s  
 Mass: People of the Parishes  
 10:30am — St. Peter’s  
-Mass: John Gerard Nolan
+Mass: John Gerald Nolan
+
+---
+
+**Monday 16th**  
+9am — St. Peter’s  
+Mass: Intentions of Paul George followed by Exposition and Confessions till 10am
+
+**Tuesday 17th**  
+10am — St. Joseph’s  
+Mass: Deceased of the Burke Family preceded by Exposition and Confessions till 9:55am  
+6:30pm — St. Peter’s  
+Rosary and Benediction
+
+**Wednesday 18th**  
+9am — St Peter’s  
+Mass: Sr. Mary Esther Peart
+
+**Thursday 19th**  
+10am — St. Joseph’s  
+Mass: Samantha Rawstron  
+11am — Cross and Passion Convent: Requiem for Sr. Melanie
+
+---
+
+### Weekend: Feast of Our Lord Jesus Christ, Universal King
+
+**Saturday 21st**  
+6pm — St. Joseph’s  
+Mass: Michael McCoomb
+
+**Sunday 22nd**  
+9:15am — St. Joseph’s  
+Mass: John Joseph McGuirk  
+10:30am — St. Peter’s  
+Mass: People of the Parishes
 
 ---
 
 ## Sacrament of Reconciliation
 
-Sacrament of Reconciliation with Exposition this week: Monday 9:30-9:55am at St. Peter’s
+Sacrament of Reconciliation with Exposition this week.
+
+Monday 9:30-9:55am at St. Peter’s and Tuesday 9:30-9:50am at St. Joseph’s
 
 Confession is also available by arrangement with Fr. Peter. The number is in this week's [bulletin](/bulletins/).
 

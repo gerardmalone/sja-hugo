@@ -2,21 +2,37 @@
 title: "News"
 draft: false
 ---
-## Thirty-Second Sunday in Ordinary Time — Sunday 8th November 2026
+## Thirty-Third Sunday in Ordinary Time — Sunday 15th November 2026
 
 ## Catholic Voice
 
 Latest copy (November) can be found [by clicking this link](https://issuu.com/cathcom/docs/lancaster_voice_november_2026).
 
-## This Weekend is Remembrance Sunday
+## Message from Father Peter
 
-At all weekend Masses we remember those who gave their lives in the Service of Freedom, with the Act of Remembrance & The Silence, followed by the Last Post.
+Or rather, this week a little message from my friend Fr. Ed, who is Parish Priest of the Church of St. Hugh in Lincoln. I asked him to write a little message because this Tuesday is the Feast of St. Hugh.
+
+Fr. Ed writes:
+
+St Hugh of Lincoln was not actually born in Lincoln, not even in England. Hugh was a French Carthusian monk, born in Avalon around 1140. He was from a military family, and originally became an Augustinian monk, before seeking a more contemplative life with the Carthusians. He was chosen to be Bishop of Lincoln, having become the first prior of a Carthusian house in England.
+
+Hugh was known for speaking the truth, even to power in politically troubled times, admonishing kings when necessary. He had a good relationship with King Henry II, but above all he is remembered as a pastoral and caring bishop. He protected the small Jewish community in Lincoln, was a friend to the poor, and took special care to make sure that no one died without a proper Christian funeral.
+
+He helped rebuild the cathedral in Lincoln, and had a swan (the “Swan of Stow”) as a pet. He died in 1200 and the whole city attended his funeral. He is Patron Saint of Sick Children, and here is a prayer to him:
+
+> Saint Hugh, monk of the Grande Chartreuse and Shepherd of Lincoln, you loved the silence of your cell and served without counting the people entrusted to you: teach me to keep a place of prayer deep in my heart, even in the middle of my work. You kissed lepers and buried the abandoned dead: give me a heart without disgust before suffering, and hands ready to serve. You spoke frankly to kings, without fear and without hatred: obtain for me the courage of truth and the gentleness that disarms. Children loved you, and the swan of Stow followed you faithfully: teach me simplicity and joy. I entrust to you my intention. Amen.
 
 ---
 
 ## Parish Bereavement Sunday
 
-Next Sunday is our own Parish Bereavement Sunday; the names of all who have celebrated requiems and Funerals Services throughout the year at St. Joseph’s and St. Peter’s will be commemorated. May they rest in peace.
+This Sunday we celebrate our own Parish Bereavement Sunday; the names of all who have celebrated requiems and Funerals Services throughout the year at St. Joseph’s and St. Peter’s will be commemorated. May they rest in peace.
+
+---
+
+## Third Tuesday of the Month at SJSP’s
+
+This Tuesday 17th November: Holy Hour with Rosary & Benediction: St. Peter’s at 6:30pm
 
 ---
 
@@ -26,25 +42,31 @@ November is the Month of the Holy Souls: your November Lists can be placed in th
 
 ---
 
-## Lytham Christmas Light Switch On
+## Ansdell Christmas Light Switch On
 
-**Next Saturday 14th November at 2pm**
+**Next Saturday 21st November at 4pm**
 
-Please come and support our Two Choirs and the Ukulele Orchestra in leading a Christmas Sing-Along in the Piazza (outside Bosco) at 2pm on Saturday 14th November. We all had a very jolly time last year and everyone is welcome to help us do it again!
+If you would like to join in with a procession to the main switch-on, please gather outside SJ’s by the Crib at 4pm. Please note that on this Saturday Woodlands Road will be closed from 2pm-7pm, so bear this in mind if driving to 6pm Mass.
 
 ---
 
-## Ansdell Christmas Light Switch On
+## The Advent Posada
 
-**Saturday 21st November at 4pm**
+As Advent approaches the opportunity to be an Inn Keeper, and house for an evening the Statue of the Travelling Holy Family on the journey to Bethlehem is again open to all members of the Parish. Here are some of the comments received from people involved in past years. ‘It was very emotional, I felt honoured to take the part of the Inn Keeper,’ ‘We felt very blessed to welcome the Holy Family into our home,’ ‘A lovely way for our family to begin Advent,’ ‘It was a magical, special, and thought provoking experience,’ ‘Having the Posada gave us the opportunity to talk about the Christmas Story with our grandchildren’. Please add your name to the list at the back of church.
 
-More information next week!
+---
+
+## Annual Christmas Brunch
+
+Annual Christmas Brunch – Sunday 13th December
+
+Please join us for our annual Christmas brunch or late breakfast on Sunday 13th December at 1pm in St Joseph’s Hall. Come along and enjoy some festive food, good company and Christmas cheer! A sign-up sheet is available at the back of church. See you there!
 
 ---
 
 ## The Food Bank
 
-Contributions are most welcome, and still most necessary. Please bring stuff to Masses or the Presbytery any time.
+During the weeks leading up to Christmas, if it is possible to boost any Food Bank offerings, perhaps with some children’s Christmas treats, it would be much appreciated.
 
 ---
 
@@ -53,7 +75,7 @@ Contributions are most welcome, and still most necessary. Please bring stuff to 
 Up and Coming Social Events for our Two Parishes
 
 - Christmas Fair: Sunday 6th December at SP’s after 10:30am Mass
-- SJSP Amazing Musical Nativity: Sunday 20th December at 3pm at SJ’s
+- “Christmas Farm” A new Musical Nativity for Children and other Animals Sunday 20th December at 3pm at SJ’s
 
 ---
 
@@ -69,7 +91,7 @@ St. Joseph’s Care £241:01
 
 ## Please Pray
 
-Please pray for all who have died recently, especially Pat Gleeson, Lynn Clarke, Camillla Woolner, Sister Melanie, Norman Barnes, Gerladine McKay, and Barbara Waring; and those whose anniversaries occur about this time: Agnes Cross, Kath Warburton, Vera Hollway, Peggy Lawrenson, Terence Smith, Nora Johnson, Georgina Walmsley, Raymond Cross, Winifred McGuinness, Kenneth Blairsdale, Sheila Swift, Patricia Coyle, Ursula Cooper, Brian Finnegan, Elizabeth Whitehead, Stephen Kendrick, and Monsignor Peter Cookson
+Please pray for all who have died recently, especially Canon Harry Doyle, John Harbottle, Camillla Woolner, Sister Melanie, and those whose anniversaries occur about this time: Cath Hibbert, Joanne Lanza, Dean Graham Lavery, Margaret Malcolm, Doreen Fay, Christine Marsh and Leotine Botta.
 
 ---
 
@@ -81,7 +103,7 @@ CHILDREN’S LITURGY at Sunday Morning Mass!
 
 ## Coffee & Bacon Butties
 
-COFFEE & BACON BUTTIES after 9.15am Mass this week. (no Christmas Cake just yet. FrP)
+COFFEE & BACON BUTTIES after 9.15am Mass this week. (No Christmas Pudding yet. FrP)
 
 ---
 
@@ -117,13 +139,13 @@ every Thursday after 10am Mass in Church, for this beautiful prayer. All welcome
 
 ## Rotas
 
-Rotas for weekend 7-8th November
+Rotas for weekend 21st - 22nd November
 
-Readers Sat 6pm: Anna Mrgatroyd 9.15am: Rosemary Page
+Readers Sat 6pm: Richard Golding 9.15am: Susan Brown
 
-Meet and Greet Sat 6pm: P Huskinson and D. Warwick
+Meet and Greet Sat 6pm: C.Williams and M. Taylor
 
-9.15am: T. Cookson and M Golightly. Euch. Minister: Wanda
+9.15am: M. Cookson and M Reid Euch. Minister: Dean
 
 ---
 
