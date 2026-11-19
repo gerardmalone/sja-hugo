@@ -2,7 +2,7 @@
 title: "News"
 draft: false
 ---
-## Thirty-Third Sunday in Ordinary Time — Sunday 15th November 2026
+## Our Lord Jesus Christ, King of the Universe — Sunday 22nd November 2026
 
 ## Catholic Voice
 
@@ -10,29 +10,16 @@ Latest copy (November) can be found [by clicking this link](https://issuu.com/ca
 
 ## Message from Father Peter
 
-Or rather, this week a little message from my friend Fr. Ed, who is Parish Priest of the Church of St. Hugh in Lincoln. I asked him to write a little message because this Tuesday is the Feast of St. Hugh.
+This weekend is the Feast of Christ the King, also known as ‘Stir Up Sunday’ as today is the day by which you should have all made your Christmas Cakes and Puddings. Stir Up Sunday started back in Victorian times, and was a tradition where families would come together to get their fruit puddings stirred up, steamed and stored ahead of Christmas.
 
-Fr. Ed writes:
+Each member of the family would take a turn to give all the ingredients a good mix and help tick off the first task of the festive season, stirring from east to west to follow the direction the Wise Men travelled to see the infant Jesus, and adding a coin. Apparently, Victorian Christmas Puddings (and maybe modern ones, who knows) had exactly thirteen ingredients to represent Christ and the Twelve Apostles. It is thought that the name ‘Stir Up’ Sunday comes from the opening line of the Collect for Mass from the Book of Common Prayer (our new translation seems to have no truck with jolly Victorian traditions, alas). It’s very appropriate for all our Christmas preparations:
 
-St Hugh of Lincoln was not actually born in Lincoln, not even in England. Hugh was a French Carthusian monk, born in Avalon around 1140. He was from a military family, and originally became an Augustinian monk, before seeking a more contemplative life with the Carthusians. He was chosen to be Bishop of Lincoln, having become the first prior of a Carthusian house in England.
+> Stir up the will of your faithful, we pray O Lord,  
+> That, striving more eagerly to bring your divine work to fruitful completion,  
+> They may receive in greater measure the healing remedies your kindness bestows.  
+> Through Christ our Lord. Amen.
 
-Hugh was known for speaking the truth, even to power in politically troubled times, admonishing kings when necessary. He had a good relationship with King Henry II, but above all he is remembered as a pastoral and caring bishop. He protected the small Jewish community in Lincoln, was a friend to the poor, and took special care to make sure that no one died without a proper Christian funeral.
-
-He helped rebuild the cathedral in Lincoln, and had a swan (the “Swan of Stow”) as a pet. He died in 1200 and the whole city attended his funeral. He is Patron Saint of Sick Children, and here is a prayer to him:
-
-> Saint Hugh, monk of the Grande Chartreuse and Shepherd of Lincoln, you loved the silence of your cell and served without counting the people entrusted to you: teach me to keep a place of prayer deep in my heart, even in the middle of my work. You kissed lepers and buried the abandoned dead: give me a heart without disgust before suffering, and hands ready to serve. You spoke frankly to kings, without fear and without hatred: obtain for me the courage of truth and the gentleness that disarms. Children loved you, and the swan of Stow followed you faithfully: teach me simplicity and joy. I entrust to you my intention. Amen.
-
----
-
-## Parish Bereavement Sunday
-
-This Sunday we celebrate our own Parish Bereavement Sunday; the names of all who have celebrated requiems and Funerals Services throughout the year at St. Joseph’s and St. Peter’s will be commemorated. May they rest in peace.
-
----
-
-## Third Tuesday of the Month at SJSP’s
-
-This Tuesday 17th November: Holy Hour with Rosary & Benediction: St. Peter’s at 6:30pm
+Please take an Advent Leaflet which details all the Advent and Christmas Services and Celebrations – and perhaps take one for family, friends and neighbours, that the joy of Advent and Christmas might be ‘stirred up’ in them!
 
 ---
 
@@ -42,17 +29,27 @@ November is the Month of the Holy Souls: your November Lists can be placed in th
 
 ---
 
-## Ansdell Christmas Light Switch On
+## Feast of Christ the King
 
-**Next Saturday 21st November at 4pm**
+This Sunday is the Feast of Christ the King, the last Sunday in the Year of the Church, after which we begin a New Year with the First Sunday of Advent. Please take an Advent Leaflet detailing our Advent Programme as well as the Christmas Mass Times.
 
-If you would like to join in with a procession to the main switch-on, please gather outside SJ’s by the Crib at 4pm. Please note that on this Saturday Woodlands Road will be closed from 2pm-7pm, so bear this in mind if driving to 6pm Mass.
+---
+
+## Confirmation
+
+The Bishop will confer the Sacrament of Confirmation on candidates in Year 6 and above next February. Application forms are available from Fr. Peter at Masses.
 
 ---
 
 ## The Advent Posada
 
-As Advent approaches the opportunity to be an Inn Keeper, and house for an evening the Statue of the Travelling Holy Family on the journey to Bethlehem is again open to all members of the Parish. Here are some of the comments received from people involved in past years. ‘It was very emotional, I felt honoured to take the part of the Inn Keeper,’ ‘We felt very blessed to welcome the Holy Family into our home,’ ‘A lovely way for our family to begin Advent,’ ‘It was a magical, special, and thought provoking experience,’ ‘Having the Posada gave us the opportunity to talk about the Christmas Story with our grandchildren’. Please add your name to the list at the back of church.
+As Advent approaches the opportunity to be an Inn Keeper, and house for an evening the Statue of the Travelling Holy Family on the journey to Bethlehem is again open to all members of the Parish. Please add your name to the list at the back of church.
+
+---
+
+## Advent Booklets and Christmas Items
+
+'Walk with me in Advent' booklets are available to buy at the back of Church or from the Repository at £1.50. Religious Christmas Cards, Advent Candles & Nativity scenes are now available.
 
 ---
 
@@ -66,16 +63,19 @@ Please join us for our annual Christmas brunch or late breakfast on Sunday 13th 
 
 ## The Food Bank
 
-During the weeks leading up to Christmas, if it is possible to boost any Food Bank offerings, perhaps with some children’s Christmas treats, it would be much appreciated.
+During the weeks leading up to Christmas, any extra Food Bank offerings, perhaps including some children’s Christmas treats, would be much appreciated.
 
 ---
 
-## Save the Date(s)!
+## Christmas Fair at St. Peter’s
 
-Up and Coming Social Events for our Two Parishes
+Sunday 6th December at St. Peter’s after 10:30am Mass. Everyone is welcome for stalls, refreshments and games.
 
-- Christmas Fair: Sunday 6th December at SP’s after 10:30am Mass
-- “Christmas Farm” A new Musical Nativity for Children and other Animals Sunday 20th December at 3pm at SJ’s
+---
+
+## “Christmas Farm”
+
+A new musical nativity for children and other animals, Sunday 20th December at 3pm at St. Joseph’s.
 
 ---
 
@@ -91,7 +91,7 @@ St. Joseph’s Care £241:01
 
 ## Please Pray
 
-Please pray for all who have died recently, especially Canon Harry Doyle, John Harbottle, Camillla Woolner, Sister Melanie, and those whose anniversaries occur about this time: Cath Hibbert, Joanne Lanza, Dean Graham Lavery, Margaret Malcolm, Doreen Fay, Christine Marsh and Leotine Botta.
+Please pray for all who have died recently, especially Jim Baker, Canon Harry Doyle, John Harbottle, Camillla Woolner, Keith Oglesby and Lena Beesley, and those whose anniversaries occur about this time: Filip Nowaczyk, Billy Valentine, Ben Cawthorn, Sr. Teresa Malone, Sr. Margaret Murphy, May White, Geraldine Taylor, Richard Thomas, Brian Clarke, Jean Challoner, John Joseph Le Saint, Fr. Patrick O’Dea, Eric Wormleighton and Frederick Dronsfield.
 
 ---
 
@@ -103,13 +103,13 @@ CHILDREN’S LITURGY at Sunday Morning Mass!
 
 ## Coffee & Bacon Butties
 
-COFFEE & BACON BUTTIES after 9.15am Mass this week. (No Christmas Pudding yet. FrP)
+COFFEE & BACON BUTTIES after 9.15am Mass this week. (No Christmas Pudding yet – it still has to be stirred. FrP)
 
 ---
 
 ## St Joseph's Care
 
-Do you know of anyone in our community who is in need or might need a little more support, and would like either a friendly a visit, or Holy Commnion at Home? Please let St. Joseph’s Care Visiting Team know by emailing or phone the Parish on the above contact details.
+Do you know anyone in our community who needs a little more support, a friendly visit, or Holy Communion at home? Please let St. Joseph’s Care Visiting Team know by emailing or phoning the parish using the contact details in this week's [bulletin](/bulletins/).
 
 ---
 
@@ -139,13 +139,13 @@ every Thursday after 10am Mass in Church, for this beautiful prayer. All welcome
 
 ## Rotas
 
-Rotas for weekend 21st - 22nd November
+Rotas for weekend 28th - 29th November
 
-Readers Sat 6pm: Richard Golding 9.15am: Susan Brown
+Readers Sat 6pm: Catherine Ralston 9.15am: Maria Hall
 
-Meet and Greet Sat 6pm: C.Williams and M. Taylor
+Meet and Greet Sat 6pm: C.Williams
 
-9.15am: M. Cookson and M Reid Euch. Minister: Dean
+9.15am: P Benning and M Herron Euch. Minister: Catherine
 
 ---
 

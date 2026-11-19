@@ -8,52 +8,50 @@ aliases:
 
 ## Feasts and Intentions this week
 
-### Weekend: Thirty-Third Sunday in Ordinary Time
-
-**Saturday 14th**  
-6pm — St. Joseph’s  
-Mass: John and Mary Jane Macdonald
-
-**Sunday 15th**  
-9:15am — St. Joseph’s  
-Mass: People of the Parishes  
-10:30am — St. Peter’s  
-Mass: John Gerald Nolan
-
----
-
-**Monday 16th**  
-9am — St. Peter’s  
-Mass: Intentions of Paul George followed by Exposition and Confessions till 10am
-
-**Tuesday 17th**  
-10am — St. Joseph’s  
-Mass: Deceased of the Burke Family preceded by Exposition and Confessions till 9:55am  
-6:30pm — St. Peter’s  
-Rosary and Benediction
-
-**Wednesday 18th**  
-9am — St Peter’s  
-Mass: Sr. Mary Esther Peart
-
-**Thursday 19th**  
-10am — St. Joseph’s  
-Mass: Samantha Rawstron  
-11am — Cross and Passion Convent: Requiem for Sr. Melanie
-
----
-
 ### Weekend: Feast of Our Lord Jesus Christ, Universal King
 
 **Saturday 21st**  
 6pm — St. Joseph’s  
-Mass: Michael McCoomb
+Mass: Michael McCoombe
 
 **Sunday 22nd**  
 9:15am — St. Joseph’s  
 Mass: John Joseph McGuirk  
 10:30am — St. Peter’s  
 Mass: People of the Parishes
+
+---
+
+**Monday 23rd**  
+9am — St. Peter’s  
+Mass: Geraldine McKay followed by Exposition and Confessions till 10am
+
+**Tuesday 24th**  
+10am — St. Joseph’s  
+Mass: Dorothy and Thomas Gilluly preceded by Exposition and Confessions till 9:55am
+
+**Wednesday 25th**  
+9am — St Peter’s  
+Mass: Deceased of the Beal Family
+
+**Thursday 26th**  
+10am — St. Joseph’s  
+Mass: Joy Warwick  
+1:15pm — Lytham Crematorium Service for Camilla Woolner
+
+---
+
+### Weekend: The First Sunday of Advent 'B'
+
+**Saturday 28th**  
+6pm — St. Joseph’s  
+Mass: People of the Parishes
+
+**Sunday 29th**  
+9:15am — St. Joseph’s  
+Mass: William and Mary Murray  
+10:30am — St. Peter’s  
+Mass: Intentions of Alex Woolrich
 
 ---
 
